@@ -7,7 +7,7 @@ honestly, I don't think I would perform these experiments on my users (without t
 
 a lot of the inspiration for these experiments has been born out of my own life experience. however, my curiosity comes from the idea that these experiments can be run on children who do not have my life experience, and will therefore grow up thinking the experimental conditions are normal. with these contrived experimental conditions, will the experiments produce in these children similar conclusions in the subjects that my life experience produced in me? I think it's going to be a mixed bag of results, but in the grand scheme of things it may even be possible to see these experiments like a nosebook dojo: it may be possible to observe improved resilience and adaptation to these contrived conditions, therefore allowing humankind to (for the first time) begin influencing the new frontiers of adaptation for the human race.
 
-## attempted prevention of someone's desire
+## attempt to prevent someone's realisation of desire
 
 take a sample of children that are not yet able to stand. for one group of kids, [shock them|make their body involuntarily convulse] so they fall down and are unsuccessful in their attempt to stand up. for the second group of kids, only shock them sometimes, and for the third kids only shock them when other people are around.
 
