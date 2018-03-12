@@ -1,16 +1,30 @@
+### minimum requirements
 - see through both of my eyes like I have experienced after stars at marcos' house or on ketamine
 - get lightness come into my head when watching stars (like at marcos' house)
+- get tunnels around the star again and the cool colours that form around it.
 - move energy in/out of the top of my head and ears again with ease
-- allow images to appear in my eyes (on command)
-- allow songs and voices in my head to be heard (on command)
+- allow images to appear in my eyes (when I relax into it)
+- allow songs and voices to be heard in my head (when I relax into it)
 - waking up feeling crisp, vibrant and not dead inside
+- the world should go back to feeling how it did before were it felt vibrant and alive
+ - not dead and lifeless like it is now
 - silence in my head (not a constant high-pitched screech)
 - all my data to be open and public (no secrets)
-- ability to go back and see things in my past (use the device for memory)
 
-kinda optional (but not really - cause I can)
+
+### kinda optional (but not really - cause I can)
+- ability to go back and see things in my past (use the device for memory)
+  - to be able to tag moments in time (while it's happening, right after it happened, or retroactively)
 - ability for my brother to communicate easily by putting his inner voice on a speaker
 - ability to load an image or utilise the internet in ones eyes to allow kids to do better in school
+
+### very important
+- I need to know what the terms of service are. if the terms of service is not the same as for everyone else, I would like a comparison between them. in the case where I do not want to agree to the terms of service what will happen? how do we allow me the freedom to decide if I want to agree to the TOS? obviously, if I am still under investigation, how do we reconcile that. how do I get released from the investigation, especially if I believe the investigation is detrimental to my well-being?
+- I want to see my history and track the variables that they have been monitoring in me. I'd like to correlate them with different activities that I do such as watch stars and stuff, and also I'd like to see how I'm doing now in contrast to before. for example, what are my dmt levels now in comparison to before, etc.
+
+### I should see evidence of
+- my entire physical body should return to how it used to be where it was constantly improving
+-
 
 ---
 
