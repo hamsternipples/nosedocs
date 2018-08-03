@@ -287,3 +287,17 @@ I just remembered something: when I got back to the shore, they asked me, "kenne
 so, I was thinking about the how much more fun it is to have all kinds of obstacles and craziness going on around you while driving (if you can navigate it easily). it really adds to the sense of the magnitude of the journey with it like that. it's almost as if the more moving parts and the more chaos, the more epic the journey feels.
 
 when I contrast an epic journey with a difficult journey, both have a sense of overcoming difficulty and achievement of the goal, but epic is so much more exhilarating and fun than arduous and difficult.
+
+##### 2018-08-03 15:28 - stars and sex
+
+while taking a shower I began to feel some ideas pushing me in the direction of sexual interaction (it could just be the added focus on sex that has been a result of the subject appearing so many times in my comments on the abraham workshop)
+
+I really would like to discourage the idea of sex for me right now. I don't mind that you guys are doing it. I think it's really great, but I believe that sex for me right now would cause immense dissatisfaction. it is, energetically a lot like watching stars. in fact, I make the conjecture that it is the same energy as sex, but from the opposite direction.
+
+during sex there are heightened levels of arousal, and this can bring about heightened levels of consciousness. you maintain your arousal and not let it get too big with focus. stars are exactly the opposite. they stimulate the brain (mental arousal) and bring you to heightened levels of consciousness also. you maintain your mental arousal also with focus, and the more you are able to keep your mind from spinning off, the more pleasure you will feel. there is a bit of a culmination (like an orgasm) that can happen as you are transported off into visionary sequence and feelings of ecstasy and enlightenment. in sex the energy moves in the opposite direction, when arousal becomes more than you can handle you orgasm. during the orgasm, and depending on its strength, you will experience a flood of consciousness enter your brain. that's what feels so good about the orgasm: it's the expansion of your mind that's taking place.
+
+so, when I speak about the stars I am referring to how they *used to be*. I do not have this same experience now. what I am getting at is, I would like to gain control over this energy and not have it be the current false reality that it currently is while I'm watching stars. to put it simply, if sex is like staring (watching stars), then sex will be a very unsatisfying experience.
+
+let's say that they don't have the code in place yet to make my sex experience like my star experience -- and then all of a sudden during sex I burst into visionary experience and heightened self-awareness and ecstasy. maybe they shock me (us). they'll surely come to the conclusion that they cannot possibly be having me go into visionary experience during sex (just like while watching stars), so they'll try and find a way to ensure that energy does not flow anymore, so that I do not have a visual experiences during sex (exactly like watching stars).
+
+I think it's prudent for me to wait until this is sorted before engaging in energetic activities.
