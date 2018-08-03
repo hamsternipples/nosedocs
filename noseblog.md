@@ -273,3 +273,17 @@ so, does that mean that I should just ignore the obvious and try to be as cooper
 if you take the bso virtual reality idea and you mix it with the clones idea and also the bso is the new religious system idea, you could make a joke about the holy trinity: bso (the father), my clones (the son), and infinite intelligence (the holy spirit). BAM! I'll call it bsanity (bee-ess-sanity)
 
 jajajaja
+
+##### 2018-08-03 14:17 - driving fast
+
+I've been thinking a bit about the visual that abraham gave in the seattle @[abe](2018-06-16-seattle) workshop, where they talked about driving a "mechanical genius", not on straight roads as fast as you can go -- but on curvy mountain roads, with obstacles and lots of scenery, for the exhilaration of *feeling* the car manoeuvre itself and navigate the tight turns and stuff.
+
+when I was younger, my friend brought me with him to lake havasu and I got to drive a jet-ski. it's one of the few things I've ever driven in my life, so it's memorable. the very first thing I tried was to see how fast I could get it to go. it could go 55 mph. I remember noticing how bland it was to drive that fast (for a jet-ski anyway) out in the middle of the lake. there's a whole lot of nothing going on. the water is flat, and there aren't any nearby obstacles to use as a frame of reference to notice how fast I was going. it was pretty lame actually, but I wanted to try to see how fast I could get it to go.
+
+I just remembered something: when I got back to the shore, they asked me, "kenneth it looked like you were going pretty fast out there" -- and I remember specifically lying and telling them that 45, maybe max 50 cause I didn't want to reveal that I wanted to floor it for a little bit and see how fast I could go... you know cause that would have been like dangerous or something. before I returned back though, I thought it prudent to go a do a bunch of non-linear driving like figure 8's and tight curves and stuff, to kind of throw them off my speed demon trail a bit, so I did that for like 10-20 minutes more, and was kind of thought it was weird that more speed doesn't mean more exhilaration.
+
+*that was before I had the brain haemorrhage.. so, I had dangerous and deceptive tendencies.. I guess the whole not being able to run and having to relearn how to walk really mellowed me out.. lol*
+
+so, I was thinking about the how much more fun it is to have all kinds of obstacles and craziness going on around you while driving (if you can navigate it easily). it really adds to the sense of the magnitude of the journey with it like that. it's almost as if the more moving parts and the more chaos, the more epic the journey feels.
+
+when I contrast an epic journey with a difficult journey, both have a sense of overcoming difficulty and achievement of the goal, but epic is so much more exhilarating and fun than arduous and difficult.
