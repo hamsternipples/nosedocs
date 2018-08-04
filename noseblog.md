@@ -301,3 +301,9 @@ so, when I speak about the stars I am referring to how they *used to be*. I do n
 let's say that they don't have the code in place yet to make my sex experience like my star experience -- and then all of a sudden during sex I burst into visionary experience and heightened self-awareness and ecstasy. maybe they shock me (us). they'll surely come to the conclusion that they cannot possibly be having me go into visionary experience during sex (just like while watching stars), so they'll try and find a way to ensure that energy does not flow anymore, so that I do not have a visual experiences during sex (exactly like watching stars).
 
 I think it's prudent for me to wait until this is sorted before engaging in energetic activities.
+
+##### 2018-08-03 15:58 - stars, sex and government intervention
+
+I had a strange thought just now, wondering if in some timespan the government will reverse its opinion on watching stars being dangerous. we now think it's absolute silliness to think that the government (or religion) can dictate to us who can have sex with whom, and what is taboo and what is not, etc. so, I can imagine a scenario in some amount of time where they totally reverse their position on staring, and say, "oh we were totally wrong about staring. it is beneficial for you and we've got this new technology that will allow you to transport your consciousness to other times and places of the universe with it." lol
+
+you may have to wonder what they have to gain by suddenly reversing their position so drastically on sex, to follow that the very same thing may occur sooner than you think with the stars :D
