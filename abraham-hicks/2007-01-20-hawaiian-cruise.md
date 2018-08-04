@@ -53,3 +53,5 @@ although it seems that there has been some form of thought around the idea that 
 "if you have a physical condition, and you can simply acknowledge how that physical condition if affecting your experience. the first things that occur to you, help you to identify it"
 
 #### 13-03 world leaders
+
+(incomplete)
