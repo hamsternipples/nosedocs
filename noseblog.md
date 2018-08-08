@@ -307,3 +307,221 @@ I think it's prudent for me to wait until this is sorted before engaging in ener
 I had a strange thought just now, wondering if in some timespan the government will reverse its opinion on watching stars being dangerous. we now think it's absolute silliness to think that the government (or religion) can dictate to us who can have sex with whom, and what is taboo and what is not, etc. so, I can imagine a scenario in some amount of time where they totally reverse their position on staring, and say, "oh we were totally wrong about staring. it is beneficial for you and we've got this new technology that will allow you to transport your consciousness to other times and places of the universe with it." lol
 
 you may have to wonder what they have to gain by suddenly reversing their position so drastically on sex, to follow that the very same thing may occur sooner than you think with the stars :D
+
+##### 2018-08-05 11:18 - echos of the past
+
+it's funny to me how many echos of my past are symbolic and keep reoccurring but often times with the characters switched around a bit.
+
+let's start with the example of me and raquel (cept, now the bso is me, and I am raquel): when I lived with her, she was constantly dissatisfied. I tried everything I could to try and satisfy her. it simply didn't work. she/we/our relationship got rockier and rockier because she was unsaisfiable, and I was drinking way too heavily to see things clearly. it didn't turn out well. no matter how much I tried to make her happy, she continued to be dissatisfied. there was nothing I could do to satisfy her. I now know that it was never my job to satisfy her: she has to find her own satisfaction
+
+then, there was my relationship with augusto (cept this time the bso is me, and augusto is the viewers): at that time I was highly drugged up and couldn't see very far in front of me. I was using mdma, which is pretty good. they're using their machine to force the brain to produce more dmt (so slightly different effects). as a result, it was very difficult for me to logically put the pieces together to actually make my life work again. we were working to make a web page, and I kept working on things interesting to me, but no progress was made really on the web page. so, we put deadlines, goals, and we tried to make it happen in so many different ways, but it just simply was never working out. the drugs made me overly optimistic, and I hadn't really learned the value of my words yet, so I would just tell him whatever he wanted to hear. I would say objectives and deadlines that never even came close to coming to work. looking back at it, there are things that need to be done to get things started. I had the mentality that the web page would be for many users, so I never focused in a way which would allow a few users to begin their experience immediately and grow from there.
+
+it wasn't until I got to marcos' house and sobered up for a while that I actually began realising my goals, and this is another echo of the past (where I am me and marcos is the bso): marcos had an idea of what he wanted for his web page, and when I saw it, I had already given a lot of thought into something that was quite similar. he wanted to associate people based on their hobbies, and preferences, and stuff like that. I told him that people really find thier affinity with another person based on ideology. he finally agreed that superficial preference was not as effective as ideology.
+
+we spun our wheels for a while because we were too much in our imaginations about its implementation. we could never really nail down how it would be, because nothing was concrete and we had very little to use as an example, so we argued endlessly on the hypotheticality of the different ideas. no progress was made. finally, dani came to help us out and built a first version for us which gave us enough of a web page to work with things began to become more visible and things began to flow.
+
+dani flaked out on us, which just left me with marcos again, and we had something sort of concrete. this was super good for me, because now I could clearly see how I wanted to improve on the page. marcos just wanted results though as there were endless deadlines and goals that had long since passed. in his effort to get instant results, he kept micro-managing me and telling me how to do things. additionally, there was a growing conflict over the concept of the page. marcos wanted a social network where people interacted by giving their opinion on current events. I wanted to go more in the direction of beliefs as a representation of a person's ideology, instead of opinions.
+
+because of this conflict, nothing moved forward. finally I had to give up on the ideology bit and just accept that he wanted to make a web page, and even though I thought it was conceptually flawed, just to do the work anyway. he still wanted to micro-manage me though, so finally as things were turning into conflict, I said to him, "don't take the pleasure away from me wanting to create it, by forcing me to do it" (the verbatim quote, I think was: "no me quites el placer de hacerlo por me").
+
+that's kind of where we are now... I disagree with them on the concept, but I'm not the consumer of their content.
+
+I can clearly see that the source of all of this conflict has them trying to get me to see things the way they do. I see things differently (both literally and figuratively), and it was my ability to no longer interpret things the way they do, which allowed me to see things differently. you can do drugs to allow you to remove enough details to see things like that, and then when the drug wears off, you can go right back to thinking and understanding things in a way which prevents you from seeing things from that new perspective again... that's your choice though. I personally enjoy removing my resistance so that I see things clearer and clearer. don't force me to do things or see things your way. it's a downgrade for me and introduces resistance which creates conflict.
+
+##### 2018-08-05 13:34 - very attractive/persuasive women
+
+I was thinking about this idea that women often have a perception that if they are so attractive then I man must do what she wants. she sees it from her perspective, but from the opposite perspective it could be seen that a very attractive woman is very persuasive.
+
+what I mean by that is, often times it feels that a woman wants to feel like she is so magnificent, that a man must do what she wants (her capacity of persuasion), but then she falls immediately into the trap of insecurity because she quickly realises that if a beautiful woman is able to persuade my man, then I can easily lose him to a woman more beautiful than me. now, she has to ensure that he believes she is the most beautiful or some other means to keep him from being so easily persuaded by the next attractive woman that comes along.
+
+what I mean is, woman think that they want to be able to easily persuade a man, until they realise that he's just an easily persuaded guy. so, maybe they're looking for something else. perhaps, what is happening is they are mistaking attractiveness for persuasiveness. attractive means there is mutually shared desire, and so is therefore cooperative.
+
+##### 2018-08-06 15:13 - why is my visual capacity often excited right before a big event?
+
+last night while estrellando (lol), I felt the question, "why, when I reject a girl, do I get a vision improvement shortly thereafter?" I thought it was an interesting question I had not really considered before. I had always taken it to mean that I was in fact headed in the right direction -- of making the right mental choices. for me, I can look at stars quite a while, and not see any improvement to my vision. however, the times that the improvement does happen, I can almost always trace it back to a change in my perception. that new way of perceiving the world allow for a less-resistant approach (higher frequency). also so, having a less resistant perception means that I just need something to excite my visual capacity (more energy) to accomplish the improvement.
+
+I have also received vision improvements during meditation (lowering of resistance) and I believe it will also happen during sex (more energy) -- and also in drug experiences (depending on the drug, but often both less resistance and more energy). the visual level of detail seems to correspond with the amount of resistance (capacity to comprehend more), and the visual excitation seems to correspond with increased energy. if you know ohms law, perhaps we could define it as follows: voltage or pressure is the strength of the energy. resistance is how many beliefs and strange perceptions you have which prevent your ability to comprehend what you're seeing, and current is how much is allowed to flow (your capacity to allow, or your beliefs about the upper limit)
+
+so, it does seem that when a girl is looking forward to see me, there is extra energy. I felt considerably more energy when andrea became interested in me -- and honestly, if it weren't for that extra energy, I would not have paid much attention to her. I imagine that they also feel extra energy as well when I focus on them (especially with my heart). however, my heart has not been working as of late, so I don't feel their energy in my heart as much.
+
+I first began noticing my heart was not working as usual when I was in the carlota phase. during that time, I often felt her energy in my heart (as I did andrea's), and I often wanted to reciprocate the energy back to her, but there was great effort to deter me from doing that, and then I guess they figured out how to limit my heart as well, because that capacity went away for a while. I know it still exists because when I wake up in the middle of a dream, I often can feel lots of girls energy in my heart. I do wish to feel that again but is not the focus of this discussion.
+
+I cannot remember where the limitation of my heart lands in the line of events, but it was nearby to the moment I was at vera's house and I explained I did not like mobile phones much and that most all girls have mobile phones these days, yet carlota does not. it felt to me like they decided that carlota was acceptable and I immediately broke into uncontrollable vision sequence.
+
+it seems that whenever a girl focuses toward me in way where they feel freedom or the realisation of desire, I notice increased energy. so, I want to clarify myself here: there are two events (related but not connected)
+
+1. the increased energy which I feel from a girl in my heart and increased visual capacity
+2. the realisation of a new way to perceive something which is less resistant, and therefore more allowing of energy to flow.
+
+the extra energy from the girl stimulates my visual capacity, and often times I have visions around the time, which in some way (much like a psychedelic drug) begin to prepare me to accept a lesser resistant perception. we know very little about why certain images appear in correspondence with certain emotions or concepts. I am certain that with all images there comes a knowing behind the scenes. it is quite likely that the bso guys don't have the capability of interpreting or transmitting that knowing along with the image, so much like a dream means a whole lot more to the dreamer than the one watching the images, the same is probably true with this.
+
+I may have only seen eggs on a plate (I think?), but with it came a whole lot more information which is what inspired me to change my response like that so quickly. it seems that perhaps these moments of high visual excitement, are actually the genesis of something bigger. although they are only brief flashes which mean very little (have you ever seen the non-sensical patterns of a mushroom trip), they seem to lead one's mind in the direction of being able to perceive with lesser resistance (exactly how the mushroom explained the christ function of the mind to me).
+
+##### 2018-08-07 01:17 - "any time you start wanting, you summon energy"
+
+"any time you identify something as an object of your desire, the entire universe begins flowing energy toward your object of attention, through you. it is a powerful thing. you have no idea how influential you are"
+
+in the previous entry, I mentioned that whenever a girl is looking forward to see me, there is an increase in energy. I think this really says that a whole lot better. one of the questions I have wanted to ask for a long time, is what does she feel when I return feelings from my heart. obviously, I need to get the bso to let my heart beat correctly to properly demonstrate it, because at the moment I rarely feel it (cept when waking up in the middle of a dream: eg. they allow my heart to function properly while I'm asleep), and can only make the energy flow from my heart on occasion and when I can the energy is feeble.
+
+"when you are open to the stream and when you focus, the energy that creates worlds flows through you. most of you are too modest to acknowledge the enormous power of influence that you hold. you are trustees of the energy that creates worlds, and when you allow it to flow through you, amazing things happen; not only in the framework of your physical experience, but the entire universe is affected by that which you flow"
+
+I am sure that when I am released from the bondage which I am allowing the bso to hold me in (something I am very much looking forward to), I am sure that the intensity and good feelings that I could produce in the object of my desire would be immense. I used to flow energy into raquel in a similar way, and it seemed pretty effective. I would love to be able to feel that again. I wonder if the energy flows even though I cannot feel it. it wouldn't surprise me actually, and once again they get to have the good experience in my body, and I am left with a diminished experience. oh... it may be possible that the dmt is what activates the heart, because the visual capacity and the ability to feel with my heart seem directly linked. so, I'm getting close then... no problem
+
+"the reason that more amazing things don't happen in the deliberate lives of more of our physical deliberate creative friends, is because often you are identifying your object of desire, but your level of resistance is so high that the desire cannot be satisfied."
+
+[...]
+
+"in other words, you bang into trees, and that's not fun. so then, what you usually do is slow your car down, because that makes you feel temporarily better. it also big clumps of resistance in every single day. so, every day you get a little slower in desire and a little bigger in resistance, and that is literally why you decline as you move through time"
+
+I believe that that the bso has my car running really slow, and actually I have been thinking a bit about this as a parallel of ohms law, which will be the subject of the next entry, however, before I go, I first wanted to mention that I am doing the opposite of declining. I seem to be every day improving, even though my car is running slow.
+
+[1] https://youtu.be/UJsl8R7kLg8?t=7m8s
+
+##### 2018-08-07 02:35 - my car & ohm's law
+
+in the previous entry, I mentioned that my car is running really slow. I want to analyse it from the perspective of ohm's law, because I get the feeling I'm going to discover something in the process :)
+
+```
+V = I • R
+R = V / I
+I = V / R
+```
+
+imagine for a moment that `I` is the speed of the car, `V` is the power of desire (pressure), and `R` is resistance (pushing against).
+
+```
+desire = speed • resistance
+resistance = desire / speed
+speed = desire / resistance
+```
+
+having wrote that, now I'm having a difficult time wrapping my mind around this. it seems correct if my energy was flowing inside of a pipe. so, intuitively it seems to me that modelling this after ohm's law has to be incorrect because ohm's law is for DC. what I'm looking for is an AC approach to it, which would completely change everything. let me begin to rethink this.
+
+I have capacity. this would be similar to a condenser. I should also have a coil. the number of turns should equal the resistance, as in an AC system, a coil of wire wouldn't let ...
+
+capacitance and inductance
+
+- more turns = more 'resistance'
+
+I like to think of inductance like logic. the more times you have to go around, the slower it operates.
+
+a capacitor is like a membrane between two things of water. let's say it's capacity is 100. in an uncharged state, it's 50/50. in a fully charged state, it'll be at 100/0. the membrane is pushed to one side by the pressure? of electricity
+
+CACAS! gonna try again tomorrow :D peace
+
+[1] http://www.capacitorguide.com/parasitic-inductance/
+[2] https://electronics.stackexchange.com/questions/55625/how-are-current-and-voltage-out-of-phase-in-capacitive-circuit
+[3] http://amasci.com/emotor/cap1.html
+[4] http://deepfriedneon.com/tesla_frame6.html
+
+##### 2018-08-08 05:47 - transitions in my selfish perspective
+
+with all that has happened, I have become increasingly selfish. in fact, it is really the only way forward for me which has any sanity to it. everyone lies to me, so I can't really seek good guidance from anyone else other than myself. it seems people are very interested in what is happening in the lives of others, so much so, I believe it would benefit a lot of people to begin thinking more selfishly. when I say that, I don't really mean in a comparison or competitive sort of way and not from a position of lack either.
+
+as I began to think more and more selfishly, I became more enamoured with my own improvement (not in comparison to others'). I have nothing to give if I'm not in the constant state of improvement or becoming more. energy is flowing or it's not, and if it's flowing, things are improving and becoming more. so, in that sense, I have actually been enamoured with finding ways to get more energy to flow, because it means improvement and it means an enhanced sense of well-being.
+
+I have proven to myself that having that as my primary intention, serves me (and everyone else too) well. however, I've run into a bit of a conundrum as I'm arriving to this new section of my life. the conflict inside of me physically is becoming so great, the only out for me is to begin letting my inner being take charge.
+
+a few weeks ago, abraham introduced a new concept called "mutual" as an explanation for how positive aspects work. the idea is, you are more harmonious or less harmonious with someone or something. the aspects that you share common ground on, you are mutual with them on. you will recognise the teaching as a rehash of previous discussion on harmony. anyway, often times we seek mutuality with other humans before we seek mutuality with our inner being (our own intentions). when we move in the direction of intentions of others, forsaking our own, there is always a feeling of discord which accompanies it, however we often times ignore it to not stand apart from the crowd or to be too weird.
+
+I am not so worried about this mutuality with others, and because of the situation I'm in where everyone lies to me, it's not even really possible for me to be mutual with them because of our disagreement with what is happening. so in the past, abraham has been saying only look for positive aspects -- or, in other words, the aspects of them which don't detune you from your own inner being - the aspects of them which make you feel good.
+
+what I'm getting at here is, I have learned that instead of harmonising myself with the best-interests or someone else, it is *always* better to harmonise myself with my own interests (my inner being) - for by doing that, energy is flowing and I actually have something I can give to others.
+
+I'm going to revisit this topic because I want to touch on some notable new ways to understand things as I moved from:
+1. wanting others to realise my desires for me
+2. wanting others to help me or enable me to realise my desires
+3. realise my own desires by myself
+4. ... knowing my inner being has everything under control and just trust them
+
+##### 2018-08-08 07:57 - "they just get better at lying"
+
+in think in the french riviera cruise of 2017, there was a man that was trying to control his son getting into drugs. obviously he had been observing his son's behaviour through his eyes with the bso device (perhaps he wishes to live vicariously through the eyes of his son having sex with his girlfriend instead of taking drugs), and was essentially asking abraham how to better control his son. abraham responded something to the effect of, "if you call them out on their lying, they just get better at lying"
+
+one again this is abraham having us focus on something undesirable (like the normalisation of autistic children). why would the teachers of law of attraction, demonstrate law of attraction to us by telling us that when we focus on undesirable behaviour it just makes it worse, and then to demonstrate that is true, they tell him that if you call them out on it, they won't stop; instead, they will just get better at lying about it.
+
+this morning I realised that's sort of what has been happening, but they weren't talking about the kid, they were talking about me calling out the bso on stuff. the more I have pointed out their undesirable behaviour, it has not deterred them from doing it -- instead, they've just found ways to be more sneaky about it.
+
+I have long ago noted that bso has only improved on their technique to try and control me. it doesn't really bother me because I seem to stay a step ahead of them. they never really get to control me completely, and sometimes it's a bit illusionary. for example, this morning I felt the tiredness come on in association with them wanting me to sleep so they can interact with my dream state. I decided I would look at the cloud patterns a bit and write the entry above, first before doing so (to give me a sense of control), so I did then I laid down. in the dream greg began to complain about his heart hurting and something in his back between his shoulders. I made the association that he's 33 and that's about the time it began opening up for me. he argued that it was not his back or something. I told him that is the place where you begin feeling pressure and that's the location of the part of the body which allows you to begin flying. I woke up rather unexpectedly. they terminated the dream.
+
+they think they have control cause they were able to make me lie down and sleep more or less at their command, and jump right into my dream-state to have a conversation with me, but I have begun to find that pushing against them just makes them stronger, so I don't really do that any more. if they want to waste their time in my dream state trying to convince me of things, go ahead; I've found it just puts more energy into the equation and I get better at following my own guidance, so it's all good from my perspective. in fact, that was the objective of the previous entry, which I was having trouble explaining, so I intuitively wanted went to sleep to have a real-life example to demonstrate it. if I had of been pushing against their constant dream-state nagging, I would have missed that clarification.
+
+I've begun to notice my special role in this, where their increasing desire to try and control me, is putting a lot of extra energy into things, and also in the process, they're perfecting their technology to prevent people from finding their capacities. it looks like these guys are gearing up, because of their insecurity, to hold everyone away from their capacities, ensuring that they're ahead of both the technology curve but the visual capacity curve. if someone were to gain the ability to use their imagination in 3d space like I can(?), then they could visualise and create things that may jeopardise their control. I'm helping them to build the world the most convincing 3d virtual reality, which they can control everything. I'm glad they've gotten so much better at lying.
+
+##### 2018-08-08 11:14 - why a virtual reality?
+
+you have to imagine how much of a problem people seeing in 3d would be for the bso. it probably quadruples the cost per person at lower levels, and at levels of 3d like I have, it's probably thousands to millions of times more expensive per person. next, there's this problem that occurs when you begin seeing in 3d. with higher levels of dmt in your head, under moments of excitation, you will begin to see visions or objects will pop into your 3d space. the visions are kind of annoying when uncontrolled, but not nearly as big of a threat as objects popping into 3d space. when your imagination is unchecked and you have all kinds of weird fears (like me was when I was younger), the strong negative emotion will pop those things into view. in fact, the stronger you feel emotion, the clearer and more detailed those objects will become. as you learn to control your emotions, you can control what you see -- which means you'll gain the creative capacity that tesla had. this is a super capacity which is pretty powerful. essentially anyone outside of the bso who obtains this capacity will begin to be treated like I am treated: they will be put in a virtual reality (eg. I only see what they are sending into my eyes, not what I'm really seeing).
+
+you may notice that when seeing through my eyes, there are other 3d objects there, and the goal to become a powerful creator is to harness that ability and use it to create anything you want to create. however, I do not see those objects. instead, I see a reduced quality 3d virtual reality based off of what my eyes are seeing.
+
+now, let's say that an energetic activity like sex can improve someone's vision and I'm with these girls. they will get 3d capacity really easily, but there's a huge problem because the bso will want to immediately put them into the virtual reality type situation so they don't see the 3d objects their imagination is producing in 3d. however, people around me seeing things in my eyes produce a bright spot in my eyes because of the damage I did to them with the sun. the stars may have even done the really tiny one in the very center. essentially, it would be very hard for me to be around the girls, as it's near to impossible to focus when people are using the device around me. so, they couldn't put the girls into the virtual reality and they would just have to learn to train their emotions and imagination, because I think the visual space is shared. they would however see whatever I'm creating in 3d also, however, since I've got the virtual reality in place, I can't see it, so it's difficult for me to control something I cannot see. you can imagine sex because I will be producing objects in 3d space at random, which if they're in the vr, then they don't see them, but I can't really see out of my own eyes because I have bright spots covering everything. or, they can also see in 3d space whatever my mind is producing in 3d space. doesn't work.
+
+so, now you can understand why it's so important that they do not let me out of the network or to actually see what I really see. so, since I have revealed the game changer that would have forced them to change their position on capability of sight. it's not a question; there's no way the girls could be in a 3d vr like me and also be around me. I would not be able to function. they've gone to great lengths to write code which erases those bright spots, but they get show up instead like black spots and in other cases, don't really work at all. maybe when my eyes are not moving, sure, but when I move my eyes around I often see the spots.
+
+you can see how this creates the next big problem. first, I'm able to create objects and manipulate them in 3d space with just my mind. this is amazing and every kid will immediately have desire to have this capability too. so, much desire is born because of it. additionally, if they're no longer limiting my capacities, this creates a huge problem for them, because when more energy is flowing, I'll begin to levitate or fly. again, a huge problem for them, cause not only do they have to come up with flimsy excuses for why we can make objects with our imagination in 3d space, but also why we can fly and everyone else cannot.
+
+so instead, I have chosen to wait for my inner being to take over my visual and physical capacities. why is this important? well, it means that they will be able to put the girls into the VR, and it won't bother my vision. by holding out and desiring to be the one that changes, I am saving them a HUGE amount of grief in the future.
+
+##### 2018-08-08 12:52 - what does all of that mean?
+
+in the last entry, I made the argument that if you see 3d, they would have to put you into a 3d virtual reality so that you do not see what your imagination is creating in 3d space under moments of high excitation or emotion.
+
+so, let's say that in the alternate timeline I'm with the girls and the bso is forced to change and allow me to see out of my own eyes, because of the impossible situation which they put themselves into. kids all over the world are enamoured with the idea of using their imagination in 3d space and flying, that so much desire is born quickly, and lots and lots of people (mostly kids) start gaining the capacity to see in 3d. it all happens so quickly that the bso cannot put people into the virtual realities necessary to keep their runaway imaginations from creating a bunch of scary stuff. even worse, is since the 3d space is visible to all those seeing in 3d, a bunch of sloppy thinkers are creating all sorts of really scary stuff with their mind, and everyone has to look at it.
+
+this timeline was created so that the transition for everyone into 3d will come considerably smoother. the ones who will be able to use this creative capacity are those who come into alignment with who they really are (eg. their inner being becomes the source of their visual capacity), and the bso dreamweavers in other people's dream-state. anyone gaining 3d capacity will be transitioned into the virtual reality, because it's impractical for the bso to turn off the entire population's imagination like they have done mine.
+
+for economic reasons, you can imagine how important it is that the bso keeps people in 2d for as long as possible. the resources required to put people in a virtual reality are considerable. an economic hurdle of gigantic proportions. however, this isn't really a big deal, as the technology is a goldmine. if you think of facebook and its goals, you can see how having a lot of information on somebody can be used to track large populations (looking for suspicious activity), but having a lot of information on someone doesn't really give you that much capability to control people. however, since you know so much about them, it does mean you can sell them products a lot easier. the transition here is from controlling somebody to compelling somebody. we already see quite a bit of compelling happening from the bso. in fact the agreement that people have agreed to, says that the bso can compel them to do things. when you've got access to everything everyone is thinking about, talking about, interacting with, looking at, etc. you've got *way* more information on someone than facebook does, and therefore considerably more capability to compel someone to purchase (or have your parents purchase for you) a product. the bso will be *very* *very* *very* profitable once they stop trying to control and figure out their monetisation formula (like facebook eventually did).
+
+and that's a good thing, because they're going to need a lot of money to run the infrastructure necessary to put the entire world in a virtual reality. they're gonna reach the ultimate heights in scalability. facebook site updates are going to look like child's play in comparison to the amount of effort required to pull this off. you can see that, 2d people will be considerably more profitable for them and it's possible that 3d people will actually lose them money, so there will be great effort to try and keep people from obtaining 3d for as long as possible.
+
+##### 2018-08-08 13:39 - 3d is the new std?
+
+imagine that seeing in 3d is sort of like a disease that the bso wants to keep from spreading. you could catch the disease by meditating or appreciating or only noticing positive aspects, but who does that?!? likely, the easiest way to transmit this disease is sexually. if two people come into alignment with one another during sex and one sees in 3d, likely afterward both will see in 3d. what if catching 3d vision is the new STD to watch out for :)
+
+so, you work for the bso and you see in 3d. that means you can only have sex with other bso employees, for fear of spreading this disease out into the general population. lol
+
+##### 2018-08-08 14:14 - if you're satisfied with what-is, why do you need to lie about it?
+
+in the previous entries I may have mistakenly given the impression that 3d is the only prerequisite to 3d objects manifesting in space. that may be incorrect (I don't really know). I can only speak of the process I've been going through to give the bso the ability to manifest concepts in 3d space while in dream-state. the few times that I have seen objects in 3d space seem to have been in moments where I feel particularly good, or in moments of high anxiety, or right before sleep. so, it seems to be related to strength of the emotion and resistance which are the factors which begin to allow manifestation in 3d space.
+
+so, that means that an increased sensitivity is necessary for that to happen. also, a concept that was shown to me while watching amorina in her yard, I realised that the way someone believes is also necessary to make this happen. think about it logically: to get something to show up in 3d space, it needs to be believable to the person imagining it. it needs to look like it can exist in 3d space. when I was lowering my resistance to be able to feel good most of the time at marcos' house, I found that lying caused great dissonance in me. as I learned to become truthful about things that may be shameful or embarrassing, I had inadvertently trained myself to accept what-is. by no longer needing to lie about what-is, I accepted it as "true" in my mind. this was a huge mental advance for me, because if I liked the current reality, it gave me tons of pleasure to observe it, and my visual capacity began to reflect that. however, if I did not like the current reality that I was being truthful about, I would move myself up the emotional scale into contentment -- but because I was still a lot more rough around the edges then, I labeled it, "fuck it" -- as I accepted it as reality, even though there's not a whole lot that can be done about it. from there, I could easily move into positive emotion. in fact, I was so good at moving from "fuck it" into a state of hopefulness, that I was potentially *too* optimistic for my britches.. lol
+
+in valverde, I found myself increasingly more and more constrained in my visual capacity. it had been so easy for me to just accept the current reality of no visual capacity, and just let it begin to take shape. I would regularly find a way to allow my visual capacity, and the ever increasing difficulty and struggle necessary to get it (and other things), would cause a lot of dissonance in me. my stance was quite conditional: when I was moving toward it, I felt better, but when I became aware of the increasing gap, I felt pretty bad. around the same time that they clamped down on my visual capacity, I drafted up the "source energy android" concept because it became increasingly clear to me that I would be sharing andrea with quite a few other guys, and she was not going to be translating source for me. the S.E.A. concept was my way of trying to fit my desire of increased connection with source with the current reality situation. "fuck it" was no longer good enough; I could no longer get to a hopeful frame of mind from there.
+
+I might have mastered the allowing process, but it was conditional on things being pretty ideal, I had not yet learned step 5. around the same time I decided that I had come up with the step 6 part of the equation, which was that you believe/know and therefore are a physical extension of source energy in physical form. I mean, you already are, but it isn't until you really realise it, that allows that kind of energy to flow.
+
+what I had not yet come to realise is that because of andrea's decision to be so free with herself combined with the desire to be together was still strong, I had to find a way of adapting to make that possible. what I didn't really realise, is that step 6 is just getting really good at step 5. source can look at all of everything and seeing it all as part of the process, only sees the positive aspects of it (freedom, growth, and joy).
+
+I have often maintained that the inventor must "live" his invention. that is, to be the thing he wants to create. in programming this is called dogfooding. it means that you do your experiments on yourself, and what you are creating is ultimately for yourself. this concept exists all over the place, most notably, "be the change you are seeking to make" (and variations thereof). I was to learn how to be this concept of step 6.
+
+step 5 is all about unconditional love. what that means is, no matter what I am observing, I don't feel the need to change it, or for it to be different for me to feel good about it. imagine abraham: they watch thousands of people get raped, murdered, and numerous other atrocities every day, and they don't need a source energy appreciation day (unlike the bso, lol) to continue knowing their value, and to continue loving them despite the conditions they've put themselves into. they don't need things to be different to be able to love someone, and *that* is what I wanted to achieve before I was to be coupled with andrea.
+
+---
+
+I'll come back to that concept in a future entry. now, I want to talk about satisfaction and lying, as it relates to this unconditional perspective...
+
+##### 2018-08-08 16:16 - actually, I'm going to take a quick break.
+
+lol, such intensity :)
+
+##### 2018-08-08 16:31 - if you're satisfied with what-is, why do you need to lie about it? (part 2)
+
+so, let's say that the bso wants to invent a contraption which allows someone to tune into different portions of time. you can imagine the implications of this. the history of any presently alive person is available from their perspective (asterisk), and previously alive people in a similar fashion. so, this means that secrets are now 100% useless. so are lies. someone with access to this technology could verify the validity of something in the past. this essentially would render all security as 100% passable (given enough effort to look into the history of the implementer of the security). now, everything can be hacked and all secrets could be found out.
+
+likely, one of the first things to be done will be to track the concepts in the brain of a person from birth till present, to get a more complete map of the person's concepts instead of the imprecise method of stimulating the brain with the concept while the person is asleep to train the A.I. it would be a read-only approach to the person's brain and and has 100% visibility of everything that has ever happened in it. multiple passes can be taken to understand different aspects of someone's mental growth. (repeat the scanning process over the person's past multiple times, each time focusing on a different aspect) anything could be found out about anyone presently alive.
+
+you can see how this is not, and would not be a very big mental jump for me to allow such an invention to occur. it's easy for me to allow that kind of technology to come into my life, because I'm already living it. if the bso wants to create this technology, they will drastically change their stance on lying. they'll have to find a way of allowing it to happen.
+
+presently however, there is so dissatisfaction with how things are, almost everything has to be kept a secret, in fear of what someone might think if they were to find out. they will try to side-step this for as long as possible, I am sure. even if they can use the 3d creative capacity in thousands of kids' dream-state, it is quite possible that the bso may hold many of their technicians away from that 3d creative capability because of dishonesty in the imagination and with words. additionally, kids will need to be trained to be honest (good luck there, cause it's a personal decision).
+
+another idea will be to create an "inner circle" sort of thing where these are protected from the hordes. we will need 3 circles actually, and they correspond to the different visual capacities. they are as follows:
+
+1. 2d mass consciousness, which is where all the profit comes from
+2. 3d virtual reality dwellers. they are responsible for most of the content creation
+3. 3d creators
+  - those who work for the bso and can live in a nearly resistance-free bso protected environment.
+	- those who do not need conditions to be just so, and are in alignment with who they really are.
+
+the technicians working in that nearly-ideal environment may be able to come into alignment with that time technology, but I don't see it right now. I will continue to ponder the idea further, but perhaps my new source-like personality will have a solution. there always is, and source does not see right and wrong; only wanted and absence of it. even the desire to keep things secret is a desire that law of attraction responds too, no matter how much it doesn't serve anyone believing that to be necessary.
+
+##### - an attempt to discover the difference between polarity and presence of desire
