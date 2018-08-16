@@ -572,4 +572,121 @@ imagine there is another tech that has strong desire to try and find a way to co
 
 a performer or a magician's joy comes from realising desire in physical form. the greatest hinderance to a magician comes from being a people pleaser. I used to be one, so I speak from experience. if someone has desire that you do something, a magician can easily feel that desire and can easily act on it, unless there is internal discord with that desire, which is indicated by some form of negative emotion, such as: boredom, split energy, confusion, or disjointed thoughts. in those cases it is best to hold out until it feels good, or let someone else act on that desire. the techs should be the same way about things, and the reason is obvious, a tech who drags his feet on a task is of no benefit to anyone, and the experience is detrimental to the tech's psyche, as he may begin to believe he is unproductive, when in reality there is just a mismatch of energy because of conflicting desire.
 
+##### 2018-08-14 16:20 - chris has a daughter?
+
+last night I was thinking about the email I sent to chris on his birthday, when it suddenly dawned on me that in the abraham peice where his stand-in asks the questions for him, I had noted that he mentioned he had a daughter (I'm gonna go back and listen to it again after this), and originally I just thought it was them adding in fake details to throw me off of the track. so then, when it hit me, "oh, like a young girl he's with, daughter" not like a real daughter, my immediate reaction was, "wow man, good for you! I'm happy for you." after that reaction I noticed a bit of a weird reaction, almost as if I should have had a different reaction than that. thing is, if that's true, I know chris and we've had many endless conversations about how retarded women are, and a young girl would probably be very highly desired by him, just because of all of the frustration we've expressed to each other. I am sure he had also come to similar conclusions I came to after raquel figuring that women are not really what I wanted to be about. when andrea changed all of those ideas for me, things began looking up for me as I figured that maybe a young girl could be different, as I could learn from her and I also had many fantasies about getting to finally speak with source energy in a meaningful way.
+
+the reaction also somewhat implied that I should have felt jealousy. I thought about it and came to the conclusion that I never really wanted a "daughter" in that way. I wanted to translate source energy into words like esther does, that I was sure of, but there's a huge problem when you are the questioner and also the allower of the answer. it's difficult, so I thought that maybe andrea could do that for me (and I would do it for her and others, because I also spoke spanish). anyway, it became obvious that would not be happening and a new thing opened up with carlota. she's very much more visual than andrea, and her influence helped me to see that I could essentially put myself into a dream-state sort of thing and allow the answer to come visually (and audibly). I thought this was a way better thing than just words, so now that is what I wanted.
+
+still though, I thought that she was necessary to obtaining my visual capacity, so I had this belief that I needed someone else to make something capable for me. as time continued on, I felt a stronger and stronger sense that I wanted to be in control of my life (freedom), and as a result, the carlota thing fell apart. I feel that because of the language barrier, I am not able to express myself clearly enough that I want my visual capacity. now I'm back in the states and I'm noticing that with english I can communicate much much better and I want people to understand me so that they can see how much I deserve my visual capacity. the lyia thing opens up, and I begin learning a lot more about communication. something happens though, and because of distance there is a lack of communication so they panic and try to get me to go with any girl now.. so they try out all sorts of different ones in my dream state, because there's no way they're going to get me back to spain easily, so they've got to find a replacement close by. trying out all sorts of different girls, and younger ones too, I guess they helped create a desire in me for more than one "daughter".
+
+but, they still didn't hear my desire to have my visual capacity. it has been frustrating to me to hear about how many facets my visual capacity has from my meditators and uplifters. it's also been frustrating to me to know that other people get to use their visual capacities and I don't. in fact, I don't even get to see what my own eyes see very well. so, when it comes to the visual capacity, I tend to have a more of a jealous reaction, wanting to be able to use my own. however, when it comes to the subject of "daughters", I don't really feel any resistance at all. I'm glad he's got that. I'm sure it was quite a dream come true for him.
+
+times have changed considerably since this whole thing started in 2016 (well, 2015). back then, if I were trying to get a young girl to be with me, everyone would have seen it and outed me as a pedophile. my interest was always to translate source energy, and the idea of a girl being there too, would only be that much better. so, when hearing about someone else, having a "daughter", it doesn't really bother me, because that was never my goal. being held away from my goal of trying to figure out how to translate source energy, has been the source of considerable dissatisfaction for me. however, you know what I realised? I realised that I should have just the same response to you guys having a visual capacity before me, as I do to others having "daughters".
+
+---
+
+there has been considerable thought around the idea that when I get with the girls, I'll have my visual capacity. it's quite possible; sexual energy is quite powerful. but, then I'm back to where I was with carlota. I can't go backward. I don't want someone to allow me to have my visual capacity (because then they control it, not me), and I don't want someone to give me my visual capacity either (because then they could take it away). I want to encounter it for myself.
+
+a long time ago, when I was coming back from valverde, I lived with vera. back then, the quantity of reactions I would receive was so many, and it was quite chaotic for me. back then, I did not believe it was going to be possible for things to work out in their present state, so I wanted my inner being to be take over the emotional aspect of my being, and then only the things that were interesting to me, or were relevant in some way I would feel -- and the rest wouldn't affect me. now whether that was really my inner being who allowed that to happen or it was the bso desensitising me, I don't know -- but I did find relief, and little by little the reactions became less and less notable. I began to notice that the reactions that were of value to me (often times moving me toward greater contrast) were noticeable to me, but the background noise was pretty much eliminated.
+
+this is kind of what I want to happen here. I want to see only the things that are of interest or value to me. I don't remember what initiated that change though, as it's too long ago now, but likely it involved me letting go of some resistance. we'll see how things develop, but I feel like I'm close, maybe.
+
+##### 2018-08-15 14:00 - gary's work
+
+the other day I mentioned to mom that the only reason why I would be doing gary's work would be to buy weed. I didn't really think much about the files, few times when I saw the spreadsheet and stuff, but I dismissed the idea based on a *fear* that I had where the weed would allow me to be tricked by the bso in some way. that's completely illogical because, if anything, the opposite is true. being under the influence of weed has helped me to discover the bso's tricks more often than anything. actually, I cannot think of a single time I was ever tricked by the bso on drugs. the opposite has been true where I have actually come to understand things better because of the different perspective and more allowing mode.
+
+so, where would that fear come from? why do I have that fear? it seems largely within the realm of possibilities that fear could have been planted in my mind during sleep. I have wondered why people are so afraid of talking about the bso, when the few times when things have gotten more in the open, progress has been made. it's almost as if the bso is conditioning people with unbased fears which are actually slowing things down and making things worse... lol
+
+so, the irony of the whole experience is, I told mom that since I'm not really wanting to smoke weed right now, I don't really want to do the job. she told me I should call him and tell him I'm going to flake on him, but I explained that I would just not pick up the phone.
+
+it's a direct copy of what the bso is doing. they took a job, wanting to do drugs with that job. then, because of some unbased fear, they are preventing themselves from doing the job. so now, like me, they're not answering their phone, hoping that somehow they'll still get to have their drug experience, and not have to explain why they've been ignoring the job for so long.
+
+lol
+
+there's no real good way for me to express that concept of non-movement. it's what abraham might call split energy. you want something, but. I used to experience it a lot when I would drink a lot. I just couldn't bring myself to do something I felt I had to do.
+
+##### 2018-08-15 14:20 - unbased fear?
+
+I often said in the past that fear is just desire expressed backwards.
+
+also, I was reminded of esther cutting down the trees example.
+
+##### 2018-08-15 17:22 - beliefs that challenge desire (and )
+
+in the @[abe](2017-06-24-portland#11) workshop, abraham says, «you have desires that challenge beliefs, and desires that challenge beliefs», which the first one seems obvious to me. for example, one I experienced recently, if I believe a girl is too young to want to have some sort of relationship, then that is a belief that challenges desire, but I never really had thought about it from the other perspective: the younger girl has a desire which challenges belief. they are essentially the same thing, but looked at from the opposite direction. very interesting.
+
+I suppose the same thing could be said for physicality that challenges ideas, and ideas that challenge physicality. very similar to desire's effect on belief!
+
+##### 2018-08-16 00:39 - a possible future?
+
+(disclaimer: perceived and received in a moment of extreme frustration and anger, so it may be somewhat inaccurate)
+
+in the current state of things, I am heart set on getting my visual capacity before anything happens... errr, I mean, getting into alignment with who I really am (and evidence of that will be my visual capacity), before anything happens. as abraham always says, "get into alignment, and THEN" ... so, I am 100% sure that is what I want. in the previous @[entry](2018-08-15 14:00) I spoke of smoking weed, and I realised it was an unbased fear that was blocking me from smoking weed, but deeper than that is a desire to achieve my visual capacity for myself, by myself, and not depend on any influence to get it, whether that's bso, drugs, or sex. I want to get it for myself despite the conditions. it sort of flows in there with the whole learning how to love unconditionally... it's learning how to line up with my desire and allow it to happen unconditionally, too. anyway..
+
+imagine that in all the previous timelines I managed to figure out how to just "breathe" and then, along with the girls, I find a way to allow my desires (regarding my visual capacity) to come to fruition. that is a bit conditional though, because they are relying on my influence, and I am relying on their influence for our alignment, this new timeline was formed. this is the timeline where I end up with more girls than the previous ones, and also each time the bso learns more about how to control people, most notably me (but also the girls).
+
+you can imagine the present day bso (bso-present) trying their hardest to try and figure out a way to control me into doing what they want me to do, but I won't go. the alternate timeline bso (bso-future) is laughing because they are watching themselves try and control me, but I am way better controlled by bso-future, who have an extra 20 years of technology and nearly unlimited knowledge of how my head works (because of their capability to track a brain since birth, through time).
+
+so, remember how the timelines worked, where the "backbone" should be 100% reactions, as to be able to control the outcome of the timeline by controlling the conditions? (when put like that, the irony is tremendous... I know, lol) anyway...
+
+so, I am the backbone to the timeline, as I am controlled by the conditions, so I don't get a chance to do what I want. I must continue to react to my conditions, until eventually I become reactionless toward my conditions. there are other main characters like pierre, vera, marcos, mom, augusto, etc. (for example) which are anyone closeby which can be themselves influenced to modify my environment (the ecosystem). notice that I am essentially completely out of control. I (the plant) have to just make the best of whatever conditions I am put in.
+
+so you have the landscape architects and you have the plants. the architects put the plants where they want them to be and in the conditions they want them to be in by also controlling the ecosystem.
+
+so, put the clues together and follow the pattern: the bso needs to be the biggest possible, and have the most knowledge possible of how to control the plants and the ecosystem, that they are capable of attempting the (in my opinion) impossible. they will choose the plants, and each person in the ecosystem will influence their alt-timeline counterpart (we'll call them "guides"), which controls the ecosystem.
+
+---
+
+so, essentially a timeline where there is a lot of momentum, like this one, there are non-linear outcomes after the creation of the machine which allows for tuning into consciousness in a different timelines:
+
+1. tune into the past and adjust the timeline so that the backbone goes through another "failure", adding more contrast, and therefore creating a bigger vortex. this part I don't understand well, but fwh mentioned it a bunch of times: all consciousness that would inhibit the new failure gets moved to the success timeline and they live out their life on the successful timeline. I think, all of those who do not impede the failure just merge into the new "failure" timeline. then, all of those who controlled themselves to help create the failure (the ecosystem), join into their "failure" timeline consciousness at some time. I assume that's what fhw meant when he said I have until 2038. I guess that's when our consciousnesses will merge (and also those of the ecosystem).
+
+2. make a new time loop. first you have to test timelines: like the streamers that shoot out before a lightning trying to find its path of least resistance, the ecosystem will try a bunch of things searching for the ideal way to tighten up the "backbone" so it's completely out of control. now, I think the goal is for the backbone to find a way of making the "timeless venture" machine. (lol) when this happens, that is duration of the time loop (in this case, it's 2038). so, what this means is you need is a bunch of guides that are capable of making continuing failures for the backbone, by influencing their alternate timeline selves. there will be a few, but I imagine what will happen is, the bso guys will want to try and write code to find ways of influencing those on the alternate timelines trying to find this optimal path by trying to figure out how to influence all the different moving parts (the plants and the ecosystem) to create the world they want. it's like a time-coders dollhouse.
+
+so then you have think about which path can be chosen. if the first path is chosen, then I should just start meditating like crazy and just roll with it. then, if we can figure it out before 2038, then we can go for even bigger contrast and more ridiculousness, watch it unfold from this one, and merge into that one, taking the time loop once more.. or, the second path can be taken, for which it is optimal to make the bso as big as possible, for me to find my own alignment, and let the bso discover the machine for themselves.
+
+I don't know which one appeals to me more, honestly. if I pick the first one, I have to do this slog all over again with slight variations (but it'll seem to me like the first time, so not really a big deal there), but if you think about it, eventually the second path *has* to be taken.
+
+perhaps I'm inventing complex and ingenious fairy tales to try and rationalise my discomfort...
+
+##### 2018-08-16 02:35 - found out why my left eye is darker
+
+it seems that the reason why I see two dots in my left eye when looking at a star is because one of the holes is where the bso looks out of, and the other one is the one I look out of. in the past, I always noted this one peculiar attribute that happened on occasions, like when I took ketamine, after watching stars in the beginning, and a few other incidences. I refer to it as cat-form, because my eyes seem to feel like they are cat eyes. most notably, my left eye is not dark and I have very clear vision. it has always bothered me that my left eye has darker vision than my right, and I figured out why tonight when I was able to push on my left eye so that it no longer separated into two images, but the shadows merged. as they merged, I noticed that the closer together they got, the more blackness I saw. I realised that I was "seeing" the image in my left eye that you guys see. it's probably some sort of heads-up display or something that they are overlaying on top of my vision.
+
+I think what they do, is they have my eye vibrating at some speed per second. when it is in the left position, they take a frame for you guys, and when it is in the right position, they put a frame for me. that frame that is put into my eye is what my eye is seeing and sending to their server.
+
+a long time ago, I sent raquel an email saying I had a dream about her and I understood that she wanted to communicate with me. she sent me back an email saying that she also had a dream about me and seemed particularly excited about the prospect of this dream. I felt her spirits drop when I sent her the email telling her that I saw nothing in the dream, just that she wanted to contact me. I thought it was really weird that I didn't have any visuals in the dream, but didn't think much about it cause my visuals were all screwed up anyway. that stayed with me though and I often wondered about it, because I knew from her reaction that she had had a sexy-time dream, and it felt like she expected it to have been mutual.
+
+I also have noticed recently that when I have woken up in the middle of a sexy-time dream sequence, I do not have any visuals. my screen is black. in fact, I have come to know the bso dreams as the ones I can kind of get a sense of what is happening, much like I can kind of feel what I see in my imagination (even though I don't see it), and the bso dreams are usually very dark virtually imperceptible, or no visuals at all. so, it appears that what is happening is they give me my dreams but they remove the light from my eyes so I cannot see them.
+
+I did also notice some time ago, I would see visions in my eyes but they were so dark I could not see them clearly. I also noticed that moving my eyes back and fourth really quickly, like in REM sleep, the image would brighten. I think the rapid eye movement is actually to make the dream image visible to the person sleeping.
+
+so, like my imagination they have all of the light turned off in my head so I cannot see the images in my eyes when I am asleep. I have noticed that they are doing the dream sequence in dark mode, and as soon as the image becomes visible to me, they abort the dream, because they know that I can now see it.
+
+it boils down to, it seems that they have my left eye in permanent visuals mode, but I cannot see it because I do not have any light (dmt) to brighten the image. if they were to stop deforming my eye x times per second, I would see constantly the black image in my left eye. instead I see it a fraction of a second which is why my left eye is darker.
+
+thanks bso..
+
+I just figure it's more energy. I am constantly aware of what I don't want, which means I have to constantly pivot into giving my attention toward what I do want. my success at this is becoming evident with my increases in perceptive capability.
+
+though, I do have to wonder.. if what they are doing is just putting some sort of heads up display, shouldn't they be able to just put that on the signal that they rebroadcast out to my viewers? if the image is the visual representation of what is happening inside me emotionally (which it is more likely to be), then I will definitely be needing access to this before anything moves forward.
+
+##### 2018-08-16 12:57 - an out of control bso?
+
+it occurred to me this morning that, perhaps the bso feels like they're making failure after failure... what if bso-future is influencing bso-present in that way? so, if things feel completely out of control and you can never get ahead of the curve, I understand completely. dunno. was just a thought I had.
+
+---
+
+that's kind of an interesting thought. what that would mean then, is the bso is the new plant and the world is its ecosystem -- meaning that the conditions (ecosystem) are forcing the bso to go through a long series of failures in order to force it to adapt into something magnificent. this means that bso-future is controlling their conditions, keeping things out of control for bso-present.
+
+what an interesting idea! that means that in this next timeline, (post 2038) the bso-future and future citizens of the world are all collaborating to create the environment we wish to live in. it also means that at the end of the 2038 timeline, we will all become a part of that process which iterates on the timelines, each successful time, the masochists are continually going back and improving on it, making every time a greater and greater awesomeness for the participants to experience in the process..
+
+it's sort of taking "the joy in in the journey" to the extreme, enjoying so much the creative process that you would want to do it again and again, each time optimising and improving it slightly to get something new, bigger, and more fun. it's making life sort of like something that you build. for me, like piece of software -- for others, maybe a nice house, where you are continually iterating on the creation continually improving it. I'm reminded of the story of esther and jerry's treehouse, where the thing seemed to be in construction much longer than it should have, because it was so much fun for everyone in the creation process.
+
+## potential topics
+
+##### - physicality that challenge ideas
+##### - my eyesight as a metaphor for the "uplifter"
+##### - generalisation of compelling through advertising & religion
 ##### - an attempt to discover the difference between polarity and presence of desire
