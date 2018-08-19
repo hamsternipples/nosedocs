@@ -684,6 +684,28 @@ what an interesting idea! that means that in this next timeline, (post 2038) the
 
 it's sort of taking "the joy in in the journey" to the extreme, enjoying so much the creative process that you would want to do it again and again, each time optimising and improving it slightly to get something new, bigger, and more fun. it's making life sort of like something that you build. for me, like piece of software -- for others, maybe a nice house, where you are continually iterating on the creation continually improving it. I'm reminded of the story of esther and jerry's treehouse, where the thing seemed to be in construction much longer than it should have, because it was so much fun for everyone in the creation process.
 
+##### 2018-08-16 21:18 - going back a year is an eye opening experience
+
+I'm listening to year old abraham episodes and it's really fun because it kind of transports me back in time a little bit. back then I was not yet clear enough to get all of the symbols in the questions that people were asking, so the hindsight is quite an eye opening experience.
+
+one of the things that strikes me the most is these people asking questions about my experience month after month and quite literally you could almost hear the same questions being asked now as were asked back then. it makes think that they are asking the question to understand my situation, but abraham is responding in a way which is the correct answer, but cannot be realised because of my extremely disconnected state.
+
+when every time I try to get into alignment with my inner being, or whatever happened in vallecas, the bso interprets it to be my attempt to access the part of me that came out in vallecas which they don't want, so they dissipate even more energy from me, leaving me each time further and further pinched off from my resources.
+
+---
+
+having this hindsight is kind of frustrating for me though too, because I'm just now beginning to appreciate this exercise in futility. it used to really bother me that I was so stagnated, but with all of the recent improvements to my vision, and even if they just restrict my vision more and more, know it is evidence of me lowering resistance further and further.
+
+every time I find a way of lowering my resistance, they dissipate more of my energy into the earth to offset the increase in energy, so I tend to stay in roughly the same spot most of the time. however, even with them dissipating more energy every time, I am still noticing the improvement, which means to me that despite their best efforts to keep me out of alignment with who I really am, I am still closing in on it. that realisation feels good to me too.
+
+that makes me wonder how good I really feel. I know when I watch stars, the state they put my body in is pretty agitating. I'm pretty excited to be able to go out and watch stars and no longer feel that agitation... or, to be able to have the same amount of energy coming through me when I watch stars now to be the level of energy I receive on a regular basis, meaning that amount of energy is normal, so therefore the subsequent dissipation of that energy is not agitating any more to me. or, said a different way, when that level of agitation is normal feeling to me, I am allowing normally the same amount of energy to pass through me, as I receive when watching stars now.
+
+---
+
+while listening, I just realised that I am a bit misleading to a lot of people when it comes to stars or any of my objectives. I make it sound like I'm putting a lot of effort into it, but it's all just a bunch of words I've picked up to allow me to blend in to the crowd a bit more. I say strong words, but then I have to go into feeling mode for anything to happen. feeling mode is a lot different than strong-words/action mode, which is where I do most of my performance.
+
+if you've ever watched stars, you'll know exactly what I'm talking about. there is no action you can make with the star. it's really quite far away, and you have zero effect on it. in order for there to be any change (in me), I have to get into the receptive mode with the star, and I feel my way there and gently relax into the focus. so, it sounds like I'm making my vision improve by doing lots of focusing action, but it's not. when I'm focusing and trying really hard, it makes no difference. to prove my point, there have times when I am already receptive and prepared to receive the star, and so with almost no effort, my vision improves.
+
 ## potential topics
 
 ##### - physicality that challenge ideas
