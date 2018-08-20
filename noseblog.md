@@ -706,6 +706,49 @@ while listening, I just realised that I am a bit misleading to a lot of people w
 
 if you've ever watched stars, you'll know exactly what I'm talking about. there is no action you can make with the star. it's really quite far away, and you have zero effect on it. in order for there to be any change (in me), I have to get into the receptive mode with the star, and I feel my way there and gently relax into the focus. so, it sounds like I'm making my vision improve by doing lots of focusing action, but it's not. when I'm focusing and trying really hard, it makes no difference. to prove my point, there have times when I am already receptive and prepared to receive the star, and so with almost no effort, my vision improves.
 
+##### 2018-08-19 04:32 - the satisfaction axis
+
+I've been pondering this thing about satisfaction for a bit now, because it seems to me to be a different axis than the traditional depression/fear -> love/exhilaration, where contentment is the origin, I have described the low end of this axis as "fuck it" and the upper end as satisfaction.
+
+well, I just figured out what the difference between those two axises are. both of their origins are in contentment or neutral state. the `depression/fear -> love/exhilaration` axis is your alignment with a condition, and the `fuck it/don't care -> satisfied` axis is more about your alignment with yourself. you can see that "fuck it" and "don't care" are structural responses unique to each person.
+
+yesterday I noticed in the @[abe](2017-06-24-portland#10) talking about you being the focusing factor, and you can focus on something that is satisfying, or something that is not. that's pretty easy for me to do, but the bso is also the focusing factor.. they are focusing my viewers on to content which may or may not be satisfying. however, as I began to think about how I would try and anticipate whether a experience clip would be satisfying to a viewer or not, is kind of an interesting problem.
+
+I determined that what would be satisfying to one person will vary quite a bit, and it is largely determined by the 4 main levels I outlined. desire and physicality are primarily attractive, but emotion and beliefs are primarily repulsive. anyway..
+
+two things strike me as important to note about this axis, first is that satisfaction is always unique to the person, and second is that this axis seems to be a reaction or some sort of coping mechanism toward resistance. intuitively it feels to me like the difference between these two axises, is similar to the difference between electric current and dielectric current (what we call static electricity).
+
+it seems to be a motive force which allows for a transition in state. I think it's similar to how a capacitor works. really, something worth thinking about more :)
+
+---
+
+another thing, if satisfaction is your relationship with your inner being, I almost always visualise it spatially, and this makes sense because when the vibration is going through a coil, it will inhibit current flow. inductance is directionally aware (spatial), and capacitance is time aware.
+
+if you think about magnetism as the attractive force of electric current, then what we call gravity is the attractive force of dielectric current. gravity seems connected to the static electric force. it's probably spatial which makes the difference, just like a coil makes a magnet.
+
+both of these types of currents seem to have a time and a space relationship which appear to be complementary. RLC circuits, FTW :)
+
+##### 2018-08-19 05:28 - stop the resistance that raises the vibration...
+
+...which allows the manifestation of it.
+
+this must be a reference to the guys operating my head... lol
+
+@[youtube](TTdqQU8cAlY)
+
+
+##### 2018-08-20 01:11 - what is "resistance"
+
+I've been trying to make a mental concept of how this whole thing works out, using electricity as an analogue. if I think of a normal resistor in a DC circuit, it resists the flow of electrons and there is a voltage (pressure) drop across the resistor. when I think of this like water, I would imagine it like a clogged drain. put steel wool inside of a pipe, and the pressure inside of the pipe would drop.
+
+however resistance in an AC circuit could also be seen as one of timing. think about a swing. if I push the person on the swing when they are coming toward me, I slow down the speed of the swing, yet if I push it when it's going away from me, it depends on when I push it. let's say I push it with 10m/s of push every time the swing is at 2m/s of speed, this is optimum, because it will continue to add speed to the swing. like this, more time will pass between the pushes, because, as the swing gains speed it will reach new heights every time.
+
+however, if I push the swing at a steady interval, then eventually the swing will synchronise itself with the frequency of the pushes. their frequencies will eventually match each other.
+
+with the swing example, traditional resistance is essentially a product of the medium. if the swing were under water, it would behave exactly the same, just everything would go considerably slower because the medium is much less "conductive" -- or less "rarified". vibrational resistance is a timing issue. when the frequencies don't match, or they are pushing in a moment that has zero or negative effect on the swing's speed.
+
+in the swing case, it's helpful to see the example as "pushing" a swing, yet I believe it is a spherical swirly around a dipole, like a magnet, with only attraction, so the "pushes" would really be more like moments of attraction.
+
 ## potential topics
 
 ##### - physicality that challenge ideas
