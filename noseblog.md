@@ -736,7 +736,6 @@ this must be a reference to the guys operating my head... lol
 
 @[youtube](TTdqQU8cAlY)
 
-
 ##### 2018-08-20 01:11 - what is "resistance"
 
 I've been trying to make a mental concept of how this whole thing works out, using electricity as an analogue. if I think of a normal resistor in a DC circuit, it resists the flow of electrons and there is a voltage (pressure) drop across the resistor. when I think of this like water, I would imagine it like a clogged drain. put steel wool inside of a pipe, and the pressure inside of the pipe would drop.
@@ -749,8 +748,104 @@ with the swing example, traditional resistance is essentially a product of the m
 
 in the swing case, it's helpful to see the example as "pushing" a swing, yet I believe it is a spherical swirly around a dipole, like a magnet, with only attraction, so the "pushes" would really be more like moments of attraction.
 
+##### 2018-08-20 12:19 - controlling my frequency
+
+I realised experimenting with the melatonin that these guys have the speed which my brain runs completely under control. in the past, whenever I am able to relax and slow down the speed of my head, I tend to see images. instead of allowing me to begin controlling that out-of-control function of my brain, they just keep me in the alert state at all times, and don't allow me to relax.
+
+one thing that has historically bothered me a lot is when I am going to sleep, all of a sudden there is a loud sound that begins happening, and it's very jarring. I knew it was a new frequency which is to put my brain into sleep state directly, so that I don't relax as I go to sleep. they just put my frequency down to the lower one and then snatch away my consciousness.
+
+the whole process is quite notable. it's been happening for as long as I can remember, and is one of my primary objectives to get removed before moving forward. I want my brain to operate at a fast speed. feeling sluggish all day isn't very enjoyable at all, and when I go to sleep, I want to relax into a lower speed. then, when I wake up, I want to wake up at a fast speed, and get right into the day. like the guy said talking about my how I wake up, "bing! I just can't wait to start my day"
+
+at the very least, the whole frequency adjustment before I go to sleep could maybe happen a lot more gradually. right now, with normal awake speed, it's sort of like going 50mph in 3rd and then shifting down to first. it's unpleasant, but it's not really frustrating. however after watching stars for a while, my brain is going at 90mpg in 5th, and they just decide to throw it into 1st. the sensation I feel is about like the grinding sound you would hear from your transmission.
+
+I assume it would just require a gradual transition down to that speed, but in order to maintain this function, I need to see why it's necessary, cause I think that perhaps if it's a technical reason, there is likely a solution which doesn't have me running at speeds which my body does not want to go. or, perhaps there could be some sort of mechanism which I could control the speed. it has been one of my goals to put myself into ultra ultra fast speeds from time to time to see what happens. anyway...
+
+just so we're clear, my goal is to regain control over my brain before anything happens. I didn't get into this position wanting other people to control my head and give me a nice feeling experience in exchange for that. I attracted this because I wanted to control my own head and discover my own nice feeling experiences. nothing less than that will do, for me.
+
+for the people without a natural visual capacity, it makes a lot of sense to give them the ability to activate that in a controlled way. however, because my capacity has been acquired naturally, it is out of your control (and mine) until I figure out how to control it (naturally).
+
+I'm the last of the real ones!
+
+##### 2018-08-20 12:48 - it all comes together
+
+without really knowing it, I have tied this whole thing together. I started with the quote, «stop the resistance that raises the vibration» and began to ponder what resistance is. I had traditionally only equated it with a loss in pressure (voltage drop) in the traditional DC sense. then, I realised that in a vibrating AC sense, resistance (impedance) is also a timing issue, and trying to push the swing out of sync with its frequency will either raise or lower the vibration heights (pressure), and along with a change in vibration speed, it additionally lowers the pressure (resistance).
+
+so, the trick would be to find a way of changing the vibration speed without it introducing unnecessary resistance and lowering the pressure.
+
+---
+
+now, as I think about this, likely what they are doing by dissipating so much energy from me, is they are continually reducing the amount of current that is flowing. so, each time I go out and I watch stars, I would be increasing frequency and pressure. however, since they're trying to control the frequency and the current, the only thing I have control over is the resistance and the pressure. lowering resistance increases the pressure. however, every time they go to adjust my frequency, the pressure drops and I feel the loss of energy. think, pressure • current = watts, so when I decrease resistance and current stays the same, pressure must increase, so I have more watts going through me and I feel better, until they adjust my frequency and introduce resistance again, dropping the pressure, so now I have less watts flowing and I feel worse.
+
+it looks like they are (unintentionally?) tuning me like a tesla coil to higher and higher potentials.. soon, I will be continually measuring the lengths of my discharges, just like tesla did with his coils:
+
+```quote
+When in 1900 I obtained powerful discharges of 100 feet and flashed a current around the globe, I was reminded of the first tiny spark I observed in my Grand Street laboratory and was thrilled by sensations akin to those I felt when I discovered the rotating magnetic field.
+
+Nikola Tesla - My Inventions
+```
+
+lol
+
+##### 2018-08-22 04:49 - heaven awaits if I restrict my visual capacity further?
+
+where I left off in the last workshop was on the @[abe](2017-06-24#20) was talking about sacrifice and stuff. I'm inspired to listen to it again after this.
+
+I know logically and have quite a bit of experience to back up the fact what when you withhold a desire, it continues to grow, each time getting stronger and stronger, until you can avoid it no longer, and the universe essentially makes it impossible for you not to realise it.
+
+so, with that in mind, I can see how restricting my visual capacity further will just let it grow even more. it looks to me pretty clear that whenever I finally go with the girls, I will get it. so, this is a bit meta, but what if I create an equally big desire for it to continue to grow?
+
+this idea sounds notoriously christian: suffering now yields a greater reward later, and that's kind of what I'm saying here. what if I just hold back on letting myself go as long as I can?
+
+will a little more "suffering" (it's not really suffering, it's just kind of perhaps boring at the worst) yield a greater visual capacity later?
+
+let's say I'm diligent with my star watching and I just keep finding ways to lower resistance, then won't my visual capacity continue to improve? (even though I can't see it)
+
+---
+
+in a different episode of abe there was a girl that wanted to take how showers and still have a tight body. abraham explained to her that her tight body was realised with thoughts in alignment to that desire, not by action. some people take cold showers, because the suffering associated with the cold shower, will allow them to believe they have paid enough of a price to begin believing that they are worthy enough of a tight body. instead, abraham was trying to illustrate to her that she does not need to suffer through a cold shower to allow herself to begin believing she can have a tight body. she can have it all, they said.
+
+in my previous entries I talked about tuning the tesla coil to yield higher and higher pressure discharges. also, I have previously talked about my visual capacity as evidence of the amount of resistance in my perception. the lower I get my resistance, the more details I can see at once.
+
+(this is why I no longer look to see if things look better any more. they have that locked in place. I see things at the same detail level now as I did 5 months ago (and perhaps even worse than when we came home from grand junction that one time). instead, I look at something familiar to see if I suddenly perceive more. although the quality does not improve, the amount I am able to take in expands and I notice things I had not previously noticed before: sorta like esther cutting down the trees allowed her to see something she was previously unaware of)
+
+anyway, what I wanted to illustrate here is, it doesn't have to be an either-or situation. I can have it all. that is the simple answer. I get it, but what happens if I create a desire for it to continue to grow? wouldn't I be inspired to action which will keep it growing? see the difference there? it's the difference between a point and an angle (combine the two to get a vector).
+
+##### 2018-08-22 12:34? - angles and points
+
+most people's desires are a point. they look out into the world and that gives them an idea based on what they see, to achieve for themselves. if they are forward thinking, they will probably desire something even better than what they are observing -- however, it is still a point.
+
+what if, instead of desiring a destination or point (something measurable), what if I desire an angle and an increasing velocity. the reason why I mentioned the quality of my vision being stuck in place is because I believe these guys are trying to get me to stagnate in my vision -- which has produced a desire in me, not for some point which I cannot anticipate (those desires are for those seeing through my eyes, desiring that one day they can achieve that point in their visual capacity). if you
+
+##### 2018-08-23 17:28? - angles and points (continued)
+
+jaron interrupted me, and then I got distracted by some things so I never finished my ideas... I also seem to remember covering this topic in a dream I had last night. I remember coming away from the dream feeling a bit unsatisfied with the answer I gave to the questioner. it seems I could have explained myself a bit better, because I remember the way the questioner was framing the questions confused me in a way which prevented me from getting to the answer. like most discoverers, in order to arrive at the newly discovered logic, I have to retrace the steps I took to get to the logic. this is partially the importance of this document, because it allows me a reference point to easily retrace the steps to arrive at the new logic, meaning the logic isn't yet fully a part of me, so I have to kind of talk my way to the solution, and allow myself to think and contemplate it here. unlike the high pressure situation of a conversation in my dream state, I tend to give more thoughtful answers here.
+
+it should also be noted, as I'm becoming more accustomed to the dream-state conversations, that it seems I am unable to give the questioner a satisfying answer regarding anything new or novel while in the dream-state, as it has not yet become a part of me and my logic, so it doesn't flow out of me easily yet. anyway, here goes...
+
+when I say an angle, I am referring to a direction and a velocity. when I say a point, I am referring to a destination or a state (a position). like I said, most people generate a desire by observing someone else, and when they observe that, they create a desire to reach a certain point. as a discoverer, my desires do not have points. they are more similar to angles and velocities.
+
+what this means is I just point myself in the direction of something I want to discover newly and I just go. there is no problem to solve. solving problems are also points. you say well, we need a solution to this problem and so that means this goal is set, or this hurdle needs to be overcome. it's too measurable for me. I have no intention of trying to define (or measure) my desire in such a way, any more.
+
+my desire all about unknowns, and ironically, this is only a recent thing in my life. I used to be quite measured, but as things got more and more out of control for me, and I had less and less capacity to make something I wanted to happen, happen, the more I became aware of my direction, and instead of focusing on some destination that I could no longer define, I perceived the progression that has taken place.
+
+this is one of the things I wanted to ask abraham, because they speak about how your inner being never looks back. that's fine, and I trust that my inner being isn't looking back or need to look back for me, but I often times it helps me to gain some perspective if take a step back from my current position and see the progression. it seems that what they are probably getting at is, looking back as a way to cast blame or something like that...
+
+anyway, this is exactly what I like about psychedelic drugs. even in the video talking about using psychedelic drugs to aid in problem solving, you can see how the drug helps the person to rethink the concept in a new way, which can lead to a breakthrough (resistance) (toward that point). instead of a breakthrough though, I like to think of them instead as a mechanism for exploration and discovery. back when the stars actually activated dmt in my head, they helped me to achieve much more clarity of thought, get clearer about things in general, and also while paying attention to how my eyes interacted with the star, I gained tons of experience with energetic interactions (learned about vortexes and the eyes as one). really, seemingly infinite and endless examples of expansion to my perception were manifested as a result. it cannot really be measured or anticipated. I had no idea what I would find. the ayahuasca gave me a glimpse into it, but along the way I discovered many many things.
+
+##### 2018-08-23 18:29 - more thoughts about my desire as an angle instead of a point
+
+you may have heard me carrying on about taking a break and adjusting my direction. this is because things are at the point where I have no real capability of anticipating very well. I'm in such unknown territory for me, I feel at my peak out-of-controlness I've ever felt in my life. the only thing I can control is the direction and the speed.
+
+I know the direction I want to go, and have no idea what I will find. often times the fear of the unknown can scare some people because they want to know what they will find before they get there. I can see how it may be a bit of a problem if you're wanting to control the discoverer, or maybe for example in the case of my vision, it may be really scary to think that I might discover yet another form of perception which you will have to retrain your machines to decode. I get it; those kinds of unknowns are perceived to be bad.
+
+however, I am not in the business of trying to limit how much one is able to discover. I am purely out there looking for the enjoyment factor associated with something new. in fact, I think it would be quite exciting for me to discover a new way of perceiving, one which you guys couldn't take a huge shit on and force me to see it poorly.
+
 ## potential topics
 
+
+##### - some misconceptions around suffering yielding a greater reward
+##### - the spirit of moses and elijah
+##### - what could be a reason why women seem to like less than optimal men?
 ##### - physicality that challenge ideas
 ##### - my eyesight as a metaphor for the "uplifter"
 ##### - generalisation of compelling through advertising & religion
