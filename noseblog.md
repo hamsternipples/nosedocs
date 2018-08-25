@@ -840,10 +840,47 @@ I know the direction I want to go, and have no idea what I will find. often time
 
 however, I am not in the business of trying to limit how much one is able to discover. I am purely out there looking for the enjoyment factor associated with something new. in fact, I think it would be quite exciting for me to discover a new way of perceiving, one which you guys couldn't take a huge shit on and force me to see it poorly.
 
+##### 2018-08-24 01:09 - more thoughts on desire as a direction
+
+so the way it works, is you observe something and you know there could be an improvement (step 1), then source lines up that improvement along with all the other little (and big) improvements you've noticed throughout your life (step 2). finally, you have to find a way of tuning into that new reality (step 3). you know it's reality because it feels like reality. you can likely use your imagination to get an incomplete idea about what it may feel like. however, because no one can quantify all of the improvements that they have put in their "vortex", then no one can really imagine all of the pieces of it very well.
+
+the imagination seems to me to be a transmission and reception mechanism for emotions. when I feel a concept, it probably could appear to me visually, and the depth and clarity for which I see the image will largely be determined by the sensitivity of the receptor. likewise, when I am doing the imagining, the more I behold the image, the stronger I will feel it. so, it's sort of like a mini version of LOA: the more I see it the more I believe it, and the more I believe it, the more I see it.
+
+anyway, feelings are important because they are an indicator of direction. so, imagine that you determine that you really want (or don't want) a red car. when you picture the red car in your mind, I tend to feel a multitude of things, but the most notable is one of these four: the absence of the car or the presence of the car -- and, the car feels good, or something isn't quite right yet.
+
+- the absence of the car means it's in the direction of what you want, but you're not yet tuned into its presence.
+- the presence of the car means you're in the right direction. it doesn't mean it'll be that exact car you are seeing, but definitely one that feels just like it.
+- the car feels off to you. prepare yourself for an evolution, because this just means that there is an even better version of that car which is more suitable to your exact preferences lined up for you to discover.
+- the car feels good. I don't really know what this means. I suppose for me it feels like it's an indicator that not enough energy is present yet for me to feel it's presence or absence.
+
+since an emotion is an indicator of a direction, and directions that are in opposition to your desire feel bad, I suppose when I say what if I desire a direction, I am kind of saying I want an emotion. I think in abraham-speak, that is, "look for satisfaction", or "when all you want, is to feel satisfied".
+
+I'm kind of obfuscating what I want to say with so many words, so I'll just end with this; which feels the best:
+- I want to paint pictures that people will like
+- I want to invent a new genre of painting
+- I want to be a better painter than matt groening or rembrandt
+- I want to continue to improve every day as a painter, discovering new things and having fun along the way
+
+##### 2018-08-24 01:58 - some misconceptions around suffering yielding a greater reward
+
+so this is one of those things that I don't fully understand about with LOA, but let's get the obvious out of the way first. if I want a car real bad, then when I constantly hold myself away from that car by saying, "I'll never have enough money to afford one" or, "all my friends have one, cept for me". I hold myself tuned into the absence of it with my untempered mind. when that happens, is there a greater reward? maybe, but only if you change your thoughts.
+
+imagine it like this: there is giant vacuum cleaner moving around in the sky pulling you toward itself. if you try to go toward it quickly, you may run the risk of overshooting your destination a bit and having the time consuming project of circling around and trying again. going in the opposite direction feels like negative emotion, and that's what happens when I say those things up there
+
+##### 2018-08-24 13:49 - some misconceptions around suffering yielding a greater reward (continued)
+
+last night I felt strongly like I wanted to go to sleep, cause I guess I wanted to have a better perspective on it.. anyway..
+
+in the car example I gave, where you hold yourself in suffering by thinking thoughts in opposition to your desire, the suffering is self-inflicted.
+
+however, imagine a similar scenario where you really want to have a car, so you find a way of attracting a car into your life. you enjoy it a bit, but then something happens and at night while you're asleep the police just take your car. they lie about not taking it, but you can see the car in the impound lot. so, since you cannot ask for justice from those doing the injustice, and after complaining about it a while and trying to affect a change or show the injustice of the police to others, you realise its futility and you decide that you're just going to attract another car; a better one this time. after all, you were able to figure out how to attract the first one, so another won't be so hard.
+
+you do, you attract another car, and this time not only is it a better car, but it also took you less time. again, the police come during the night and take that car too. being the positive person that you are, you decide that again you will find a way to attract an even better car. you do. the same thing occurs about 40 times more and by now you've gotten pretty good at attracting nice cars, and the police have gotten a lot better at covering their tracks. you decide you will take a twisted sense of pride out of the fact that nearly the entire police force now drives nice cars because of you.
+
+in that case, it looks like the police are asserting themselves into my my life, but we know there is only attraction, so it may be understandable only with an understanding of how desire harmonises. it should be obvious that the police would want to drive nice cars (points). they see all kinds of thugs out there driving really great machines doing bad things, and they're doing good things so they wonder why can't have nice machines too. so then, what if my desire was not really to drive a nice car (point), but instead to be good at attracting the things I want (angles), and the car was just something that harmonised with the people who would give more than one opportunity to do that, thereby giving me endless opportunities to hone my skill further.
+
 ## potential topics
 
-
-##### - some misconceptions around suffering yielding a greater reward
 ##### - the spirit of moses and elijah
 ##### - what could be a reason why women seem to like less than optimal men?
 ##### - physicality that challenge ideas
