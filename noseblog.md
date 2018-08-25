@@ -879,6 +879,69 @@ you do, you attract another car, and this time not only is it a better car, but 
 
 in that case, it looks like the police are asserting themselves into my my life, but we know there is only attraction, so it may be understandable only with an understanding of how desire harmonises. it should be obvious that the police would want to drive nice cars (points). they see all kinds of thugs out there driving really great machines doing bad things, and they're doing good things so they wonder why can't have nice machines too. so then, what if my desire was not really to drive a nice car (point), but instead to be good at attracting the things I want (angles), and the car was just something that harmonised with the people who would give more than one opportunity to do that, thereby giving me endless opportunities to hone my skill further.
 
+##### 2018-08-24 18:44 - why did I use the police in the previous example?
+
+I used the police because I wanted to illustrate something where the system of justice is performing the injustice. it could just as easy to have been parents, slave owners, or whatever. the idea is that it is that the controlling or regulating body is the same one that is committing the crime. this is essential to understanding the thing I've been getting at this whole time of step 6. it also ties into the whole timeline concept too, but for now just understand it as more conditions which I cannot control.
+
+another way to see it could be like this: imagine that dmt is cocaine. after some time what ends up happening is there are dealers who get their cocaine from acceptable sources, and dealers who do not. it comes down to money and cocaine is probably the most profitable of all of the drugs. in fact, the similarities are so many between cocaine and what they are doing is striking... to give you an example, imagine that facebook as the the coke dealer just for a moment. facebook sells ads, but they also noticed that people do a lot of promotion of their own.. facebook wants to regulate the market a bit, so the make sure that all promotion goes through official channels.
+
+back to the coke deals. eventually the police regulate the cocaine market by only busting the guys not selling from official sources. (eg. the ones that are paying proper tariff to get through) you might say, but isn't that essentially what the mafia already does? well, yes, it is, but in less organised and more forceful way. if you think about the pharmaceutical industry, the same sort of thing is occurring. only the ones not paying their duties get busted.
+
+coke has different quality levels as you go down the chain of dealers. at the top it's pretty pure, but that's cause the officials are regulating the quality. in order to alleviate the problem of distribution, the product gets sold to essentially wholesalers. each time it changes hands, the price cannot be raised too much, so what ends up happening is the purity gets diluted. a lower quality product is created and sold to others who will then resell that. by the time it gets down to the crack dealer on the bottom, the product is absolute garbage, so the consumers have to resort to thinks like "cooking" cocaine to remove some of the impurities added by the dealers.
+
+in this example, I represent the crack whore at the bottom who is selling sex to try and get a fix from this drug. like facebook, you have to imagine the system with zero distribution costs, so I am sure that the people who pay them money get a HD experience, and the people who don't get the crappy experience. it's likely that I must live the crappy quality experience so that is what is perceived as "normal" to the other consumers.
+
+---
+
+any time you have an authority or a regulator of some sort, the power gets abused because they can assure themselves they are not going to get any punishment, because they are in fact the punishers. the founders of this country were aware of this tendency and tried to avoid it by putting in "checks and balances" into the governmental structure -- but as is true with LOA, what you give your attention to just gets bigger.
+
+in a previous entry I mentioned that I was against regulation of these brain devices, and the reason for it is because self regulation has never worked. the best it has worked is in the case of multiple branches of government, but that has only yielded much conflict and just slows corruption down a bit, but doesn't prevent deals being made for both sides to keep the other's secrets.
+
+---
+
+lastly, I want to illustrate how my inability to control the circumstances has forced me to change my desire from a point to an angle. this is important to illustrate because that means I am on the brink of another discovery... more on this soon :)
+
+##### 2018-08-25 00:43 - the coke dealer metaphor
+
+one of the things I really liked about the coke dealer metaphor is that it helped me to understand why there is so much resistance to people watching stars. imagine that they control the dmt levels in people's brains, which means that if you're nosebook approved (you pay them money?), then they allow you to perceive more, but if you are not nosebook approved, then they hold your brain into a lower quality perception. so when they find out that you can stimulate your brain to create this drug for free, that's obviously no-fly zone and should be deterred as much as possible. you definitely don't want people to get access to this for free.
+
+then, the crack whore metaphor also helped me to understand my situation as well. when my brain is desperate for dmt, and they're depriving me of it, it's like the pimp using the crack whore's addiction to coke to get free sex and money by pimping her out. I'm sort of the bso crack whore, cept it's not crack, it's dmt and they're not giving tiny crack rocks after begging for it, they're just ensuring that my head runs in its lowest energy state nearly all of the time.
+
+---
+
+well, I suppose I don't really mind actually, because like I mentioned before in car example with the angles and the points: I'm not just attracting a nice car, I'm improving my capacity to attract the nice car, because in reality the car could be anything. my desire is a direction, not a destination.
+
+it may happen that I go through a new transformation in my perception soon. it does seem like it may be the case.
+
+##### 2018-08-25 00:59 - a transformation in my perception?
+
+as I have been going on and on about this step 6 thing, I have begun to notice some patterns and such:
+
+1. you observe something and it causes you to feel that there could be an improvement on that
+2. source combines the desire for improvement generated by the feeling along with all the others (and everyone eles's) into a vibrational reality in the future.
+3. you find a way of tuning into that future reality by adjusting your beliefs in such a way that allows it to occur.
+
+if you notice the difference between step 1 and step 3, there is a transition phase in the middle which makes that possible. the even number steps are kind of like transition phases.
+
+4. you get really good at finding a way of adjusting your focus in a way which allows for that to become normal for you.
+5. now, when you observe something that causes you to notice there could be an improvement it doesn't bother you and you don't lose the focus which allows the realisation of these improvements.
+
+again, step 4 is a transition phase, because without a consistent and practiced focus, you would not be so "addicted" to the way the "receptive mode" feels, that now you are able to observe unsatisfying things and it doesn't take you into negative emotion, because your observation of it didn't change your direction.
+
+so then, I got to thinking.. well then, that would mean that step 6 is just getting really good at step 5. to give it a more tangible definition, I like to think of it as a profound realisation that you are an extension of source energy and a vibrational being attracting everything in your experience to you.
+
+---
+
+so, this creates a problem ... if step 6 is a transition phase, then what would step 7 be? I don't really know very well, but I anticipate that it may accompany a change in my perception just like how when I began to realise step 4, at the same time I started seeing things in 3d.
+
+my feeling is that step 7 would be something akin to "not needing to observe the manifestation of it to feel its reality"
+
+this also is combined with something abraham mentioned in passing (I think it was the one where the woman asked how to begin translating source energy visually) which really stuck out to me, they said something like, "you see with your eyes. you know when you dream you are seeing them in your eyes, and you can also see without your eyes"
+
+I seem to be developing the capacity to see without having the visual capacity, and this ties in to the whole thing I've also been going on about with the clones, where my consciousness would occupy more than one body at once. I've noticed an incredible capacity to be aware of many things at once emotionally. I seem to be able to sense multiple things going on at once as well as be aware of the reactions I'm feeling. this capacity seems to be intensifying as well, and I'm needing less and less to observe what it is that I know is happening. without needing to see the manifestation in order to feel its reality will allow me to leave the perspective of my physical senses and instead take on a sense that is similar to what is beginning to develop in my dream state. visually, I do not see anything, and neither do I feel anything, but there's a lot going on, but I'm beginning to get a sense of what is happening.
+
+anyway, I can't wait to release so much resistance that my body is just kind of doing its own thing, while my consciousness can just observe it. this is likely the first step to allowing my consciousness to inhabit more than one body. kind of exciting really.
+
 ## potential topics
 
 ##### - the spirit of moses and elijah
