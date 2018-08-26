@@ -942,6 +942,32 @@ I seem to be developing the capacity to see without having the visual capacity, 
 
 anyway, I can't wait to release so much resistance that my body is just kind of doing its own thing, while my consciousness can just observe it. this is likely the first step to allowing my consciousness to inhabit more than one body. kind of exciting really.
 
+##### 2018-08-26 10:00 - the resistance / satisfaction factor
+
+in previous entries, I had noted that the satisfaction factor seems to be another dimension to the emotional scale. I had equated it with connection with inner being, which launched me into a few discoveries about electricity. yesterday was insightful to me because once again I managed to carry out (be inspired to?) something that normally would have a lot of resistance for me. and since then, I have wanted to return to let out the air in the tires. however, I have not done so, because of the amount of resistance involved.
+
+it's funny how all of this ties into another video that zehra posted from a recent workshop:
+
+$$youtube 90VpgX6iPEw
+
+in that one, abraham mentions satisfaction as the amount of resistance. so the guy started off his question by saying he was adverse to hard work. abraham explained that hard work has a lot of resistance in it. later, he said that sometimes he goes down to lower vibration emotions and needs to find relief. abraham explains the difference between relief and satisfaction: relief still has resistance in it, and satisfaction has no resistance. I concluded that relief is similar to gratitude, just like satisfaction is to appreciation, because in gratitude and relief you're overcoming something.
+
+the resistance bit was an interesting thing for me to note because yesterday while watching stars, I noticed that I make a lot of theatrics around doing resistant things(1). the theatrics are just just an expression of the internal fight inside of me where I really strongly desire to make the action (left side), but I have conditioned myself not to take action on things that feel resistant like that. those mental theatrics are essentially me fighting against myself. one half of me (the part that has never been able to really come out since vallecas) has really strong desire. it's a very primitive personality, and in moments of less resistance (like my dream state) it'll go along with virtually anything. that guy is the bane of my existence because he just keeps agreeing to do things that I (my physical self) have no intention of following through on, because most of them never feel right. I almost never take action when something has lots of resistance -- whether it's hard work or it's a desire to destroy something.
+
+the interesting thing about the experience yesterday of letting the air out of the tires is that I felt almost no resistance to it.
+
+so, the way that I am now visualising the emotional scale now is the y-axis is from negative emotion to positive, but the z-axis is the satisfaction or resistance factor. yesterday I experienced no resistance in my anger/revenge, yet today and last night I experienced a lot of resistance in my anger/revenge. so, it seems to be that every step on the emotional ladder also has a satisfaction factor to it as well, which is also how much of a connection to yourself you're letting in at the time.
+
+additionally, I have noted that in moments of satisfaction, it's way easier to move up the scale to an even better feeling emotion. in dissatisfaction the opposite occurs. this is obvious, because the more in alignment with yourself you are, the less resistance you will feel (and therefore more satisfaction), so LOA must give you more, so you feel even better.
+
+so then, you say to me, does that mean you could do any bad thing as long as doing that bad thing feels satisfying? I suppose yes that is what I mean. I don't really understand it all yet, but it seems that the more satisfaction you feel in the bad thing, the greater the opportunity to continue moving up the scale. the more dissatisfaction you feel, the more likely you are to move further down the scale.
+
+the satisfaction or resistance factor is also the action factor. it doesn't matter how good you feel, if you take an action that does not feel satisfying or feels resistant, you will end up feeling worse. the same is true in the opposite direction: no matter how bad you feel, any action which feels satisfying will cause you to feel better.
+
+---
+
+1: this is evident in all sorts of behaviour throughout my life. take for example, gary's job. it turned into a bit of theatrics because a part of me really wants to smoke weed, but at the same time a greater part of me wants to achieve my visual capacity without needing something external to me. so, it became a big ordeal, because when I accepted the job I didn't have any resistance to smoking weed, and I didn't want to smoke weed to get my visual capacity either. I wanted to have light in my head so I could do some programming and discover some new things. perhaps, this is playing off of the bso's fear that I will be able to use my visual capacity, because I really want to achieve that without drugs or sex.
+
 ## potential topics
 
 ##### - the spirit of moses and elijah
