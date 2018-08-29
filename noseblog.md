@@ -2,7 +2,7 @@
 
 I decided I wanted to begin writing things down. I'm going to try and do a quick blurb here so that I have a bit more context. it seemed like I wanted some way of organising my thoughts a bit more than the twitter way, and still have a bit more context for me to remember things with. I've gotten to the point that remembering what happened a week earlier not only feels like about a month has passed, but I find it rather difficult to even conceptualise how things were so long ago. this will hopefully give me the reference point I need to help me remember how things were so long ago, a bit easier
 
-#### 2018-07-27 03:31 - solution orientation
+### 2018-07-27 03:31 - solution orientation
 
 I woke up this morning and my heart felt better than it ever had. I also felt (strangely?) at ease too. it seemed like I was able to feel some sense of love being extended to me from the girls as well.
 
@@ -12,7 +12,7 @@ this brings up small tangent I want to explore quickly about how I have noticed 
 
 so, perhaps one of the reasons why everyone's inner beings were so exhilarated about the prospect of joining the bso so these guys could be the new world leaders, is exactly the same reason why I was inspired to head straight into doing a lot of things the "wrong" way.
 
-#### 2018-07-27 04:18 - solution orientation
+### 2018-07-27 04:18 - solution orientation
 
 yesterday I was trying to figure out why they are limiting my vision. one of the ideas that came to me was they may be under the impression that (cause I was the originator of the idea) that when they finally get me to orgasm for them, my audience will have to be so amped up on dmt to see through my eyes like I do now, that the orgasm will blow their minds really hard. back in torre with vera, there was a lot of fear based orientation and safety concerns going around, and so being the troublemaker that I am, I combined the big mind blow idea with the belief that is the basis for the "left behind" books I was read in the hospital. essentially, "the rapture" is when a lot of unsaved people drop dead all at once before the antichrist establishes himself on the world scene through his charisma as the new authority. anyway, in the book a whole bunch of people drop dead and this signifies the start of the "tribulation" period. I thought it was hilarious if the reason why so many people dropped dead was because they experienced my orgasm and got their mind blow so hard that they couldn't handle it and dropped dead. LOL
 
@@ -28,11 +28,11 @@ or, take for example the subject of my heart. when I wake up the middle of one o
 
 which leads me to believe that since viewers are having that "dream" experience, the removal of the restriction on my heart like that, may be one of the requisites to seeing my imagination in 3d space.. so, perhaps they've been messing with my heart cause they don't want me to be able to create things with my imagination in 3d.. interesting idea. either way, the use of my imagination in 3d has been my most sought-after capacity, and is something I want more than the ability so see images in my eyes, so whatever the reason may be, I want to have a discussion so that we can solve the problem. whatever all of these hangups are that are preventing them from allowing me to utilise my capacities can be solved. there is no problem for which a solution cannot be found. there is a way for me to be able to utilise my capacities and not interfere with the bso's objectives.
 
-#### 2018-07-27 05:02 - the strict no religious ideas policy
+### 2018-07-27 05:02 - the strict no religious ideas policy
 
 the reason why they do not allow the "guides" to utilise religious ideas as the basis for their help for these autistic children is sort of obvious if you think that perhaps a lot of this "help" has not been solicited. in fact, if the help were chosen by the one being helped, there would be no problem if it contained religious material -- and in most cases even, for a religious person, religious material (of their religion) is both more comfortable and more trusted. so, this leads me to believe that this "help" is unsolicited, which is reason for the strict no religious ideas policy.
 
-#### 2018-07-27 10:58 - why not wait?
+### 2018-07-27 10:58 - why not wait?
 
 I woke up this morning and my initial reaction was a bit rooted in anger, feeling the pressure of the deadline (perhaps this is a reference to the abraham episode I listened to the night before (san francisco CA)) and I thought about explaining to people that my reasons were because I was in fact giving them a bit of their own medicine: when I wanted action and a conversation, there was none. well, there was an indirect through the message of carlene. I decided this was a better route. (s)he said that carlene wasn't going to change h(ie)r - and also that (s)he was not reliable. I want to be reliable though and I promised to do the changing so (s)he didn't have to.
 
@@ -42,7 +42,7 @@ after that, I had a thought that maybe all of this is connected to the whole sta
 
 it was just a crazy thought, but it had the same feeling in it that I get when I want to reject their money. they want me to believe that I need them to do for me something I am incapable of doing myself (earning my own money). every where I turn there is rampant disempowerment were the bso wants people to give up their own connection to their emotions (another reference to an abraham I heard last night where they went out of their way to say that you cannot turn off (BSO!!) someone's emotional guidance).
 
-#### 2018-07-27 11:57 - inception
+### 2018-07-27 11:57 - inception
 
 I was just thinking about how (and it could have been a reaction), this blog could be seen as my attempt to spin a huge web of conspiracy theories. since it is unlikely that the bso will ever actually attempt to correct any false ideas, they will continue to get bigger making self-reference to my own ideas and building on them, allowing me to believe crazier and crazier things. it could also be seen as me trying to manipulate the bso into coming clean on some pretty big questions that I have.
 
@@ -52,7 +52,7 @@ furthermore, my mind is extremely plastic. I can release a lot of these false be
 
 the real thing that I desire would be to clear up a lot of these ideas with infinite intelligence. this has sort of been my goal for a long time, and the original reason why I wanted to begin translating infinite intelligence in a meaningful way, in tho first place. I suppose my ultimate goal will be to find a way of having a conversation with infinite intelligence about a lot of these things, *without* the bso able to listen in; I want the answers to be something meaningful to me, and not answers that have been tailored to be acceptable to more ears. I am really desiring to ask a lot of deep questions, taboo questions, and revealing questions. I sort of resent abraham for catering to so many noobs. I want a way of getting that information for myself and not needing esther or anyone else to do that translation for me either. they say I'm an extension of source energy... well prove it. I'd like to feel connected to that depth of understanding and no longer restricted to the lcd of human perception.
 
-#### 2018-07-27 12:43 - why manipulate?
+### 2018-07-27 12:43 - why manipulate?
 
 in the previous entry I talked about how unlikely it was that the thought which says that I'm writing this to manipulate and spin a bunch of stuff originated with me. I have no reason to manipulate; my goal has been, and will continue to be, to communicate as clearly as possible. it is only a person that feels so disempowered and unable to communicate (or needs to obfuscate) their own desire, that they would believe it necessary to manipulate others to get the realisation of their hidden desire which they cannot reveal.
 
@@ -62,7 +62,7 @@ in the situation I am in, there is disharmony because I do not want to be disemp
 
 instead, I have recognised the satisfaction factor of identifying a desire and moving in the direction of it, without needing anyone else to be different so that I can obtain it, and that feels really good. I also have a new sense of stability that I haven't ever had before. it's quite a trip realising one's own power through the focus of his or her own mind.
 
-#### 2018-07-27 00:00 - is the bso as a for-profit corporation?
+### 2018-07-27 00:00 - is the bso as a for-profit corporation?
 
 yesterday morning I woke up with this idea and it seems that it may be a convenient way to explain a lot of their behaviour. it can't explain all of it, so just take what I'm saying here with a grain of salt. additionally, what could be happening is previously the only way to explain their behaviour was real actual malicious intent, and this entry is a bit of a way for them to begin pivoting their intentions with changing their behaviour.
 
@@ -70,7 +70,7 @@ first of all, it seems that the bso has this really convenient thing where they 
 
 (will expand further in the future)
 
-#### 2018-07-28 23:34 - timeline stuff
+### 2018-07-28 23:34 - timeline stuff
 
 so one of the crazy things that I have noticed throughout this whole thing is, it would appear that I have "missed the boat" quite a few times now. the crazy thing is, almost all of them looked like they were going to turn out, yet at the last minute something seeming out of the ordinary kinda happens, and almost all of the culprits of the thing which prevents it from going through seems to be perceptive. for example, if I could have just looked past certain things and not needed to understand things, I would have successfully gone down a different road than the one that I am on right now.
 
@@ -88,13 +88,13 @@ so you can imagine that in each of these timelines there the success of the enco
 
 that's as far as I've gotten in my story up until this point because it's hard to conceptualise it all, but I believe that the future is that we all can learn (maybe some will not want to) that each of us is the creator of our own reality. I believe that our perception of time  and the way consciousness flows through it, will change to something I cannot perceive yet. it's gonna be really really cool.
 
-#### 2018-07-29 01:43 - future timelines?
+### 2018-07-29 01:43 - future timelines?
 
 if you think about this from the bso perspective, imagine that it's 2038 now and you're some guy working at the bso and you notice that in all of the different instances, I am the one that creates the technology necessary to do the timelines, so you could imagine that it would create a lot of desire to develop this technology and not rely on me. you can also imagine from their vantage point how valueable this tech would be. instead of experimenting with people on this timeline, you could actually run the experiments and then tune into a later time on the timeline to get a good estimation of how it worked.
 
 the only thing necessary to make this a reality, would be to get the bso into a 100% pure reactionary system of decision making. essentially, they respond exclusively to external forces. they're pretty close already to being that, which means that they can become the new backbone of the timeline. at the end of the next timeline (not sure yet what that would be), they go back and influence themselves away
 
-#### 2018-07-29 09:48 - more on reactions & timelines
+### 2018-07-29 09:48 - more on reactions & timelines
 
 after writing that the bso would have to become reactionary, I started getting negative feedback on the idea. if you think about what I am trying to convey when I say "reaction", one must take my life as an example: I have no money, and no real capacity to do what I want to do. I am controlled by the circumstance and events (ecosystem) where I'm at. I have no real ability to make any decisions for myself. it may look like I have the capability to make decisions, but only within a limited set of options. most people are like a chef; they can combine any ingredient they desire to create their meal. they can even choose between a wide variety of meal options (soup, sandwich, stew, etc.) however, my options are pretty limited. I have to make a sandwich, for example. there is no way that I can escape the sandwich and pick something like a salad. I do get some options though. maybe I want cheese. maybe I want one type of meat. maybe I want six different types of meat -- but, in the end I will be eating a sandwich. so let's say that I'm at the store and I decide to go with ham and cheese, but someone says something which influences me to end up adding mushrooms and wheat bread (cause I'm weird and like strange sandwiches). each timeline is a sandwich. now, when you think about the idea it sounds less like "control" and more like "choices" -- but I digress.
 
@@ -108,21 +108,21 @@ further into the future, as the bso begins to learn how to influence itself in i
 
 the idea of the clones is an interesting one to me because it allows for a pretty significant evolution; something I will dedicate a future discussion to.
 
-#### 2018-07-29 15:07 - emotional reactions
+### 2018-07-29 15:07 - emotional reactions
 
 I have used the word reaction to mean one of two things. I don't really mean reaction in the physical sense. I mean a reaction in the emotional sense. when people observe things, they have thoughts about them. I feel this thought "reaction" in my emotions. I think we all do, I just have practiced it a bit more. any time anyone thinks a thought, that person has an emotional response to that thought: an internal reaction. I used to have the sensitivity to know if the thought or the emotion/reaction came first. this is largely how I could identify the emotion as my own or someone else's. I'm working on regaining that sensitivity again. however, I do not know if what I feel is the emotional response the other person has or if other people's thoughts produce emotions in me. there is much to be learned about this, and likely the bso will want to keep anything they find out secret, so I'm still in the process of regaining that sensitivity again so I can begin to make sense of the tremendous amount I feel.
 
-#### 2018-07-29 15:17 - physical reactions
+### 2018-07-29 15:17 - physical reactions
 
 the other type of reaction is a action or thought taken as a response to physical stimulation, communication, or conditions I'm observing or experiencing (everything a bso experience can offer).
 
-#### 2018-07-30 15:56 - more on timelines
+### 2018-07-30 15:56 - more on timelines
 
 a little bit ago I briefly mentioned an idea stating that the bso would probably want to try out different timelines, in effort to discover more things. so, I was thinking that since they are potentially getting so many of their discoveries out of my dream state, it may behoove them to try out timelines where I am feeling better and better, so that my dream-state ideas are richer and richer. additionally, you can also imagine that since I seem to be inspired to different discoveries by different people, it would also improve upon the diversity of those discoveries when I am around a more diverse set of people.
 
 this is potentially what is happening. more different girls means more different ideas. kind of exciting actually.
 
-#### 2018-08-01 02:32 - bso from the future?
+### 2018-08-01 02:32 - bso from the future?
 
 one of the most potentially unsettling (not the right word) consequences of the previous entry suggests that potentially the following have occurred in the timeline responsible for this one:
 
@@ -130,7 +130,7 @@ one of the most potentially unsettling (not the right word) consequences of the 
 2. the bso has figured out how to navigate (tune into and follow) timelines. this implies that they are capable of "peeking" into the vortex of someone (in this case, mine), which means they have the capability of tuning into source energy in a way which can give meaningful results (the idea I first revealed publicly to mom's friend, don). this provokes a few more questions, obviously...
 3. (can't remember it now. gonna go watch stars)
 
-#### 2018-08-01 03:39 - more
+### 2018-08-01 03:39 - more
 
 that also implies that since they're going to be extracting so many ideas out of me in my dream-state while I'm having fun with the girls in the wake state, then I suppose they're going to be getting a super boost to their technological capability to utilise/monetise/control people's minds with that increased technological capability.. if so, does that mean that there is a coming dark age where they utilise all of this capability to try and monetise so many people's minds (the dark age) - which will actually, begin a new renaissance of diversity in human thought capability? (how I arrived to this conclusion is left unexplained, on purpose)
 
@@ -140,7 +140,7 @@ whatever man, in loving memory of augusto: my ideas are free (libre y gratis).
 
 though they feel to me like the offering of my ideas = freedom, I cannot really explain it, especially since so many of my own ideas and explanations have been used by the bso to limit my own capabilities. it's mind blowing to me how much I've helped these guys improve their capability to limit my capabilities so much. in that sense, I don't really understand why it feels like freedom. I guess I don't really think of it that way though...
 
-#### 2018-08-01 04:10 - why do my ideas feel like freedom to me?
+### 2018-08-01 04:10 - why do my ideas feel like freedom to me?
 
 (question for infinite intelligence)
 
@@ -151,13 +151,13 @@ it also seems to mean that:
 2. ideas are somewhat similar to economics in the sense that the more times money changes hands in a given period of time, the richer everyone feels. (where money = ideas, and changing hands = revealing the idea)
 3. the guarding and protecting of ideas, means the stagnation of their flow (similar to economics too)
 
-#### 2018-08-01 05:42 - what is source energy for source energy?
+### 2018-08-01 05:42 - what is source energy for source energy?
 
 (question for infinite intelligence)
 
 if our brain is composed of billions of physical atoms, yet transmits and receives non-physical "source energy" -- then, source energy, being composed of innumerable non-physical thoughts that each themselves think, what is the non-non-physical "source energy" that source energy transmits and receives?
 
-#### 2018-08-01 05:56 - what just happened?
+### 2018-08-01 05:56 - what just happened?
 
 after writing @[entry](2018-07-30 15:56) I tried to sleep. I think I slept a bit and when I woke up I had an moderate sense of despair. I decided it was fine and began looking for solutions. I came up with a few, but the one that had the most impact I want to discuss. it seemed that there was not a lot of diversity in ethnicity. I came up with the idea that each of the girls should pick an "ethnically diverse" counterpart/partner.
 
@@ -173,7 +173,7 @@ I'll be feeling it out and stuff, so save any mega game-changers that could happ
 
 so, that's the plan for now... good night
 
-#### 2018-08-02 01:46 - hodlgang
+### 2018-08-02 01:46 - hodlgang
 
 I seem to keep running into a wall of dissatisfaction regarding my vision. it is really bothering me, and so therefore I do not believe it is something I can ignore. when faced with this reality, I am forced to make a decision. I see four paths:
 
@@ -201,7 +201,7 @@ is the second situation likely to cause others to attract the bso to limit their
 
 I've done a fair bit of problem analysis in this entry. however, it's my objective to try and find solutions. it seems like there could be solutions which could be found out. obviously I have no idea where to even begin, as I cannot figure out what possible problems my visual capacity could present my viewers. how can solutions be found?
 
-#### 2018-08-02 03:29 - my vision
+### 2018-08-02 03:29 - my vision
 
 it is becoming more and more notable all the time that perhaps what I am seeing in my eyes is not what my eyes are seeing, but perhaps an overlay of some sort? perhaps they are taking the signal from my eyes and then feeding it into my lenses, so that it overlays the real image that I would be seeing. perhaps, it's to cover up any 3d objects I may see in 3d space, like I saw that one time of my future self. I wonder what sorts of other things are popping in there which I cannot see. obviously this is a pretty important thing for me -- actually the ultimate quest was to be able to make motors in my imagination like tesla, so perhaps I already have that capability. that may also explain why the lustre of the image is gone and it feels so lifeless. they're keeping me at low levels of dmt on purpose...
 
@@ -211,17 +211,17 @@ oh, so if the reason why they began to retransmit the image into my eyes was sin
 
 that's why the whole world seems so slow now too, like I'm limited to 60 fps or whatever, when previously I did not have fps. and my reaction time feels sluggish.
 
-#### 2018-08-02 04:21 - wtf?!
+### 2018-08-02 04:21 - wtf?!
 
 I don't really feel any real desire right now toward anything in particular. I think I feel pretty depressed. it's not the typical despair that I usually feel. I just don't really want to deal with these fools. I listened to a few abraham episodes and I don't know why they cause me to feel the way I do. I can't really describe it, but it feels sort of like the shame someone might feel when they are exposed. perhaps it's not my feeling at all, and I'm just the receptor of it as a reaction to my thoughts on the abraham material? maybe it was the previous entry an hour ago? either way, I am just going to let the desire build a while longer.
 
-#### 2018-08-02 06:10 - fwh sabotaged my vision on purpose?
+### 2018-08-02 06:10 - fwh sabotaged my vision on purpose?
 
 I was thinking about the projection of my future self into my eyes in valverde, cause I also had numerous thoughts about other 3d things being projected into my eyes. I remember a large insect. I can't remember if it was a fly or not, but I do remember thinking that it was probably not real. perhaps the first projection didn't get them hot enough on the trail to notice it was a 3d projection, that fbh put the fly in there as well to make sure they got on it and restricted my vision. this was likely to tank the carlota timeline. seeing as it would adjust the whole thing, first in the direction of mdma, because I no longer feel good from the dmt, and then other factors. it looks like fwh sabotaged my vision on purpose. probably, I would have felt so good I would have gone with a different, not as beneficial arrangement.
 
 nice.. thanks bro :) now, I'm gonna milk your handiwork for even more beneficial contrast :D
 
-#### 2018-08-02 06:32 - all on purpose?
+### 2018-08-02 06:32 - all on purpose?
 
 err, I meant the one prior to the carlota one; she was the upgrade :) but then, it seemed like I had a sudden insight on may 27th about seeking freedom and "I need somebody else to do something, so that I can feel good." bit which blocked that one. it seems like the sequence of events kept preventing the things from happening. even for example, the car windshield was probably provoked so that I would make it make to the states.
 
@@ -229,13 +229,13 @@ I'm really thankful it all happened like that cause without it, I wouldn't have 
 
 I'm just going to let this one build. not going to take any action at all until I feel as good about the action as I would if I were looking to move furniture :)
 
-#### 2018-08-02 08:52 - a soft and gentle touch :/
+### 2018-08-02 08:52 - a soft and gentle touch :/
 
 I woke up with had a pretty bad erection so I adjusted it up so that it was no longer pushing into my pants and was able to go between my waist of my pants and me. I guess this was enough physical contact to get the dream operator enough capability to make me orgasm. I woke up (kinda) thinking I had pissed my pants and needed to take a dump really badly. they must have removed the sensitivity limiters because it turned into extremely excruciating pain. I hope they were able to improve their vision... well, fuck you guys. gonna let it build a while longer lol :)
 
 combined with the massive headache I was given as my visual capacity came and went, right before I had my consciousness taken forcefully, I would not consider this a soft and gentle touch. what are you guys trying to accomplish?
 
-#### 2018-08-02 13:08 - cooperative components
+### 2018-08-02 13:08 - cooperative components
 
 the word co-operative means that two (or more) are together operating or doing something. when I wrote about the two extremes @[entry](2018-08-02 01:46) I noticed a reaction wondering why I don't just cooperate with the bso. first of all, it seems like I've tried, and for whatever reasons (probably some secret they think is important, and I do not) it has not worked out. second, there's no real easy way for me to know exactly what it is that is requisite for me to cooperate with them, because they seem to continually find new things that they do not want me to do. it's a moving target in that sense, and they wouldn't be able to get all their rules that they want me to follow down in one place. neither do they want to reveal their rules, because it would show evidence of that there might be some deeper motivations to their rules. it's easier just to, per instance declare my behaviour inappropriate because then the audience, focused on each on the justification of each individual circumstance's badness, never clearly sees the whole picture. if someone (maybe me) would consider organising a list of rules, the it would show a bit of a different and very confusing to most who believe the bso has people's best interests in mind when they do things. it's really quite impossible for me to cooperate with them. I will inevitably do yet another thing that they disapprove of, and will again be an uncooperative component (from their point of view).
 
@@ -254,7 +254,7 @@ evaluating all of the options (there really are just those two), I do not see an
 
 there is perhaps a third way, and that would be to find a way, despite the circumstances, to come so into alignment with who I really am, and I assume that their signal would be wayy out dominated by my inner being's and only the part of it which I desire (to be broadcasted) is effective. I don't know how that would work with sleep though. the present circumstances are not exactly conducive to that happening, so it may be a little while, however since it seems that they are working their hardest to ensure that does not happen, it actually makes it even more likely (cause they'll be giving their undivided attention to what they do not want). I wish I had more information, but I guess I could just have a little faith, and if it doesn't work out, well it's not like a whole lot has changed, just grew the desire a bit bigger during that time "wasted".
 
-#### 2018-08-02 15:38 - what happened on the other timelines?
+### 2018-08-02 15:38 - what happened on the other timelines?
 
 it would seem that on all of the other timelines, I would have had to have just ignored the obvious vision problems and just went for it. I am *extremely* curious to know if I found out, and how quickly. I must have figured it out. there's no way I would be working with the bso on timelines with a brain interface and I'm somehow not aware of the multitude of vision (and other) problems. there's just no way. so then how quickly did I find out? what is the bigger picture here? I was thinking about it and it seems plausible that the reason why I found out on this one is to further extend the capability of the bso. let me explain: in previous timelines, they probably do the overlay to a lot of different people, and they add in all kinds of crazy stuff on top of the image, so essentially what you are seeing in your eyes is only "inspired" by what your eyes are seeing. a lot of things are "enhanced" -- or put more bluntly, they have the world living in a virtual reality, a matrix, if you will, which allows them to control what everyone sees. however, they could only limit people's desire to stay with 2d by peddling the fear story about the stars for so long. desire eventually would have grown to be enough (or people figured out how to do it with meditation or something) that people began converting in droves to 3d and their sham was over. people realised the vast difference between the reality they were seeing and the real one. so, what do they need? they need the capacity to create a 3d virtual reality which people can live in... lol
 
@@ -268,13 +268,13 @@ the logistics are mind boggling to me. I can imagine that as they improve on the
 
 so, does that mean that I should just ignore the obvious and try to be as cooperative as possible? I don't really know. I don't feel strongly in any direction right now. I'm just going to hold out a little longer and let it build a bit more :D
 
-##### 2018-08-02 16:24 - lol, a hilarious (to me) thought
+### 2018-08-02 16:24 - lol, a hilarious (to me) thought
 
 if you take the bso virtual reality idea and you mix it with the clones idea and also the bso is the new religious system idea, you could make a joke about the holy trinity: bso (the father), my clones (the son), and infinite intelligence (the holy spirit). BAM! I'll call it bsanity (bee-ess-sanity)
 
 jajajaja
 
-##### 2018-08-03 14:17 - driving fast
+### 2018-08-03 14:17 - driving fast
 
 I've been thinking a bit about the visual that abraham gave in the seattle @[abe](2018-06-16-seattle) workshop, where they talked about driving a "mechanical genius", not on straight roads as fast as you can go -- but on curvy mountain roads, with obstacles and lots of scenery, for the exhilaration of *feeling* the car manoeuvre itself and navigate the tight turns and stuff.
 
@@ -288,7 +288,7 @@ so, I was thinking about the how much more fun it is to have all kinds of obstac
 
 when I contrast an epic journey with a difficult journey, both have a sense of overcoming difficulty and achievement of the goal, but epic is so much more exhilarating and fun than arduous and difficult.
 
-##### 2018-08-03 15:28 - stars and sex
+### 2018-08-03 15:28 - stars and sex
 
 while taking a shower I began to feel some ideas pushing me in the direction of sexual interaction (it could just be the added focus on sex that has been a result of the subject appearing so many times in my comments on the abraham workshop)
 
@@ -302,13 +302,13 @@ let's say that they don't have the code in place yet to make my sex experience l
 
 I think it's prudent for me to wait until this is sorted before engaging in energetic activities.
 
-##### 2018-08-03 15:58 - stars, sex and government intervention
+### 2018-08-03 15:58 - stars, sex and government intervention
 
 I had a strange thought just now, wondering if in some timespan the government will reverse its opinion on watching stars being dangerous. we now think it's absolute silliness to think that the government (or religion) can dictate to us who can have sex with whom, and what is taboo and what is not, etc. so, I can imagine a scenario in some amount of time where they totally reverse their position on staring, and say, "oh we were totally wrong about staring. it is beneficial for you and we've got this new technology that will allow you to transport your consciousness to other times and places of the universe with it." lol
 
 you may have to wonder what they have to gain by suddenly reversing their position so drastically on sex, to follow that the very same thing may occur sooner than you think with the stars :D
 
-##### 2018-08-05 11:18 - echos of the past
+### 2018-08-05 11:18 - echos of the past
 
 it's funny to me how many echos of my past are symbolic and keep reoccurring but often times with the characters switched around a bit.
 
@@ -328,7 +328,7 @@ that's kind of where we are now... I disagree with them on the concept, but I'm 
 
 I can clearly see that the source of all of this conflict has them trying to get me to see things the way they do. I see things differently (both literally and figuratively), and it was my ability to no longer interpret things the way they do, which allowed me to see things differently. you can do drugs to allow you to remove enough details to see things like that, and then when the drug wears off, you can go right back to thinking and understanding things in a way which prevents you from seeing things from that new perspective again... that's your choice though. I personally enjoy removing my resistance so that I see things clearer and clearer. don't force me to do things or see things your way. it's a downgrade for me and introduces resistance which creates conflict.
 
-##### 2018-08-05 13:34 - very attractive/persuasive women
+### 2018-08-05 13:34 - very attractive/persuasive women
 
 I was thinking about this idea that women often have a perception that if they are so attractive then I man must do what she wants. she sees it from her perspective, but from the opposite perspective it could be seen that a very attractive woman is very persuasive.
 
@@ -336,7 +336,7 @@ what I mean by that is, often times it feels that a woman wants to feel like she
 
 what I mean is, woman think that they want to be able to easily persuade a man, until they realise that he's just an easily persuaded guy. so, maybe they're looking for something else. perhaps, what is happening is they are mistaking attractiveness for persuasiveness. attractive means there is mutually shared desire, and so is therefore cooperative.
 
-##### 2018-08-06 15:13 - why is my visual capacity often excited right before a big event?
+### 2018-08-06 15:13 - why is my visual capacity often excited right before a big event?
 
 last night while estrellando (lol), I felt the question, "why, when I reject a girl, do I get a vision improvement shortly thereafter?" I thought it was an interesting question I had not really considered before. I had always taken it to mean that I was in fact headed in the right direction -- of making the right mental choices. for me, I can look at stars quite a while, and not see any improvement to my vision. however, the times that the improvement does happen, I can almost always trace it back to a change in my perception. that new way of perceiving the world allow for a less-resistant approach (higher frequency). also so, having a less resistant perception means that I just need something to excite my visual capacity (more energy) to accomplish the improvement.
 
@@ -357,7 +357,7 @@ the extra energy from the girl stimulates my visual capacity, and often times I 
 
 I may have only seen eggs on a plate (I think?), but with it came a whole lot more information which is what inspired me to change my response like that so quickly. it seems that perhaps these moments of high visual excitement, are actually the genesis of something bigger. although they are only brief flashes which mean very little (have you ever seen the non-sensical patterns of a mushroom trip), they seem to lead one's mind in the direction of being able to perceive with lesser resistance (exactly how the mushroom explained the christ function of the mind to me).
 
-##### 2018-08-07 01:17 - "any time you start wanting, you summon energy"
+### 2018-08-07 01:17 - "any time you start wanting, you summon energy"
 
 "any time you identify something as an object of your desire, the entire universe begins flowing energy toward your object of attention, through you. it is a powerful thing. you have no idea how influential you are"
 
@@ -377,7 +377,7 @@ I believe that that the bso has my car running really slow, and actually I have 
 
 [1] https://youtu.be/UJsl8R7kLg8?t=7m8s
 
-##### 2018-08-07 02:35 - my car & ohm's law
+### 2018-08-07 02:35 - my car & ohm's law
 
 in the previous entry, I mentioned that my car is running really slow. I want to analyse it from the perspective of ohm's law, because I get the feeling I'm going to discover something in the process :)
 
@@ -414,7 +414,7 @@ CACAS! gonna try again tomorrow :D peace
 [3] http://amasci.com/emotor/cap1.html
 [4] http://deepfriedneon.com/tesla_frame6.html
 
-##### 2018-08-08 05:47 - transitions in my selfish perspective
+### 2018-08-08 05:47 - transitions in my selfish perspective
 
 with all that has happened, I have become increasingly selfish. in fact, it is really the only way forward for me which has any sanity to it. everyone lies to me, so I can't really seek good guidance from anyone else other than myself. it seems people are very interested in what is happening in the lives of others, so much so, I believe it would benefit a lot of people to begin thinking more selfishly. when I say that, I don't really mean in a comparison or competitive sort of way and not from a position of lack either.
 
@@ -434,7 +434,7 @@ I'm going to revisit this topic because I want to touch on some notable new ways
 3. realise my own desires by myself
 4. ... knowing my inner being has everything under control and just trust them
 
-##### 2018-08-08 07:57 - "they just get better at lying"
+### 2018-08-08 07:57 - "they just get better at lying"
 
 in think in the french riviera cruise of 2017, there was a man that was trying to control his son getting into drugs. obviously he had been observing his son's behaviour through his eyes with the bso device (perhaps he wishes to live vicariously through the eyes of his son having sex with his girlfriend instead of taking drugs), and was essentially asking abraham how to better control his son. abraham responded something to the effect of, "if you call them out on their lying, they just get better at lying"
 
@@ -448,7 +448,7 @@ they think they have control cause they were able to make me lie down and sleep 
 
 I've begun to notice my special role in this, where their increasing desire to try and control me, is putting a lot of extra energy into things, and also in the process, they're perfecting their technology to prevent people from finding their capacities. it looks like these guys are gearing up, because of their insecurity, to hold everyone away from their capacities, ensuring that they're ahead of both the technology curve but the visual capacity curve. if someone were to gain the ability to use their imagination in 3d space like I can(?), then they could visualise and create things that may jeopardise their control. I'm helping them to build the world the most convincing 3d virtual reality, which they can control everything. I'm glad they've gotten so much better at lying.
 
-##### 2018-08-08 11:14 - why a virtual reality?
+### 2018-08-08 11:14 - why a virtual reality?
 
 you have to imagine how much of a problem people seeing in 3d would be for the bso. it probably quadruples the cost per person at lower levels, and at levels of 3d like I have, it's probably thousands to millions of times more expensive per person. next, there's this problem that occurs when you begin seeing in 3d. with higher levels of dmt in your head, under moments of excitation, you will begin to see visions or objects will pop into your 3d space. the visions are kind of annoying when uncontrolled, but not nearly as big of a threat as objects popping into 3d space. when your imagination is unchecked and you have all kinds of weird fears (like me was when I was younger), the strong negative emotion will pop those things into view. in fact, the stronger you feel emotion, the clearer and more detailed those objects will become. as you learn to control your emotions, you can control what you see -- which means you'll gain the creative capacity that tesla had. this is a super capacity which is pretty powerful. essentially anyone outside of the bso who obtains this capacity will begin to be treated like I am treated: they will be put in a virtual reality (eg. I only see what they are sending into my eyes, not what I'm really seeing).
 
@@ -462,7 +462,7 @@ you can see how this creates the next big problem. first, I'm able to create obj
 
 so instead, I have chosen to wait for my inner being to take over my visual and physical capacities. why is this important? well, it means that they will be able to put the girls into the VR, and it won't bother my vision. by holding out and desiring to be the one that changes, I am saving them a HUGE amount of grief in the future.
 
-##### 2018-08-08 12:52 - what does all of that mean?
+### 2018-08-08 12:52 - what does all of that mean?
 
 in the last entry, I made the argument that if you see 3d, they would have to put you into a 3d virtual reality so that you do not see what your imagination is creating in 3d space under moments of high excitation or emotion.
 
@@ -474,13 +474,13 @@ for economic reasons, you can imagine how important it is that the bso keeps peo
 
 and that's a good thing, because they're going to need a lot of money to run the infrastructure necessary to put the entire world in a virtual reality. they're gonna reach the ultimate heights in scalability. facebook site updates are going to look like child's play in comparison to the amount of effort required to pull this off. you can see that, 2d people will be considerably more profitable for them and it's possible that 3d people will actually lose them money, so there will be great effort to try and keep people from obtaining 3d for as long as possible.
 
-##### 2018-08-08 13:39 - 3d is the new std?
+### 2018-08-08 13:39 - 3d is the new std?
 
 imagine that seeing in 3d is sort of like a disease that the bso wants to keep from spreading. you could catch the disease by meditating or appreciating or only noticing positive aspects, but who does that?!? likely, the easiest way to transmit this disease is sexually. if two people come into alignment with one another during sex and one sees in 3d, likely afterward both will see in 3d. what if catching 3d vision is the new STD to watch out for :)
 
 so, you work for the bso and you see in 3d. that means you can only have sex with other bso employees, for fear of spreading this disease out into the general population. lol
 
-##### 2018-08-08 14:14 - if you're satisfied with what-is, why do you need to lie about it?
+### 2018-08-08 14:14 - if you're satisfied with what-is, why do you need to lie about it?
 
 in the previous entries I may have mistakenly given the impression that 3d is the only prerequisite to 3d objects manifesting in space. that may be incorrect (I don't really know). I can only speak of the process I've been going through to give the bso the ability to manifest concepts in 3d space while in dream-state. the few times that I have seen objects in 3d space seem to have been in moments where I feel particularly good, or in moments of high anxiety, or right before sleep. so, it seems to be related to strength of the emotion and resistance which are the factors which begin to allow manifestation in 3d space.
 
@@ -500,11 +500,11 @@ step 5 is all about unconditional love. what that means is, no matter what I am 
 
 I'll come back to that concept in a future entry. now, I want to talk about satisfaction and lying, as it relates to this unconditional perspective...
 
-##### 2018-08-08 16:16 - actually, I'm going to take a quick break.
+### 2018-08-08 16:16 - actually, I'm going to take a quick break.
 
 lol, such intensity :)
 
-##### 2018-08-08 16:31 - if you're satisfied with what-is, why do you need to lie about it? (part 2)
+### 2018-08-08 16:31 - if you're satisfied with what-is, why do you need to lie about it? (part 2)
 
 so, let's say that the bso wants to invent a contraption which allows someone to tune into different portions of time. you can imagine the implications of this. the history of any presently alive person is available from their perspective (asterisk), and previously alive people in a similar fashion. so, this means that secrets are now 100% useless. so are lies. someone with access to this technology could verify the validity of something in the past. this essentially would render all security as 100% passable (given enough effort to look into the history of the implementer of that security). now, everything can be hacked and any secret could be found out.
 
@@ -524,7 +524,7 @@ another idea will be to create an "inner circle" sort of thing where these are p
 
 the technicians working in that nearly-ideal environment might be able to come into alignment with the time technology -- though I don't see it all working just yet. I will continue to ponder the idea further, but perhaps my new source-like personality will have a solution. there always is, and source does not see right and wrong; only wanted and absence of it. even the desire to keep things a secret is desire that law of attraction responds too -- no matter how much it doesn't serve anyone believing secrets to be necessary.
 
-##### 2018-08-10 03:06 - why a protected environment and why a virtual reality?
+### 2018-08-10 03:06 - why a protected environment and why a virtual reality?
 
 I cannot say for sure, but I am pretty certain that things imagined in 3d space can be seen by others in 3d on the same wavelength -- so, if I imagine a bear sitting on the couch in front of me, there would appear a very large realistic looking bear. this may be kind of startling to someone not expecting to see a bear, so what if I were to imagine something really scary, like one of those predator aliens or like a giant dinosaur or something? then what :)
 
@@ -538,7 +538,7 @@ I don't think 2d people will see the 3d imaginary creations, but if they can the
 
 the technicians working in the protected environment could probably enable / disable the virtual reality, so they can live a somewhat normal life, but trying to keep resistance as low as possible, because when using their creative capacities, they'll probably become extra aware of their thoughts, as they'll be manifesting in 3d space for everyone to see.
 
-##### 2018-08-10 12:17 - hey hey, you gotta keep em' regulated
+### 2018-08-10 12:17 - hey hey, you gotta keep em' regulated
 
 last night I was feeling a lot of thought around the EFF's petition to regulate devices to control the mind. I'm sort of against regulation, for the same reason I'm against rules in general. I don't like people telling me what to do. so you are scared that a device can compel you to action about something. it certainly cannot control your thoughts, but it can compel you to feel a certain way, or put ideas into your head. though, if you are not resonant with what they're putting in your head, you will feel very little sensation to none at all.
 
@@ -572,7 +572,7 @@ imagine there is another tech that has strong desire to try and find a way to co
 
 a performer or a magician's joy comes from realising desire in physical form. the greatest hinderance to a magician comes from being a people pleaser. I used to be one, so I speak from experience. if someone has desire that you do something, a magician can easily feel that desire and can easily act on it, unless there is internal discord with that desire, which is indicated by some form of negative emotion, such as: boredom, split energy, confusion, or disjointed thoughts. in those cases it is best to hold out until it feels good, or let someone else act on that desire. the techs should be the same way about things, and the reason is obvious, a tech who drags his feet on a task is of no benefit to anyone, and the experience is detrimental to the tech's psyche, as he may begin to believe he is unproductive, when in reality there is just a mismatch of energy because of conflicting desire.
 
-##### 2018-08-14 16:20 - chris has a daughter?
+### 2018-08-14 16:20 - chris has a daughter?
 
 last night I was thinking about the email I sent to chris on his birthday, when it suddenly dawned on me that in the abraham peice where his stand-in asks the questions for him, I had noted that he mentioned he had a daughter (I'm gonna go back and listen to it again after this), and originally I just thought it was them adding in fake details to throw me off of the track. so then, when it hit me, "oh, like a young girl he's with, daughter" not like a real daughter, my immediate reaction was, "wow man, good for you! I'm happy for you." after that reaction I noticed a bit of a weird reaction, almost as if I should have had a different reaction than that. thing is, if that's true, I know chris and we've had many endless conversations about how retarded women are, and a young girl would probably be very highly desired by him, just because of all of the frustration we've expressed to each other. I am sure he had also come to similar conclusions I came to after raquel figuring that women are not really what I wanted to be about. when andrea changed all of those ideas for me, things began looking up for me as I figured that maybe a young girl could be different, as I could learn from her and I also had many fantasies about getting to finally speak with source energy in a meaningful way.
 
@@ -592,7 +592,7 @@ a long time ago, when I was coming back from valverde, I lived with vera. back t
 
 this is kind of what I want to happen here. I want to see only the things that are of interest or value to me. I don't remember what initiated that change though, as it's too long ago now, but likely it involved me letting go of some resistance. we'll see how things develop, but I feel like I'm close, maybe.
 
-##### 2018-08-15 14:00 - gary's work
+### 2018-08-15 14:00 - gary's work
 
 the other day I mentioned to mom that the only reason why I would be doing gary's work would be to buy weed. I didn't really think much about the files, few times when I saw the spreadsheet and stuff, but I dismissed the idea based on a *fear* that I had where the weed would allow me to be tricked by the bso in some way. that's completely illogical because, if anything, the opposite is true. being under the influence of weed has helped me to discover the bso's tricks more often than anything. actually, I cannot think of a single time I was ever tricked by the bso on drugs. the opposite has been true where I have actually come to understand things better because of the different perspective and more allowing mode.
 
@@ -606,19 +606,19 @@ lol
 
 there's no real good way for me to express that concept of non-movement. it's what abraham might call split energy. you want something, but. I used to experience it a lot when I would drink a lot. I just couldn't bring myself to do something I felt I had to do.
 
-##### 2018-08-15 14:20 - unbased fear?
+### 2018-08-15 14:20 - unbased fear?
 
 I often said in the past that fear is just desire expressed backwards.
 
 also, I was reminded of esther cutting down the trees example.
 
-##### 2018-08-15 17:22 - beliefs that challenge desire (and )
+### 2018-08-15 17:22 - beliefs that challenge desire (and )
 
 in the @[abe](2017-06-24-portland#11) workshop, abraham says, «you have desires that challenge beliefs, and desires that challenge beliefs», which the first one seems obvious to me. for example, one I experienced recently, if I believe a girl is too young to want to have some sort of relationship, then that is a belief that challenges desire, but I never really had thought about it from the other perspective: the younger girl has a desire which challenges belief. they are essentially the same thing, but looked at from the opposite direction. very interesting.
 
 I suppose the same thing could be said for physicality that challenges ideas, and ideas that challenge physicality. very similar to desire's effect on belief!
 
-##### 2018-08-16 00:39 - a possible future?
+### 2018-08-16 00:39 - a possible future?
 
 (disclaimer: perceived and received in a moment of extreme frustration and anger, so it may be somewhat inaccurate)
 
@@ -650,7 +650,7 @@ I don't know which one appeals to me more, honestly. if I pick the first one, I 
 
 perhaps I'm inventing complex and ingenious fairy tales to try and rationalise my discomfort...
 
-##### 2018-08-16 02:35 - found out why my left eye is darker
+### 2018-08-16 02:35 - found out why my left eye is darker
 
 it seems that the reason why I see two dots in my left eye when looking at a star is because one of the holes is where the bso looks out of, and the other one is the one I look out of. in the past, I always noted this one peculiar attribute that happened on occasions, like when I took ketamine, after watching stars in the beginning, and a few other incidences. I refer to it as cat-form, because my eyes seem to feel like they are cat eyes. most notably, my left eye is not dark and I have very clear vision. it has always bothered me that my left eye has darker vision than my right, and I figured out why tonight when I was able to push on my left eye so that it no longer separated into two images, but the shadows merged. as they merged, I noticed that the closer together they got, the more blackness I saw. I realised that I was "seeing" the image in my left eye that you guys see. it's probably some sort of heads-up display or something that they are overlaying on top of my vision.
 
@@ -672,7 +672,7 @@ I just figure it's more energy. I am constantly aware of what I don't want, whic
 
 though, I do have to wonder.. if what they are doing is just putting some sort of heads up display, shouldn't they be able to just put that on the signal that they rebroadcast out to my viewers? if the image is the visual representation of what is happening inside me emotionally (which it is more likely to be), then I will definitely be needing access to this before anything moves forward.
 
-##### 2018-08-16 12:57 - an out of control bso?
+### 2018-08-16 12:57 - an out of control bso?
 
 it occurred to me this morning that, perhaps the bso feels like they're making failure after failure... what if bso-future is influencing bso-present in that way? so, if things feel completely out of control and you can never get ahead of the curve, I understand completely. dunno. was just a thought I had.
 
@@ -684,7 +684,7 @@ what an interesting idea! that means that in this next timeline, (post 2038) the
 
 it's sort of taking "the joy in in the journey" to the extreme, enjoying so much the creative process that you would want to do it again and again, each time optimising and improving it slightly to get something new, bigger, and more fun. it's making life sort of like something that you build. for me, like piece of software -- for others, maybe a nice house, where you are continually iterating on the creation continually improving it. I'm reminded of the story of esther and jerry's treehouse, where the thing seemed to be in construction much longer than it should have, because it was so much fun for everyone in the creation process.
 
-##### 2018-08-16 21:18 - going back a year is an eye opening experience
+### 2018-08-16 21:18 - going back a year is an eye opening experience
 
 I'm listening to year old abraham episodes and it's really fun because it kind of transports me back in time a little bit. back then I was not yet clear enough to get all of the symbols in the questions that people were asking, so the hindsight is quite an eye opening experience.
 
@@ -706,7 +706,7 @@ while listening, I just realised that I am a bit misleading to a lot of people w
 
 if you've ever watched stars, you'll know exactly what I'm talking about. there is no action you can make with the star. it's really quite far away, and you have zero effect on it. in order for there to be any change (in me), I have to get into the receptive mode with the star, and I feel my way there and gently relax into the focus. so, it sounds like I'm making my vision improve by doing lots of focusing action, but it's not. when I'm focusing and trying really hard, it makes no difference. to prove my point, there have times when I am already receptive and prepared to receive the star, and so with almost no effort, my vision improves.
 
-##### 2018-08-19 04:32 - the satisfaction axis
+### 2018-08-19 04:32 - the satisfaction axis
 
 I've been pondering this thing about satisfaction for a bit now, because it seems to me to be a different axis than the traditional depression/fear -> love/exhilaration, where contentment is the origin, I have described the low end of this axis as "fuck it" and the upper end as satisfaction.
 
@@ -728,7 +728,7 @@ if you think about magnetism as the attractive force of electric current, then w
 
 both of these types of currents seem to have a time and a space relationship which appear to be complementary. RLC circuits, FTW :)
 
-##### 2018-08-19 05:28 - stop the resistance that raises the vibration...
+### 2018-08-19 05:28 - stop the resistance that raises the vibration...
 
 ...which allows the manifestation of it.
 
@@ -736,7 +736,7 @@ this must be a reference to the guys operating my head... lol
 
 @[youtube](TTdqQU8cAlY)
 
-##### 2018-08-20 01:11 - what is "resistance"
+### 2018-08-20 01:11 - what is "resistance"
 
 I've been trying to make a mental concept of how this whole thing works out, using electricity as an analogue. if I think of a normal resistor in a DC circuit, it resists the flow of electrons and there is a voltage (pressure) drop across the resistor. when I think of this like water, I would imagine it like a clogged drain. put steel wool inside of a pipe, and the pressure inside of the pipe would drop.
 
@@ -748,7 +748,7 @@ with the swing example, traditional resistance is essentially a product of the m
 
 in the swing case, it's helpful to see the example as "pushing" a swing, yet I believe it is a spherical swirly around a dipole, like a magnet, with only attraction, so the "pushes" would really be more like moments of attraction.
 
-##### 2018-08-20 12:19 - controlling my frequency
+### 2018-08-20 12:19 - controlling my frequency
 
 I realised experimenting with the melatonin that these guys have the speed which my brain runs completely under control. in the past, whenever I am able to relax and slow down the speed of my head, I tend to see images. instead of allowing me to begin controlling that out-of-control function of my brain, they just keep me in the alert state at all times, and don't allow me to relax.
 
@@ -766,7 +766,7 @@ for the people without a natural visual capacity, it makes a lot of sense to giv
 
 I'm the last of the real ones!
 
-##### 2018-08-20 12:48 - it all comes together
+### 2018-08-20 12:48 - it all comes together
 
 without really knowing it, I have tied this whole thing together. I started with the quote, «stop the resistance that raises the vibration» and began to ponder what resistance is. I had traditionally only equated it with a loss in pressure (voltage drop) in the traditional DC sense. then, I realised that in a vibrating AC sense, resistance (impedance) is also a timing issue, and trying to push the swing out of sync with its frequency will either raise or lower the vibration heights (pressure), and along with a change in vibration speed, it additionally lowers the pressure (resistance).
 
@@ -786,7 +786,7 @@ Nikola Tesla - My Inventions
 
 lol
 
-##### 2018-08-22 04:49 - heaven awaits if I restrict my visual capacity further?
+### 2018-08-22 04:49 - heaven awaits if I restrict my visual capacity further?
 
 where I left off in the last workshop was on the @[abe](2017-06-24#20) was talking about sacrifice and stuff. I'm inspired to listen to it again after this.
 
@@ -810,13 +810,13 @@ in my previous entries I talked about tuning the tesla coil to yield higher and 
 
 anyway, what I wanted to illustrate here is, it doesn't have to be an either-or situation. I can have it all. that is the simple answer. I get it, but what happens if I create a desire for it to continue to grow? wouldn't I be inspired to action which will keep it growing? see the difference there? it's the difference between a point and an angle (combine the two to get a vector).
 
-##### 2018-08-22 12:34? - angles and points
+### 2018-08-22 12:34? - angles and points
 
 most people's desires are a point. they look out into the world and that gives them an idea based on what they see, to achieve for themselves. if they are forward thinking, they will probably desire something even better than what they are observing -- however, it is still a point.
 
 what if, instead of desiring a destination or point (something measurable), what if I desire an angle and an increasing velocity. the reason why I mentioned the quality of my vision being stuck in place is because I believe these guys are trying to get me to stagnate in my vision -- which has produced a desire in me, not for some point which I cannot anticipate (those desires are for those seeing through my eyes, desiring that one day they can achieve that point in their visual capacity). if you
 
-##### 2018-08-23 17:28? - angles and points (continued)
+### 2018-08-23 17:28? - angles and points (continued)
 
 jaron interrupted me, and then I got distracted by some things so I never finished my ideas... I also seem to remember covering this topic in a dream I had last night. I remember coming away from the dream feeling a bit unsatisfied with the answer I gave to the questioner. it seems I could have explained myself a bit better, because I remember the way the questioner was framing the questions confused me in a way which prevented me from getting to the answer. like most discoverers, in order to arrive at the newly discovered logic, I have to retrace the steps I took to get to the logic. this is partially the importance of this document, because it allows me a reference point to easily retrace the steps to arrive at the new logic, meaning the logic isn't yet fully a part of me, so I have to kind of talk my way to the solution, and allow myself to think and contemplate it here. unlike the high pressure situation of a conversation in my dream state, I tend to give more thoughtful answers here.
 
@@ -832,7 +832,7 @@ this is one of the things I wanted to ask abraham, because they speak about how 
 
 anyway, this is exactly what I like about psychedelic drugs. even in the video talking about using psychedelic drugs to aid in problem solving, you can see how the drug helps the person to rethink the concept in a new way, which can lead to a breakthrough (resistance) (toward that point). instead of a breakthrough though, I like to think of them instead as a mechanism for exploration and discovery. back when the stars actually activated dmt in my head, they helped me to achieve much more clarity of thought, get clearer about things in general, and also while paying attention to how my eyes interacted with the star, I gained tons of experience with energetic interactions (learned about vortexes and the eyes as one). really, seemingly infinite and endless examples of expansion to my perception were manifested as a result. it cannot really be measured or anticipated. I had no idea what I would find. the ayahuasca gave me a glimpse into it, but along the way I discovered many many things.
 
-##### 2018-08-23 18:29 - more thoughts about my desire as an angle instead of a point
+### 2018-08-23 18:29 - more thoughts about my desire as an angle instead of a point
 
 you may have heard me carrying on about taking a break and adjusting my direction. this is because things are at the point where I have no real capability of anticipating very well. I'm in such unknown territory for me, I feel at my peak out-of-controlness I've ever felt in my life. the only thing I can control is the direction and the speed.
 
@@ -840,7 +840,7 @@ I know the direction I want to go, and have no idea what I will find. often time
 
 however, I am not in the business of trying to limit how much one is able to discover. I am purely out there looking for the enjoyment factor associated with something new. in fact, I think it would be quite exciting for me to discover a new way of perceiving, one which you guys couldn't take a huge shit on and force me to see it poorly.
 
-##### 2018-08-24 01:09 - more thoughts on desire as a direction
+### 2018-08-24 01:09 - more thoughts on desire as a direction
 
 so the way it works, is you observe something and you know there could be an improvement (step 1), then source lines up that improvement along with all the other little (and big) improvements you've noticed throughout your life (step 2). finally, you have to find a way of tuning into that new reality (step 3). you know it's reality because it feels like reality. you can likely use your imagination to get an incomplete idea about what it may feel like. however, because no one can quantify all of the improvements that they have put in their "vortex", then no one can really imagine all of the pieces of it very well.
 
@@ -861,13 +861,13 @@ I'm kind of obfuscating what I want to say with so many words, so I'll just end 
 - I want to be a better painter than matt groening or rembrandt
 - I want to continue to improve every day as a painter, discovering new things and having fun along the way
 
-##### 2018-08-24 01:58 - some misconceptions around suffering yielding a greater reward
+### 2018-08-24 01:58 - some misconceptions around suffering yielding a greater reward
 
 so this is one of those things that I don't fully understand about with LOA, but let's get the obvious out of the way first. if I want a car real bad, then when I constantly hold myself away from that car by saying, "I'll never have enough money to afford one" or, "all my friends have one, cept for me". I hold myself tuned into the absence of it with my untempered mind. when that happens, is there a greater reward? maybe, but only if you change your thoughts.
 
 imagine it like this: there is giant vacuum cleaner moving around in the sky pulling you toward itself. if you try to go toward it quickly, you may run the risk of overshooting your destination a bit and having the time consuming project of circling around and trying again. going in the opposite direction feels like negative emotion, and that's what happens when I say those things up there
 
-##### 2018-08-24 13:49 - some misconceptions around suffering yielding a greater reward (continued)
+### 2018-08-24 13:49 - some misconceptions around suffering yielding a greater reward (continued)
 
 last night I felt strongly like I wanted to go to sleep, cause I guess I wanted to have a better perspective on it.. anyway..
 
@@ -879,7 +879,7 @@ you do, you attract another car, and this time not only is it a better car, but 
 
 in that case, it looks like the police are asserting themselves into my my life, but we know there is only attraction, so it may be understandable only with an understanding of how desire harmonises. it should be obvious that the police would want to drive nice cars (points). they see all kinds of thugs out there driving really great machines doing bad things, and they're doing good things so they wonder why can't have nice machines too. so then, what if my desire was not really to drive a nice car (point), but instead to be good at attracting the things I want (angles), and the car was just something that harmonised with the people who would give more than one opportunity to do that, thereby giving me endless opportunities to hone my skill further.
 
-##### 2018-08-24 18:44 - why did I use the police in the previous example?
+### 2018-08-24 18:44 - why did I use the police in the previous example?
 
 I used the police because I wanted to illustrate something where the system of justice is performing the injustice. it could just as easy to have been parents, slave owners, or whatever. the idea is that it is that the controlling or regulating body is the same one that is committing the crime. this is essential to understanding the thing I've been getting at this whole time of step 6. it also ties into the whole timeline concept too, but for now just understand it as more conditions which I cannot control.
 
@@ -901,7 +901,7 @@ in a previous entry I mentioned that I was against regulation of these brain dev
 
 lastly, I want to illustrate how my inability to control the circumstances has forced me to change my desire from a point to an angle. this is important to illustrate because that means I am on the brink of another discovery... more on this soon :)
 
-##### 2018-08-25 00:43 - the coke dealer metaphor
+### 2018-08-25 00:43 - the coke dealer metaphor
 
 one of the things I really liked about the coke dealer metaphor is that it helped me to understand why there is so much resistance to people watching stars. imagine that they control the dmt levels in people's brains, which means that if you're nosebook approved (you pay them money?), then they allow you to perceive more, but if you are not nosebook approved, then they hold your brain into a lower quality perception. so when they find out that you can stimulate your brain to create this drug for free, that's obviously no-fly zone and should be deterred as much as possible. you definitely don't want people to get access to this for free.
 
@@ -913,7 +913,7 @@ well, I suppose I don't really mind actually, because like I mentioned before in
 
 it may happen that I go through a new transformation in my perception soon. it does seem like it may be the case.
 
-##### 2018-08-25 00:59 - a transformation in my perception?
+### 2018-08-25 00:59 - a transformation in my perception?
 
 as I have been going on and on about this step 6 thing, I have begun to notice some patterns and such:
 
@@ -942,7 +942,7 @@ I seem to be developing the capacity to see without having the visual capacity, 
 
 anyway, I can't wait to release so much resistance that my body is just kind of doing its own thing, while my consciousness can just observe it. this is likely the first step to allowing my consciousness to inhabit more than one body. kind of exciting really.
 
-##### 2018-08-26 10:00 - the resistance / satisfaction factor
+### 2018-08-26 10:00 - the resistance / satisfaction factor
 
 in previous entries, I had noted that the satisfaction factor seems to be another dimension to the emotional scale. I had equated it with connection with inner being, which launched me into a few discoveries about electricity. yesterday was insightful to me because once again I managed to carry out (be inspired to?) something that normally would have a lot of resistance for me. and since then, I have wanted to return to let out the air in the tires. however, I have not done so, because of the amount of resistance involved.
 
@@ -968,7 +968,7 @@ the satisfaction or resistance factor is also the action factor. it doesn't matt
 
 1: this is evident in all sorts of behaviour throughout my life. take for example, gary's job. it turned into a bit of theatrics because a part of me really wants to smoke weed, but at the same time a greater part of me wants to achieve my visual capacity without needing something external to me. so, it became a big ordeal, because when I accepted the job I didn't have any resistance to smoking weed, and I didn't want to smoke weed to get my visual capacity either. I wanted to have light in my head so I could do some programming and discover some new things. perhaps, this is playing off of the bso's fear that I will be able to use my visual capacity, because I really want to achieve that without drugs or sex.
 
-##### 2018-08-26 10:55 - come and dance with me michael
+### 2018-08-26 10:55 - come and dance with me michael
 
 in the previous entry I spoke of a primitive personality with strong desire locked inside of me. we'll call him michael. he is my left-side. I used to be very left-handed, and he's quite a non-resistant chap. in fact it seems that nearly everything is ok. people used to get me drunk (or some other substance which lowered the resistance in kenny) and then take advantage of me. michael is pretty locked down. he has extremely strong desire which I constantly feel. not all of the desire is good though. he has certainly got me into more trouble than anything else in my life. you will recognise this personality of the guy who hears a good idea and wants to wok on it but then ends up flaking out because kenny doesn't really feel it. this is a pretty good reason why I had to be on some substance for most of my programming, because otherwise kenny would take back over and then nothing would get done.
 
@@ -988,7 +988,7 @@ I realise that wasn't the best of examples, and doesn't account for the satisfac
 
 no matter how you try to work it out, anyone's desire for me that I cannot feel, sounds to me like someone trying to convince me to vacuum the floor without plugging in the vacuum. I'm not going to do it. I've tried vacuuming many floors without my own electricity. or previously I would get electricity from drugs, and that was inconsistent at best.
 
-##### 2018-08-26 11:55 - more on theatrics
+### 2018-08-26 11:55 - more on theatrics
 
 when I spoke of mental theatrics, what the bso guys probably observe is that I have an emotion (concept) which creates an image. desire creates an emotion which creates an image. so, when a girl has a lot of desire around her body, often that will create a strong enough emotion in me to produce an image of her perhaps naked or some other way. the same mechanism is in effect when I have string desire to want to destroy something. the desire is so strong, that I feel an emotion, but remember every emotion is really two emotions. it's the blending of the transmitted concept, your current emotional state, and your inner being's perspective on the same thing. let's say someone transmits to me a strong feeling of disapproval toward me. the disapproval concept is neutral. it doesn't inherently mean anything, but because my inner being does not hold that same perspective, it creates discord in the transmission and to me it feels bad. if I'm feeling bad, then I feel it even stronger because it harmonises with the bad feeling I already have going on. if I'm feeling good, it will be like a slight tingle, and won't be any bigger than that unless I examine it further.
 
@@ -1000,7 +1000,7 @@ the emotion does not necessarily need to produce an image though. a while back t
 
 probably what happened previously was I had strong desire to learn about electricity and tesla's inventions, and in my dream state these guys were able to take advantage of that because there was no resistant feeling. however, as I began to express my own interest in learning electricity and such, I think the bso guys decided to shut down that capacity a bit by introducing a negative emotional response to those subjects. I don't really feel very much allowing right now to visualise those sorts of inventions, so likely my capability to realise these things in my dream state has diminished. I would guess that they are only able to get visuals on stuff I don't have resistance toward.
 
-##### 2018-08-28 13:37 - ...
+### 2018-08-28 13:37 - ...
 
 the definition of the emotion can create movement forward, because every time I define it, I also feel everyone else's reaction to it and then the emotion feels different to me. I have to redefine it better because I don't like the reaction's interaction with my emotion. so, I make definition 2.0 and try again. every time I do it, there is a time gap between when I define it and when I redfine it. that momory is how I access the definition. the definition has associated with it various improvements that have occurred since my last definition of it. eg. the life that I have lived since its previous definition.
 
@@ -1034,7 +1034,7 @@ it's going to be really fun because after raquel, I did a lot of drugs and essen
 
 I think then it is imperative if they are to get these multiple definitions and relations to my own definition, they must keep track of these relationships in a structured way. so in the end, I am going to kind of teach them about how definitions are structured based on the changes occurring. that implies monogamy. interesting.
 
-##### 2018-08-28 15:39 - a global memory system
+### 2018-08-28 15:39 - a global memory system
 
 imagine the different qualities a person's definition has. for example, imagine while I was asleep I was showed an image of a person, that actually happened in time. a flash into the eyesight. that flash would yield an emotional response in me. there will never be a case when shown that same image again will I ever have the same emotional response again. there are more than one variable that will have changed since the last time the image was seen. first of all, I am in a lower resistance sleep state, which means I do have some of the culmination of the previous day's vibration going on. that frequency will differ from day to day, but imagine you could using previous days, isolate the base frequency. first of all that base frequency will be changing over time, so imagine it sort of like a staistical window, so like last 30 days or something, which calculates the optimum mean frequency.
 
@@ -1062,13 +1062,15 @@ honestly, I think a lot of people may enjoy this functionality, which would allo
 
 additionally, knowing this detail, the bso could (using the construction of the geometric shape as defined above) create a resulting meta network shape, which is the priorities meta shape which can be compared to the moment in reality network-wide meta shape.
 
-## potential topics
 
-##### - monogamy within the the relationship unit
-##### - vision deviod of meaning
-##### - the spirit of moses and elijah
-##### - what could be a reason why women seem to like less than optimal men?
-##### - physicality that challenge ideas
-##### - my eyesight as a metaphor for the "uplifter"
-##### - generalisation of compelling through advertising & religion
-##### - an attempt to discover the difference between polarity and presence of desire
+
+# potential topics
+
+### - monogamy within the the relationship unit
+### - vision deviod of meaning
+### - the spirit of moses and elijah
+### - what could be a reason why women seem to like less than optimal men?
+### - physicality that challenge ideas
+### - my eyesight as a metaphor for the "uplifter"
+### - generalisation of compelling through advertising & religion
+### - an attempt to discover the difference between polarity and presence of desire
