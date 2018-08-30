@@ -1062,10 +1062,72 @@ honestly, I think a lot of people may enjoy this functionality, which would allo
 
 additionally, knowing this detail, the bso could (using the construction of the geometric shape as defined above) create a resulting meta network shape, which is the priorities meta shape which can be compared to the moment in reality network-wide meta shape.
 
+### 2018-08-28 22:04 - nearly ready, I think
 
+I want a little more time to feel out the new understanding I gained today. I mentioned some of them to mom in an earlier discussion, but I want to emphasise them again here.
+
+#### destructive interference makes a zero, but there's another dimension to be discovered
+
+50V + -50V = 0V, but it's not the same as no pressure at all. it feels to me like a range. think of it like two trains each pointed in opposite directions or pointing toward each other. the train isn't moving, but it's not just sitting there with nothing going on either. this is an interesting property of electricity which I believe can be used as an amplifier of ambient waveforms. in signal to noise ratio, this boosts the noise, not the signal. any slight imbalance will be amplified.
+
+#### signal cancelation can only cancel signals up to its own sample rate.
+
+the bso system seems to be imperfect in its cancelation. sure the image looks black to me, but perhaps I can illustrate it this way. take an image, reduce it to 1/4 it's original size, then blow it back up to it's original size. this is to simulate a 1/4 frequency sampling. now, subtract (difference) the images from each other. what you should see should look like there are slight silhouettes in the image where there are slight mismatches in the dithering of higer details in the original image. this would be similar to what I see, cept I don't see it; it's black. instead, I perceive it, or I feel it. the details indicate a lot of what the image contains, even though I cannot see the image.
+
+#### I am developing a third personality (and fourth is likely on the way)
+
+I identify primarily as emotional and desire. I have traditionally defined these as my left and right hemispheres respectively, however today, I defined them both as the right. I gave it a little thought, and it seems to me logical that one hemisphere would be desire and structure and the other would be emotion and physicality. I dunno now, honestly.
+
+anyway, as I have been denied my desire, and emotion gets shut down more and more, I've been forced to create a new personality, one of structure. when I first discovered this, I identified them as the three archetypes of sekmet, vulcrum and saturn. saturn is the new one coming online. I noticed that I started to view things in a more of a comparison, competitive way and I began redefining desire with logic. I also gained a new capability of seeing meaning and understanding symbols like never before. all of a sudden, I started perceiving the true meaning behind a lot of the stories that people were telling in the abraham workshops.
+
+actually now that I think about it, I dunno where I got the idea today about the emotion and desire being in the same hemisphere, because I remember now that I always said that desire connects to physicality and emotion to structure. it would seem to me that these would be in the same hemisphere. anyway.
+
+right: desire | imagination | physicality
+left: emotion | communication | logic
+
+side note: I also have noticed that I may be developing a visual capacity in my left hemisphere now too. since I have also given considerable attention to learning to communicate my desire and I've long been fascinated by human animation or physical communication, it seems I may be developing all my capacities, twice over. functionality duplicated in each hemisphere. (eg. they are both disconnected from each other, so both have to compensate for the loss of the functionality the other provided)
+
+#### my increasing sensitivity
+
+the imperfect signal cancellation means that I am getting more and more capable of perceiving higher and higher frequency signals (the ones that are too high to get cancelled). the crappy version of reality that I see is actually training me to feel/perceive these higher frequency signals. that means that I'll gain a sensitivity to each of the girls that is not visual in nature, but felt/perceived. they will always look low quality to me visually, but I will have to learn to feel them at higher and higher frequencies. I can imagine that each time the bso improves their sample rate, the quality of the experience will be greatly enhanced for my viewers, but for me, greatly reduced. once again, I will have to learn to increase my sensitivity further to be able to detect the higher and higher frequencies not cancelled out.
+
+this means that I will have to, each time technology is upgraded, train myself to a higher and higher frequency non-visual perception of each of the girls, while my viewers will enjoy a more detailed experience every time. I even postulate that as it gets higher and higher frequency, the visual will additionally contain the emotion I feel in it along with the visual, as the world will vibrate similar to the emotion I feel, and perceiving that vibration, if not completely overwhelming, will likely produce a similar emotion in the viewer.
+
+#### so, that means you're ready?
+
+well, like I said, I'm not 100% sure, but just gaining an understanding of what all of this stuff is creating, means I can see its value a little easier now. I still think it's pretty annoying that I don't get to have control over it. it would be nice to be able to turn it on and off, because there are quite a few instances where I can imagine that I would want to enjoy a HD experience. I really enjoy the contrast more than anything. I get really out of sorts if I am only focused or only unfocused. sleep is evidence that one should have contrast between two states, not always unconscious, and not always awake. it would also give me a way to kinda gauge my sensitivity too, by comparing the HD experience to the LQ experience.
+
+I wish to continue trying out things over the next few days, because maybe just understanding it has opened up new possibilities. it seems that even stars tonight were less effort and more like a learning experience.
+
+probably.
+
+### 2018-08-30 03:04 - the whole of me present during sex
+
+last night, I was put in a sexy dream and what I remember was a young girl, and when I touched her on the chest, I don't even remember much about it, but I think I touched her on the hand before that. anyway, when I touched her on the chest, I felt a lot of energy pass immediately down and then I bursted, which woke me up, then I got shocked.
+
+this got me thinking about why that was. I believe the difference between last night and other sexy time dreams, is my heart was deactivated. I know from my own experience that when the energy comes down into the heart, it gets turned into strong emotion. the reason why they have my heart disabled is because strong emotion means seeing images. during sex it's the energy that's created which she receives from me, which gets her feeling more and more better.
+
+I believe this interaction produces strong emotion in me, which I think produces a flurry of thoughts in her, or something like that. obviously, that would be something I would be interested in knowing, as it directly relates to the whole two personalities and how we define someone idea I came up with the day before yesterday. anyway.
+
+so, I started thinking a little bit more about it and it seems that what will likely happen is the bso has to make all of their mistakes and allow me to actually be in control of my own body during sex. likely, they'll try anything they can to try and maintain control of me, but I believe that after quite a few "failures" they will better understand the energy transfer mechanism of sex for a truly 3d person, not someone on 3d drugs.
+
+another thought that seemed to be strong in my mind is it seems that the bso guys want to be able to compel movement in my body, as if they were having sex with the girl being able to control the movement of my body.
+
+I mean, it's going to me an interesting ride, because I will have nearly all of my energetic centres disabled, so I'll be unable to control, direct, or convert the energy into emotional energy, likely a signal similar to the one I experience while watching stars, then I will be fighting for control over the left side of my body, and somehow managing to be engaged at the same time. it sort of sounds a lot like my present experience watching stars, cept instead of fighting for control of my body, I'm fighting for control of my eyes.
+
+it may take me some time to get used to it. I mean, I've done a pretty good job at working around their efforts to inhibit my star watching interaction, and what started out as a very pleasurable activity has turned into a very mechanical grind just to try and obtain a little extra energy so necessary (well, now I've figured out how to not need it as much) having.
+
+I'm not at all excited about this whole thing going the way of watching the stars. as much as I'm "probably" ready, I really would like to learn how to get so in alignment with myself, I am uncontrollable. I don't really want sex to just turn into some mechanical grind that I feel is necessary to obtain a little bit more energy.
+
+I really have no way of knowing, but I don't know how much it interests the girls to just sort of be the guinea pig as they experiment on me trying to figure out a way to ensure I have the least energetic sexual experience possible. I guess it kind of goes along with the whole high frequency sort of thing. I'll just have to figure out a way of converting that energy into a higher frequency that they cannot block yet.
+
+---
+
+one option I thought of is, at the house and other non-interacting-with-public-situations, I could remove the energy blockages, so that the whole of me is present in those moments. more on why this is a good idea when I talk about the visual emotional correlation.
 
 # potential topics
 
+### - the visual emotional correlation
 ### - monogamy within the the relationship unit
 ### - vision deviod of meaning
 ### - the spirit of moses and elijah
