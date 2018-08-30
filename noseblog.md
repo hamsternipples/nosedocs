@@ -1125,9 +1125,36 @@ I really have no way of knowing, but I don't know how much it interests the girl
 
 one option I thought of is, at the house and other non-interacting-with-public-situations, I could remove the energy blockages, so that the whole of me is present in those moments. more on why this is a good idea when I talk about the visual emotional correlation.
 
+### 2018-08-30 06:30 - the visual emotional correlation
+
+as I was talking with mom the day before yesterday about what it means to live in a virtual reality, mom asked me why I don't appreciate more things. I thought I did appreciate stuff, but maybe not the things that she wanted me to appreciate. this reminded me about how much easier it used to be to appreciate things. I also then noticed that my appreciation really slowed down about the time I was in valverde. it must be related to the virtual reality I thought. then, it totally hit me, claro I had been talking this whole time about the extra detail in the image and its correlation to emotion. when I used to appreciate, the better I felt, so my eyes perceived things even more amazingly. the better it got, the better it got.
+
+however, now with this new virtual reality, there is really no incentive to appreciate. actually, the more I appreciate, the harder they try to lock stuff down with stronger and stronger signals, so actually the more I appreciate, the worse I feel. the opposite is true as well: if I am complaining a lot, my world used to be perceived from a complaining standpoint, and therefore it would actually appear to me worse. previously, that incentivised me to appreciate instead of complain -- but now I see the same lifeless world no matter how rotten I feel. it may be true that complaining would decrease the dmt in my head, meaning their try-hard signals would be less, so it may even be true that complaining results in me feeling better.
+
+it also seems to have been true that they have not responded to me unless I complain. they have been training me to respond, perhaps without realising it, exactly in the worst possible way for me. the universe doesn't listen to bso try-hard signals. the universe just hears me complaining, which is focusing on unwanted and normally that should make me feel worse, not better.
+
+I thought that was kind of cool, because that made emotion visible from a different standpoint. not only does strong emotion produce objects in 3d space, it affects the high-frequency (impreceptable) detail of everything that I see. but then I realised that I may have dug myself a bit of a hole here, because knowing these guys, they're not going to wake up to the idea that LOA's effect on my visual experience is enough, instead they'll just try and figure out how to tint my world with the emotional response they want me to feel. eg. when I'm doing what they want me to do, I feel good and my world looks a bit nicer, and when I'm not, I feel bad and my world is more dreary.
+
+it seems to me that the mechanism of dmt is to allow your emotion to become visible. in low doses, it just changes how your world looks, things become sharper or more muted, etc. but then, in higher doses, the world seems to have an extra vibrance to it, almost as if it emits its own light somehow. higher doses still, and your imagination can manifest the way you believe something to be in 3d space. there are likely much more levels to it, which I will look forward to discovering. who knows what I can find with greater sensitivity at higher and higher frequencies.
+
+that got me thinking about how the bso transmits the signal. they are reading the signal at a pretty high frequency and rebroadcasting that into other people's eyes. that means that the HD viewers are perceiving my emotion and it is likewise producing a similar emotion in them. in order to make the image look really nice for the viewer, they stimulate the gland in the brain which produces dmt.
+
+this is the interesting part, which I don't have much knowledge of having my own LQ experience because they keep my dmt levels really low (though it may seem that after watching stars the image is a bit more vibrant, yea). so, I believe the viewer's dmt will probably modify the image to correspond with the viewer's emotion. so there will be an emotional response in the viewer as a result in harmony with their own emotional position, giving the bso the additional information of the emotion the viewer is experiencing while having the experience, by subtracting the broadcasted signal from the signal read from the viewer's eyes.
+
+for the HD viewers, my emotional vibration will be dominant (because it's what the viewer is seeing), so I will have a huge influence on the emotion of the HD viewer. after some time under that influence, they will begin to feel like I feel in that situation (and future ones that are similar).
+
+however, if they're rebroadcasting the LQ lifeless version out to people, then if they're activating the dmt gland to make that image shinier, then that means the viewer is seeing their own emotion amplified into my experience. in this case, the bso has the pure information of being able to extract the viewer's emotional reaction (necessary for the appearance network idea) by subtracting the broadcasted signal from the one read from the viewer's eyes.
+
+I wonder if this is the reason why I have such a rich emotional feedback to what is happening.. the HD viewers are sending me their reactionary emotion (discord or harmony), and the LQ viewers are sending me their pure emotion in response to the situation. it's far too much signal to analyse, so I just sort of feel it. that's going to be crazy during sex.
+
+also, I have to wonder, since the HD viewers are being influenced to feel like I do, why are they trying so hard to make me feel bad? I get that it's because they don't want me to see images, but making my viewers feel bad just so they don't see my images is something I would consider a bigger problem. ah, probably because it was never the plan for me to feel bad..
+
+though, I just thought of a different reason of maybe why that might be: in ayahuasca/dmt experiences (probably stars too), you may notice visual patterns that occur. those visual patterns are simple colours and shapes, but they're absolutely breathtaking sometimes. the reason why is because an emotion or concept is encoded in the visual. the simple pattern is just there to distract your conscious mind while the encoded concept reprograms/retunes you to a different point of attraction. I mean it would only be as good as the quality of the sample rate, but the HD versions of the images I see may include concepts and emotional data as well, which would (like my HD experience) influence that person to understand that concept or feel that way.
+
+they probably don't want to give me the ability to consciously transmit what I mean, and allow the HD viewers to have that emotional experience along with the visuals.
+
 # potential topics
 
-### - the visual emotional correlation
 ### - monogamy within the the relationship unit
 ### - vision deviod of meaning
 ### - the spirit of moses and elijah
