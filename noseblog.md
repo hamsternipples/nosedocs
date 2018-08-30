@@ -1153,11 +1153,48 @@ though, I just thought of a different reason of maybe why that might be: in ayah
 
 they probably don't want to give me the ability to consciously transmit what I mean, and allow the HD viewers to have that emotional experience along with the visuals.
 
+### 2018-08-30 10:55 - the spirit of moses and elijah
+
+100% of the "facts" in this explanation may not be correct, but this is an archetype duality that I thought worth mentioning. that is, combining my memory of how the "facts" are, along with some fanciful ideas, I arrive at these archetypes.
+
+elijah was met with some doubters of yhvh's power. so he summoned them to a competition. in the competition, elijah claimed that yhvh was capable of lighting the altar. so, he made the likelihood of this occurring by chance to be as close to zero as possible. he put water on the altar and made sure that it was impossible. his competitors made fun of him and laughed saying that his yhvh must be asleep(?). finally consuming fire came down from the sky and ignited the altar.
+
+first I must mention that the sarcophagus in the great pyramid is of the same dimensions as the ark of the covenant (that yhvh made with moses). the pyramid was likely an antenna similar in function to the one created by tesla to allow wireless transmission of electricity (and data) everywhere on the globe (the world system).
+
+I believe it likely that the device that was inside of the pyramid was stolen from the egyptians and also housed inside of the ark. leading up to that though, moses was an isrealite left for dead by his mother. the king's maidens grew him up in the house of the king. finally, after some time passed and he grew up a bit, moses' frustration rises to a point where he kills a man, which set him in motion on a series of events which would culminate in him leading the isrealites out of captivity. he appears before the king numerous times claiming various calamities would occur if the king did not let the slaves free.
+
+the calamities continued to increase in severity as time grew on. moses had strong desire for the freedom for his people. moses was not a slave. moses lived quite a posh life, but threw it away to save his people as his desire grew and grew for their freedom.
+
+if you have read worlds in collision, the events (as explained by velakovsky) seem to indicate that yhvh manifest those events (the plagues and the resulting consumption of the egyptian army) with the close proximity approaches of venus to our planet.
+
+each plague occurrence, yhvh hardened the pharaoh's heart and would not let the slaves go. makes perfect sense, as the pharaoh has all the power and moses was literally asking for his entire economic structure to be compromised by just letting these people go free. from the perspective of the guy in charge, total insanity.
+
+finally after the angel of yhvh smote every first born child (without the blood of the lamb on the doorpost), the pharaoh let them go.
+
+what I believe occurred was there was so much chaos happening when they were finally able to go, they decided to take the symbol of egyptian power and global well-being with them (later to be placed in the ark of the covenant). when the pharaoh found out they stole the technology designed some time ago by thoth as well, he changed his mind and pursued the isrealites with his army.
+
+the army perished in the mighty water displacement after the crossing of the red sea (see worlds in collision), and the pharaoh lost his slaves and the technology which the egyptians had built their dynasty on. obviously, if the egyptians understood how the technology worked, they would have built another device just like it, and their empire would not have taken a sudden downturn like it did. they built a whole lot on technology they didn't understand, and then these self-proclamed "chosen ones" (slaves) just took it with them in their exile.
+
+---
+
+you can see how I would mostly be in the archetype of moses, being king plant and all. I really want my own freedom, and I really want it for others too. it pains my heart greatly to know that so many people will never actually get to experience what I have discovered. instead, they will get the bso induced controlled 3d experience. it is to their benefit, that no one ever obtain the capabilities I have begun to discover for themselves, because it makes the real-3d people (plants?) very difficult to control. also, you can imagine that these plants are a major source of income for them so there's no way the pharaoh would ever just let any of us go free.
+
+there is an indescribable force within me that must have my freedom. no matter how hard I try to convince myself otherwise by trying to understand what is happening, I cannot shake this burning necessity to find my freedom. if you look at the entire conflict as a whole, I want to find my freedom before I agree to slavery. the pharaoh is having nothing of my freedom. he he will not change on that matter -- which is sort of fine. I have to do the changing. I have to become something different which will allow for things to move forward.
+
+as a result, a new personality is being created. I call him saturn. he is quite a bit more competitive than desire based moses. he is similar to the spirit of elijah in this case, as elijah made the competition, but instead of focusing on the "reality" or how much they were making fun of him, he was still able to allow his desire to grow so much that a cosmic event also occurred, making the impossible, visible.
+
+I fluctuate between these personalities quite a bit. I am not usually a person that that engages in competition, and up until this whole thing started happening, I never really felt the need to prove anything to anyone. I just knew I was right. it seems that I am starting to take on more and more the "spirit of elijah" -- leaving behind the raw desire akin to the "spirit of moses" which is my old personality, venus.
+
+---
+
+in this process, I have had the opportunity of being whatever I want to be. since venus was locked away inside of my head, only to be let out in my dream-state, I operated mostly from the perspective of vulcrum. historically, whenever I feel that strong desire raging inside of me, I have to control it emotionally because otherwise motion toward something that didn't feel good would get my into sticky situations. I pretty much don't go in the direction of situations that don't feel good any more.
+
+however, I am reaching the expiration date of the vulcrum perspective now too, because rough situations now, actually feel better to me than situations that can improve on things. this new personality requires such confidence in the laws of the universe that the logic of that is more dominant in my interaction. saturn's perspective seems to always be right. it's hard to describe, but it will give me the capability of doing inconceivable things (good or bad). 
+
 # potential topics
 
 ### - monogamy within the the relationship unit
 ### - vision deviod of meaning
-### - the spirit of moses and elijah
 ### - what could be a reason why women seem to like less than optimal men?
 ### - physicality that challenge ideas
 ### - my eyesight as a metaphor for the "uplifter"
