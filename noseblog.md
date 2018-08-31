@@ -1189,10 +1189,33 @@ I fluctuate between these personalities quite a bit. I am not usually a person t
 
 in this process, I have had the opportunity of being whatever I want to be. since venus was locked away inside of my head, only to be let out in my dream-state, I operated mostly from the perspective of vulcrum. historically, whenever I feel that strong desire raging inside of me, I have to control it emotionally because otherwise motion toward something that didn't feel good would get my into sticky situations. I pretty much don't go in the direction of situations that don't feel good any more.
 
-however, I am reaching the expiration date of the vulcrum perspective now too, because rough situations now, actually feel better to me than situations that can improve on things. this new personality requires such confidence in the laws of the universe that the logic of that is more dominant in my interaction. saturn's perspective seems to always be right. it's hard to describe, but it will give me the capability of doing inconceivable things (good or bad). 
+however, I am reaching the expiration date of the vulcrum perspective now too, because rough situations now, actually feel better to me than situations that can improve on things. this new personality requires such confidence in the laws of the universe that the logic of that is more dominant in my interaction. saturn's perspective seems to always be right. it's hard to describe, but it will give me the capability of doing inconceivable things (both good and bad).
+
+### 2018-08-30 15:04 - you need an excuse?
+
+mom was just talking to me about this impossible to believe lady.. she uses muscle testing to see if you have a device is installed. that means I need to actually believe someone, and up until now (on this subject), everyone is a liar. not one single person tells the truth. I cannot even remember how many times other people have told me I do not have a device. why in the world would I be more inclined to believe this woman? next, she can somehow get out the device under my skin without surgery? I also believe this to be impossible.
+
+so that got me thinking... what if things are getting so out of hand that they want to turn off the device, but cannot just turn it off, because unless they owned up to turning it off, they might be scared I would credit source energy or the power of my mind or something out of their own power to control. what that means is, they need to invent a phoney reason for the change. then, once they have the whole charade set up, they can tell people who believe in God, it was God. then, people who believe in whatever they can invent the most believable reason a person will accept, and then feed that to them... perhaps...
+
+if that, or something similar is their intention, then these guys love to apologise when they have no intention of changing, but when they actually want to change without revealing it was them causing the problem the whole time, they have to invent a phoney reason for people to believe because they want to maintain control.
+
+so, an apology means no change will occur, and if people can believe a reason which obfuscates the truth further, they can allow themselves to correct their mistake.
+
+but the intentional obfuscation is just digging a deeper hole, and provided no benefit either.
+
+---
+
+maybe I misread that one... I didn't think about how she said that they upgrade their system and the devices come back... which just means we're going to be more stealthy -- nothing more. it also means that this woman is the new goto guy whenever I detect more manipulation. lol, I guess they didn't have an intention to change after all.. which is fine. I didn't expect them to.
+
+### 2018-08-31 08:19 - some morning thoughts
+
+first, I must correct myself. it seems that the detail level in 3d is a property of emotion. at its grossest levels, it still looks pretty good. so, that means I only receive reactions from you guys higher than the quality level.. so just to put numbers to it, imagine the quality range is from 200-1000. the people at the quality level 200, will broadcast reactions from 200+. the people at 1000 will broadcast reactions at 1000+. let's say that jealousy was a reaction typically around 150.. that means, I only feel jealous reactions from lower quality people. the higher quality people may have jealous reactions, but I won't really feel them. instead, little by little the more their jealousy reaction causes discord in them, and since my frequency is the dominant influence, they will begin to practice a more "worthy" feeling similar to mine, when having my experience. I am literally transforming the world as people watch through my eyes.
+
+next, I'm beginning to be able to put words to this new sort of logic. it will be the subject of the next entry, probably.
 
 # potential topics
 
+### - moses, elijah, and a potential future
 ### - monogamy within the the relationship unit
 ### - vision deviod of meaning
 ### - what could be a reason why women seem to like less than optimal men?
