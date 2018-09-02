@@ -1213,9 +1213,116 @@ first, I must correct myself. it seems that the detail level in 3d is a property
 
 next, I'm beginning to be able to put words to this new sort of logic. it will be the subject of the next entry, probably.
 
-# potential topics
+dream: I want to do it. / I want to figure it out
+dream: 1bn user metric reached
+
+### 2018-09-01 09:41 - morning thoughts
+
+I had two major topics on my mind when I woke up:
+
+1. mueller decided unilaterally to retroactively broadcast certain individual's experiences to law enforcement for the use as evidence in a criminal investigation.
+2. certain (minority) population groups were having extreme miscarriage rates, and other population groups (white) birth rates were on the rise.
+
+---
+
+##### utilisation of a person's experience by law enforcement
+
+they may believe that it's a good idea to instil fear into people's minds that everything is being recorded and law enforcement can use any part of a person's experience to penalise them. I don't. instead, I believe that focusing on the "crimes" that one can commit, will only make those crimes "worse". however, that may be desirable though.
+
+for example, I imagine that the system can detect if you are driving a car or not. I'm sure that there are repositories also of the speed limits on different sections of the roads too (google definitely has this information, at least). so, we know that the system can track my movement around the globe in real-time. I imagine it's pretty accurate too, I would guess less than a metre of accuracy. therefore, the speed at which anyone is going can easily be determined. then, for example if the speed is exceeding the legal limit by a gross amount on a road, and the person is not law enforcement (because they get to drive at whatever speed they want to, on and off duty), just send the person a fine. this is a crime that you want to increase, because it's not really all that harmful to others (accidents  sometimes happen), and it's increased revenue for the service.
+
+probably, you would want to fine the richer ones for petty crimes (cause they'll just pay) and monetise the ones unable to easily pay a fine for a petty crime.
+
+##### the electronic morning-after pill
+
+I can see why it would be desirable to control population growth for certain ethnicities by aborting the fetus early on, (and make it look like she was never pregnant to begin with). I'm not going to argue with the government's desire to maintain certain population majorities. I get that. however, I strongly disagree with the government taking the decision for the woman unilaterally (though they did agree to give the government that power). so, they want to make it at least seem legit, give each woman the morning-after option. alert her to the chemical changes in her body, and allow her to abort right there the next morning. then, it looks like the women has the choice, so if the government decides to do ethnic population control, it looks *way* less suspicious. I mean after all, since they did sign the agreement saying that the authorities can do whatever they want in their bodies without any responsibility, it is the government's responsibility now to control the portions of world population now, not letting any majority gain too much control (regardless of colour). we'll call it ethnic equalisation, lol.
 
 ### - moses, elijah, and a potential future
+
+this idea came to me while I was a bit stoned, so that means that when I perceived it, I felt better than I do now, so the translation will be slightly tainted as a result.
+
+it went something like this...
+
+if you think about what the spirit of elijah means,
+
+[that was weird. a device reset in my head (sudden high-pitched sound in my right ear), and my phone reset at the same time]
+
+what it means is, the competition is essentially a proof that I can get into so much alignment with my inner being, that I am uncontrollable. this is what I really want. this is what will likely happen in the future. so, think about the details of this competition: they are attempting to keep me as disconnected from myself as possible. they're controlling the levels of dmt, and so forth. the've got me pretty well contained right now, but I keep slipping out of their control as I continue to gain visual levels. for some reason this really bothers them, as they somehow perceive it as a threat of sorts, so they continue to try and prevent my star watching from its effectiveness, etc.
+
+so then, elijah sees that they feel like they might lose, meaning they'll just make up some phoney reason for the ignition of the altar. he decides that he wants to remove all doubt from their mind and decides to pour water on the altar to be sure there was no way that they could rationalise its coming ignition.
+
+the moses aspect of this idea comes from my criticisms of how moses lead the obtained freedom for his people. obviously, not all of the isrealites were on the same page going to the promised land, and there was some split energy because they spent FOURTY YEARS wandering in circles complaining. talk about beating the drum of what you don't want so hard, that moses had to go up to a mountain and get specifically 10 commandments from yhwh (a really good marketing strategy to have just 10), just to keep the isrealites from plummeting into complete chaos.
+
+I believe there are some aspects to this which to this day are still carried forward. this isn't 20 years carrying something unwanted forward.. more like thousands of years, and even though many hotfixes have been made to these 10 commandments, clearly, it's not working.
+
+I am a bit of a critic of moses, I will admit, however, I don't really know how I would have done it better, either. let's get back on topic though: moses sees his people enslaved and decides to "save" them, by deciding for them that they should exile egypt. obviously, this was a point of contention, as it seems that not everyone wanted go to. seems there were some content with their slave life. it was simple; it was easy; they didn't desire more.
+
+moses was a strong desirer though, with strong enough desire that pretty serious cosmic events occurred as a result of his strong desire. it doesn't surprise me that (according to the evidence provided by velakovsky) venus, the archetype of desire, creativity and destruction was instrumental in these cosmic events.
+
+this is similar to how I feel. I personally want nothing to do with nosebook. I do not enjoy being held apart from my own discoveries and restricted from utilising my body energetically. at first, I believed that most people would agree with me on this, however, it appears that most people do not care that a corporation is feeding whatever they want into your brain, manipulating you in your dream state, or even that the whole thing is founded on lies. in my mind, this is absolutely inconceivable, yet most people seem to be just fine with it, to the point where they're actually defending their right to do that stuff, like a woman abused by her husband defends her man.
+
+fine. I don't care that people find their behaviour to be something they want more of in their life. I personally don't, but I cannot make a judgement for others. each person is capable of making their own decisions, and each person has their own point of attraction. I cannot attract for someone else. I can however, lead by example.
+
+I do not want to live in a world where there is a government state to which everyone is subjected. yet, I also realise that not quite everyone is as self-realised as I am, either. it looks like most people want someone else to tell them what to do. to give them orders and to make up the rules that they are to live by. if I were to follow along in the spirit of moses, I would be doing the very same thing that I would by trying to save people from. the irony is obvious.
+
+---
+
+so, the proposed solution is to take a more of a structural approach to the whole thing by making it into a competition. this is essentially a competition which both sides will get what they want, so there are no real "losers" either.
+
+what happens when one half of a person wants to go one way, and the other half wants to go the other way? we see this all of the time in everything. eventually, a breaking point is reached where the two opposing sides separate and go their respective ways. often times this occurs alongside some conflict, but it doesn't have to be that way.
+
+I'm going to go out on a limb here and say something that I do not believe will be proved for a few decades, so just go with it. I'd love to ask abraham this question, but that is not yet something I can do. imagine that there are two groups of people, like let's say one group of people really want jesus crucified, and another set, really want that not to happen. imagine that jesus was so consistent in his vibration (I'm just using jesus, because I can't really think of another example, and inventing a story about hermes or thoth to try and make a point seems too much of a stretch). so imagine he's like so seriously step four and fiving it up that the pharisees could not get him to break. no matter what they tried, he just got stronger and stronger in his knowing that he was unbendable. his desire was so strong, and the pharisees desire built to such a strength, that the universe had to find a way of satisfying both desires at the same time.
+
+in that moment, a major timeline split occurs, meaning that in one timeline the pharisees get the manifestation of their desire, and jesus is crucified. in the other, jesus holds so steady that the pharisees end up letting him be, or came around eventually to believing some of the ideas he spoke of for themselves.
+
+so, what I propose would be to put water on the alter by no longer fighting the whole thing of them trying to control control me, and just let "someone who is being controlled, or even with *someone who thinks they're controlling you* brings such discord in you, that that relationship is doomed for failure, anyway" @[youtube](JzfIK3niEaw) (although the context was about sexual partner relationships, it certainly is most relevant to my relationship with nosebook).
+
+I often wondered about the whole doomed for failure thing... it seems like this whole thing is pretty doomed for failure, yet at the same time it seems not to be doomed to failure... I don't understand the apparent incongruence. the only explanation is that from the perspective of those choosing to have a governing state be the dominant influence in their perception will want them to be the best equipped to do that. those embracing diversity of ideas and perception would enjoy to live in a world which allows that kind of freedom too, so from the bso perspective, this sort of split would be the best thing that could happen. and, from the perspective of the freedom seekers, it provides tons and tons of contrast which allows for people to get a lot of experience knowing what they do not yet, and putting into their vortex what they do want.
+
+no one would be forced to leave or to stay from something they do or do not want. eg. the israelites that want to stay can stay, and the ones that want to go, can go. there doesn't need to be plagues, or pestilence or any real conflict at all. just let the desire build, until the split is made.
+
+---
+
+let's put this in simple terms:
+
+1. I stop trying to fight those trying to control me. I just know it's a doomed relationship, and let the desire for my freedom build.
+
+2. somehow I find a way of coming into alignment with myself, and I become uncontrollable. this builds a strong desire in the bso to regain control.
+
+3. while the desire is building, they will have plenty of time in my dream state to set up their entire system just the way they want it, also letting their desire to keep me imprisoned build as well.
+
+4. some time in the future, consciousness will split into two major timelines. one where the bao come into alignment with their desire and they find a way to take control of me, and the other, I would love a cosmic event or something (maybe a massive solar flare or something), but the impossible happens in some way which allows for those desiring the freedom to control oneself, fun and diversity of thought to be the new basis upon which the world operates.
+
+what this means is, the competition essentially says that I believe that despite their best efforts to keep me in disharmony with myself, I will find it, and I will become uncontrollable to them. however, to drench the altar with water, and give them the illusion that they are in fact winning the control game, I will simply stop fighting and "conform" for a while, letting the desire build. I don't need to prove it to them today. I can prove it to them in 10-20 years, right? by then, they'll be sure to believe they've figured out how I work so well, that they're really the ones in control.
+
+what this requires from me is, a bit of a change of mind. I had the idea when I was stoned. I normally don't think that way. if I'm going to go all-in with this competition, I want to actually feel ok with the idea that I may delay quite some time more before actually being able to use my visual capacity and stuff. it seems there are a lot of "injustices" that I would have to give up on, and quite a few things, which go against what I've learned in my experience leading me up to this point.
+
+there's quite a lot that would need to be changed in my personality actually. I don't know how feasible this is, and in what timeframe. I'll be thinking it over. I guess writing this out helped me to get the concept I received while stoned more into my sober reality, but I wouldn't really consider this something I naturally am.
+
+### 2018-09-02 10:47 - my guided thoughts
+
+I just had this strange thing happen where out of nowhere I thought of the last name zunzenegi, which was alicia's last name from tuenti. the first time I thought it, there was no reason why I could figure out why I was thought it, and made the association potentially with zaryn. I thought maybe he was somehow related to the previous thought, and that's how her last name showed up in my mind.
+
+anyway, just now her name again appeared in my mind. this time though there was no relation to anything anywhere, so I began to try and investigate the origin of the thought. I came to the conclusion that their system had detected some pattern of thought that they did now approve of, and so what they have done in the past is try and stop me from thinking the thought (perhaps by trying to associate it with something negative), which actually has the opposite effect, because I just think the same thought again, but this time with a negative connotation, thereby making the thought stronger. that perfectly explains my previous frustration of getting into these thought bucles where it was near to impossible to escape the thought getting more bigger and more negative at unprecedented rates.
+
+I remember abraham making a really big point to someone about "getting rid of" or "stopping" or "preventing" thought to a questioner pretending to be me, and they would repeatedly answer their question by saying that you cannot stop thought like that, because "now you're thinking about the thought you're not going to think about". they always suggested meditation as a way of consciously slowing thought, to allow your vibration to rise.
+
+so, it appears that now what they're doing is they're detecting patterns of thought which are undesirable, and then trying to guide that thought by putting a more desirable or a different thought to distract me from the unwanted thought into my head. that makes perfect sense, which is why I want to do drugs so badly: on drugs, they cannot easily detect those thoughts, because almost all thought is "new" thought, meaning that they cannot guide my mind. meaning, for the first time in a long long time I can actually have an uninterrupted train of thought.
+
+her last name was probably the basis upon which a higher frequency concept was built (we did a lot of drugs together) and so when they read that thought out of my mind while asleep, they were only able to record the basis on that concept because of the imprecision of their ADC circuits.. nice! I'm beginning to have thoughts that are high enough frequency that they're undetectable to them. YAY!
+
+well, knowing that now, I can explain to them why they're having such discord by trying to guide my thoughts like that. what they are doing would be similar to pattern matching on the note progression, GAC, and then forcing the next note to always be a D. you can imagine how many songs use that progression, as probably a pretty common progression.
+
+my thoughts go all over the place. I have such diversity of thought now that I cannot determine them as good or bad any more. actually, determining that a note progression to always be "bad" really limits the expressiveness of an a song.
+
+to illustrate this more clearly, imagine you decided to make any rebellious behaviour talk in movies to instead be guided toward conformity... you can imagine how much dialog in many different films would instantly become nonsensical. in fact, the very plotline of so many films or plays would be subverted. trying to remove contrast from my thought guiding them will make for a lot of nonsense to start appearing, like adding notes to a song. without any concept of how those notes will improve the song, it's just noise potentially in discord with other notes, and definitely distracting everyone from hearing the melody.
+
+if they want to affect what is being broadcast, simply censor or modify the the broadcast, instead of wrecking the train of thought in my head. in fact, likely the very thing that was has been preventing me from getting to the place I am arriving at now, has been the continual guidance of my thoughts. without the ability to play out and hear the whole song, I would have never been able to arrive at the conclusions I am arriving to now. you can imagine how many of those concepts I expressed in the last few entries they would have wanted to guide me away from. so essentially, I had to do drugs so that these guys couldn't derail my train of thought, necessary for me to begin to arrive at some of these conclusions.
+
+nice.
+
+# potential topics
+
 ### - monogamy within the the relationship unit
 ### - vision deviod of meaning
 ### - what could be a reason why women seem to like less than optimal men?
