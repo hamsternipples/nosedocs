@@ -1321,6 +1321,51 @@ if they want to affect what is being broadcast, simply censor or modify the the 
 
 nice.
 
+### 2018-09-03 02:19 - whatever man...
+
+it feels like there's some pressure to write something. :) lol
+
+I see no reason to try and make any effort in any direction. I don't have any energy flowing. I have no desire, no feeling, and no stars. for me that always means that I don't take any action until I feel it. I get the whole thing about the deadline or whatever, which is why I don't feel any need to make any action. you're the ones with the deadline, not me. I just stay put, keep lowering resistance and watch my stars and everything is fine. it feels to me that, although I feel completely dead emotionally and have no energy flowing at all, it does not feel at all like that is something that will last forever. there are times when the energy comes back, but then it goes away again. it's all good. you cannot expect a car without gas to be able to drive itself. you guys want to be in control anyway.
+
+I'm still in the process of conceptualising these ideas I'v been throwing around. I do know of an easy way to change my point of attraction. I am so confident in my ability to pull through, especially now, that I have reached entirely new levels of apathy. I cannot describe the feeling, but when I was younger, I often times desired to prove myself, or to be right. I gave that up, and just started knowing that I was right regardless of what anyone else was thinking. I still cared a bit what others' thought about me though. all of that is gone now, so I do not even feel the need to even surrender, or try, or to even cut my losses and move on. I have such confidence in my knowledge that I do not need to do anything, that it feels to me like apathy
+
+apathy is a knowledge that one must do something, yet decides to do nothing, because of lack of motivation, laziness or lack of desire to express oneself.
+
+### 2018-09-03 11:47 - if you really want to put the cart before the horse..
+
+I have two things that are important to note:
+
+1. I cannot, under any circumstances, make someone else responsible for how I feel
+2. I feel and then out of that feeling, I am inspired to action. not the other way around
+
+I suppose, if you think about the first one, a way around it would be to make more than one person responsible for how I feel. it sort of feels like the hard way of doing things. what this sounds to me like, is I will continue to live a more and more diminished experience, so in order to obtain the drug I need so much, I need to have sex. so, much like how the stars are kind of necessary for me right now to kind of dissipate and obtain some energy, that would become the function of sex. sounds very much like the hard way of doing things. there has to be some objective to compensate for the increased difficulty.
+
+---
+
+to me, this is very much putting the cart before the horse. to me this is the basis upon which a whole lot of fail will occur. in the past, trying to take action without the solid sure feeling behind it, is sort of like the recipe for failure. sure I learned a lot, and had a lot of fun and learned a lot of things in the experience, but it did not satisfy the objective, ever.
+
+I cannot knowingly put the cart before the horse like that any more. I know too much. so, probably in order for this to be able to happen, I would need to redefine the objective. if I were to instead focus all of my energy on the girls, I could, like a parent often does with their child, feel the satisfaction of watching someone else achieve something.
+
+besides that it sort of seems like the obvious thing to do already, I suppose it would sort of relieve some of the dissatisfaction regarding my inability to achieve it for myself. I have often times noticed this about a lot of teachers, where they feel so disempowered to achieve their own goals, they invest enormous amounts of energy into their students. I sort of resent those teachers a bit, because I'm a self-realised, self-achiever, helping someone else really never works like that, kind of guy. my most impactful teachers actually knew what they were teaching. they even had the feeling of showing off their ability to us noobs at times, too. (lead by the clarity of your example)
+
+---
+
+I don't really want to put the cart before the horse, cause I don't really feel anything right now. I could try shifting my desire to get energy moving in the direction of the girls, but if I have nothing to give, then it sort of feels like a bad deal, where they're responsible for generating the energy that I give them?
+
+I dunno, it all sort of feels a bit strange. not really bad, but not really good, either. if you guys want to put the cart before the horse, in this sense, then you will have to make it happen. I will make no effort to do something that is opposite of everything that I have learned in my life. I want to teach with the clarity of my example, and the problem is, making sex responsible for getting energy moving, is *not* the example I want to give. in my opinion, those are *not* the first steps that should be taken for someone in my position.
+
+the thing is, I know that it'll be a really good success, too. and so, my example to you all will be, do things the hard way and you will find success. however, the success will have nothing to do with the sex, but the power of my focus. it just feels like my example will further obfuscate things, and people will believe even more in the power of hard work and sex (which, now that I think about it, is probably what they want people believing in), instead of easy energy movement and flow.
+
+---
+
+if that's what you want, make it happen. I'll figure out how to operate within the new circumstances.
+
+there are a lot of open questions, and I don't really know how to shift my desire to start living vicariously through the girls' success, but I'll figure it out, I guess.
+
+one of the things that really had a large reaction when I was talking with aaron was when I spoke of me desire to not do psychedelics right now because it would reset my personality. the last time I did mdma, it essentially removed all my logical and reasoning capabilities, making me a feeling kind of person. it's a weird feeling because on one side you feel so good about everything, it reminded me a bit of the morphine in the hospital feeling, but at the same time you're super amped up (it's an amphetamine) and really want to begin making sense of everything. for me, it's a super creator of desire to "do", but you're a bit paralysed because everything is feeling, so you have no ability to actually "do" anything meaningful.
+
+it's been bothering me ever since I mentioned it to aaron, because something similar to that is exactly what I need to make this transition. I have to reset my logic and take a feeling based approach in order for this to work, I think. it's come up in my mind enough times now, I think it's important to mention.
+
 # potential topics
 
 ### - monogamy within the the relationship unit
