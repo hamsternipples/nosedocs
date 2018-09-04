@@ -1425,19 +1425,22 @@ the disabling option gives the person the illusion of control, just like how a p
 
 I started noticing that there is a bit of a pattern to how I transform thought. I like to separate the description (detail) from the subject itself. this allows me to be able to begin seeing the subject in its purer form. I also like to apply some transformations on the subject (person, body, house, etc.). here are some examples.
 
-- an easy comparison to make me feel a bit better
+- an easy comparison to make me feel a bit better (liftoff)
   - "I've done dumber things"
   - "it could be worse"
+  - "I'm not the ugliest person in the world"
   - "I've definitely been in worse situations"
 
-- a fact that about relative or relational status
+- a fact that about relative or relational status (gaining speed)
   - "I've always found my way out of these types of situations"
   - "maybe I can just try for a little bit better"
-  - "not everyone thinks I'm stupid"
+  - "not everyone thinks I'm stupid/ugly"
+  - "some people think I'm smart/pretty"
 
-- a loosely related true fact about the subject.
+- a loosely related true fact about the subject (pivot)
   - "lots of people like me"
   - "I am a creative person"
+  - "I've got great boobs"
   - "I've [probably] got hidden talent ready to be discovered"
   - "I can do anything I put my mind to"
 
@@ -1448,6 +1451,14 @@ I suppose you could make the effort to try and transform your thoughts just to g
 I believe there is a lot that can be optimised about these thought transformations, which is why I suggest making this available to everyone as an opt-in base user function. the reason why say it should be disabled, is because you can see when nosebook tried to guide my thoughts, that trying to transform someone's thoughts that they do not want to transform, will only exacerbate the problem.
 
 I really believe there is a lot that can be learned about this process. all sorts of people will try out all sorts of different transformations on themselves, and it will grow naturally. no one should force anyone to transform their thoughts, and no one should set the benchmark for the way thoughts should we transformed. lots of people will do this lots of different ways, and nosebook can just sit back and quantify their improvement. likely, the improvement to different types of transformations will also reveal more about the person, and how they process life.
+
+### 2018-09-04 09:10 - thought based memory vs. feeling based memory
+
+as I suggested in the global memory entry, I address my memories based on feeling and that idea reflects that concept. however, in the transforming thoughts idea, I extend the memory function of human consciousness (remember that technology now is an extension of human consciousness) by allowing memory to be addressed by thought. this is a radical transformation for me to have made.
+
+what this indicates to me without having given it much thought, is that these ideas are actually complementary. they both allow for transformations to occur, but they come at it from different angles. the feeling one is more from the outside looking in, and the thoughts one is more from the inside looking out.
+
+very interesting. I will return to this in the future.
 
 # potential topics
 
