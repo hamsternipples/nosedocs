@@ -1237,7 +1237,9 @@ probably, you would want to fine the richer ones for petty crimes (cause they'll
 
 I can see why it would be desirable to control population growth for certain ethnicities by aborting the fetus early on, (and make it look like she was never pregnant to begin with). I'm not going to argue with the government's desire to maintain certain population majorities. I get that. however, I strongly disagree with the government taking the decision for the woman unilaterally (though they did agree to give the government that power). so, they want to make it at least seem legit, give each woman the morning-after option. alert her to the chemical changes in her body, and allow her to abort right there the next morning. then, it looks like the women has the choice, so if the government decides to do ethnic population control, it looks *way* less suspicious. I mean after all, since they did sign the agreement saying that the authorities can do whatever they want in their bodies without any responsibility, it is the government's responsibility now to control the portions of world population now, not letting any majority gain too much control (regardless of colour). we'll call it ethnic equalisation, lol.
 
-### - moses, elijah, and a potential future
+### 2018-09-01 ??:?? - moses, elijah, and a potential future
+
+[wtf man! I thought I remembered writing this at 12:34, but the date was not present now]
 
 this idea came to me while I was a bit stoned, so that means that when I perceived it, I felt better than I do now, so the translation will be slightly tainted as a result.
 
@@ -1365,6 +1367,57 @@ there are a lot of open questions, and I don't really know how to shift my desir
 one of the things that really had a large reaction when I was talking with aaron was when I spoke of me desire to not do psychedelics right now because it would reset my personality. the last time I did mdma, it essentially removed all my logical and reasoning capabilities, making me a feeling kind of person. it's a weird feeling because on one side you feel so good about everything, it reminded me a bit of the morphine in the hospital feeling, but at the same time you're super amped up (it's an amphetamine) and really want to begin making sense of everything. for me, it's a super creator of desire to "do", but you're a bit paralysed because everything is feeling, so you have no ability to actually "do" anything meaningful.
 
 it's been bothering me ever since I mentioned it to aaron, because something similar to that is exactly what I need to make this transition. I have to reset my logic and take a feeling based approach in order for this to work, I think. it's come up in my mind enough times now, I think it's important to mention.
+
+### 2018-09-03 18:51 - so I guess we're going to wait some more...
+
+that's the major takeaway I have after waking up from my nap, anyway. I don't have a sense of the conversation, but the feeling I had is there was a disagreement, and I concluded by saying that I will continue to wait.
+
+well, I'm sorry to everyone who wanted the 09-09-18 day. it did seem optimal because of it being the new moon as well, but I believe these guys have some fear that is blocking their taking action. rightfully so, because no matter how you angle it, I will ask questions. the idea that my questions will magically vanish just cause I'm stuck in strange situation is a bit preposterous.
+
+they appear to be scared of me asking questions and having to reveal the answers to a whole bunch of things that have been holding me back. I really have been trying to get as much things out in the open as possible, because they're a whole lot easier to change (but they don't want to change) to something easier to work with.
+
+horray for secrets guys :)
+
+secrets and my stubbornness allowed things to get this big by preventing motion forward. however, beliefs are always the things which are in opposition to desire. even if I stop being stubborn, the belief that it must remain a secret becomes the belief in opposition to their desire.
+
+why? well, you tell me how this could possibly happen and remain a secret. they would have to have unlimited control over me to do so. they would need to find a way of keeping me unconscious while actuating me the way they desire. perhaps in the future that will be possible, but for now it's not something they could even come close to doing without it being obvious to everyone that I am no longer me. what they need, is to somehow make an agreement with me about it. however, you cannot agree on something that supposedly does not exist. (there are probably zero people who have come to an agreement about ensuring the flying spaghetti monster remains a secret.)
+
+nobody can change them though, so just let them try to figure it out.
+
+I just noticed that there is no abe workshop on the 8th, either. looks like they will have to just come to their own conclusions, all by themselves. I love it :)
+
+### 2018-09-04 03:32 - I don't believe I think any more thoughts in opposition to my desire
+
+I had this thought last night when going to bed thinking about the previous entry. there was an abe episode also where this guy wanted to be a rock star, so abe explained that only your beliefs can contradict the desire, so then they asked him to begin identifying some thoughts on the subject which are working against him.
+
+the day before, I was beginning to get some energy flowing when I was interrupted by the zunzenegi concept, which allowed me to write a little bit on these guys guiding my thoughts. I thought that maybe it was a bad idea to try and stick notes into my thought song. however, I do think the technology is useful for those wanting to begin catching their thoughts early and begin changing them to something more useful.
+
+so, then I made the sweeping claim that I don't believe I have any more thoughts which work against my desire. if I do, show them to me and I will change them easily, but I do not believe I am working against myself with my own thoughts any more. this is the basis upon which I believe I do not need to take any action, and now that I think about it, it's the reason why I do not really want to reset my personality, either.
+
+you guys have created a very useful technology, trying to guide my thoughts. I don't know if it's the reason behind me successfully changing so many thoughts that work against my desire. now, you guys use it. you and your thoughts that are contradicting your desire are what is holding everything up now.
+
+### 2018-09-04 06:19 - allow people to guide their own thoughts
+
+last night, I was a bit frustrated with the idea that you guys were trying to manifest their desires by guiding my thoughts.
+
+- my thoughts create my reality
+- your thoughts create your reality
+- your thoughts about my thoughts create your reality
+- my thoughts do not create your reality
+
+this morning, I was thinking about how this would work. so imagine an interface where people could review their thoughts. an interface would show them a log of the last thoughts that they thought. optionally, they could go back and reexperience the thought in its context. so, for example, a quick flash, where a person reexperiences 5s before the thought, and a few seconds afterward, to kind of relive a bit the context which that thought happened.
+
+let's say that there are false positives, where the system thinks that the person thought a certain thought, let's say about being fat, but in reality it was a thought about wanting to be skinnier, but from a perspective of being fat (I don't want to be fat), it doesn't matter, the subject is the same, "fat" and you get what you give your attention to. so the interface to identify false-positives, is good for both the person to realise they're giving a lot of attention to a certain subject, and for nosebook to improve its thought detection algorithms.
+
+once the problematic thoughts have been identified, then there needs to be a transformation process. I find it hard to imagine that people (at this stage of the game) would be able to just simply, record a better thought. so, instead, what needs to be available is an ability for people to identify better feeling thoughts, so that they can be linked.
+
+if the subject matter that someone wants to begin changing is "fat", then perhaps they would want to do a search for the thought, "I'm losing weight" or, "my body is feeling better all the time". that way, when the person has a "fat" thought, once the improved thought has been identified, the system can send them the idea to think the improved thought.
+
+lastly, it may be quite a jump to go from, "I look fat" to "my body is feeling better all the time" -- so, I believe it would be really a good thing to have the ability for people to be able to make transitions between their guided thoughts, so for example, "I look fat" could link to "I've been fatter", which could link to, "I've lost weight before; I can do it again", which could link to, "my body is really responsive", which could finally link to, "my body is feeling better all the time"
+
+to avoid the person getting guided thought spam, the link should only occur if it has made the transition from being a received thought, to a thought thought. this means that over time, the person can transition their patterns of thought to the way that they would like.
+
+people who do not want to change their thought, can just disable it, or not use it. 
 
 # potential topics
 
