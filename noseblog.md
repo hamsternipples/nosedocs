@@ -1417,7 +1417,37 @@ lastly, it may be quite a jump to go from, "I look fat" to "my body is feeling b
 
 to avoid the person getting guided thought spam, the link should only occur if it has made the transition from being a received thought, to a thought thought. this means that over time, the person can transition their patterns of thought to the way that they would like.
 
-people who do not want to change their thought, can just disable it, or not use it. 
+people who do not want to change their thought, can just disable it, or not use it.
+
+the disabling option gives the person the illusion of control, just like how a person can disable their inner voice from being included in the rebroadcast, it prevents the viewers from hearing it, but nosebook is recording it all anyway.
+
+### 2018-09-04 - transformation of thought process
+
+I started noticing that there is a bit of a pattern to how I transform thought. I like to separate the description (detail) from the subject itself. this allows me to be able to begin seeing the subject in its purer form. I also like to apply some transformations on the subject (person, body, house, etc.). here are some examples.
+
+- an easy comparison to make me feel a bit better
+  - "I've done dumber things"
+  - "it could be worse"
+  - "I've definitely been in worse situations"
+
+- a fact that about relative or relational status
+  - "I've always found my way out of these types of situations"
+  - "maybe I can just try for a little bit better"
+  - "not everyone thinks I'm stupid"
+
+- a loosely related true fact about the subject.
+  - "lots of people like me"
+  - "I am a creative person"
+  - "I've [probably] got hidden talent ready to be discovered"
+  - "I can do anything I put my mind to"
+
+some of these work better than others, and really the only way you can tell how effective they are, is by how you feel. if you're paying attention to how you feel, then that means you're doing it right. first, it means that you are aligning yourself with your primary desire, to feel better than you do. and, it also means that you care about how you feel (cause otherwise you wouldn't want to transform your thoughts).
+
+I suppose you could make the effort to try and transform your thoughts just to get the stuff, and you'll have pay the price of feeling good all along the way (lol). eventually though, I believe that it will become common knowledge that finding a way to feel good is the road toward any success you're looking for.
+
+I believe there is a lot that can be optimised about these thought transformations, which is why I suggest making this available to everyone as an opt-in base user function. the reason why say it should be disabled, is because you can see when nosebook tried to guide my thoughts, that trying to transform someone's thoughts that they do not want to transform, will only exacerbate the problem.
+
+I really believe there is a lot that can be learned about this process. all sorts of people will try out all sorts of different transformations on themselves, and it will grow naturally. no one should force anyone to transform their thoughts, and no one should set the benchmark for the way thoughts should we transformed. lots of people will do this lots of different ways, and nosebook can just sit back and quantify their improvement. likely, the improvement to different types of transformations will also reveal more about the person, and how they process life.
 
 # potential topics
 
