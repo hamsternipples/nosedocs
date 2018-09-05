@@ -1460,8 +1460,41 @@ what this indicates to me without having given it much thought, is that these id
 
 very interesting. I will return to this in the future.
 
+### 2018-09-05 05:44 - how naïve am I?
+
+sometimes I get the feeling that these guys think that I have no idea what I'm in the process of discovering. they might think that I have no clue as to what I'm looking for, and therefore if I don't find anything, I should just give up and stop looking for it. all evidence shows that I am pretty tenacious with my discoveries -- knowing that they're there even without the ability to see them, and if one thing doesn't work, that won't stop me; I'll just find another way, because I know it exists.
+
+I wonder if they believe that if they hold me away from my capacities long enough, I will just give up or something. do they expect to hold me like this for the rest of my life? what about my audience? are they trying to hide my capacities from my audience? didn't they paint me as an exceptional person with extra human capabilities? I believe they did (even though I don't have evidence to prove it), and they probably did that because it makes for good clickbait, to get everyone on the network.
+
+doesn't matter to me. I'm sure they will give up trying to inhibit my progress soon enough. soon, I will be able to show everyone true amazingness. I'm just looking forward so much to finally getting the ability to use my body as I intend to, and not feel constantly heavy. it feels like I weigh too much. I should feel light and agile. the world is blurry, but sometime soon it will be clear.
+
+someday..
+
+### 2018-09-05 06:31 - the resistant me
+
+I used to think that me dream-state me was virtually resistance free. at least he was. I remember when he would fly around in dreams and stuff cause he felt so good. I think that my head operators were instructed to ensure I no longer fly inside of my dream-state, so they are doing like they do to me in wake-state, they fill my head with vibration that is contrary to the natural one, which like my wake state, prevents me from using my capacities, but it very resistant in nature.
+
+it seems that the application of this signal to ensure I don't fly, has made my dream-state me possibly more resistant than my awake-state me. case in point, I think mom, or some other person was questioning me the other night about my plans going forward, and trying to push me to do something. I remember my dream-state me was quite emphatic about explaining to her that I will be waiting for access to my head before moving forward with anything.
+
+it sounds like my dream-state me is getting pretty tired of being locked up, only with the capability of speaking with people who want to take advantage of me/him.
+
+I thought about this a little while watching stars. I have no idea why they're trying to accomplish speaking with dream-state me, as I don't have access to him. I can only feel him emotionally sometimes, and that's pretty blocked off now. I used to have a *much* better connection thsn I do now. actually, I made the conjecture that they have enhanced my corpus callosum to as to inhibit all communication between the parts. I think they've completely hijacked my right hemisphere.
+
+assuming at least some of that is true, I can't quite figure out what they're trying to accomplish by communicating with him. we are very different people, and we no longer have any communication.
+
+it is very likely that we would even behave very differently too. in this abe episode @[youtube](JzfIK3niEaw), the questioner sounds a lot like lyia, claiming that my actions are monogamous, but my words are not. the obvious explanation is, she's not talking to me :) she's talking to a completely imprisoned personality, which I know less about than she does. it has been one of my goals, to begin trying to figure out why I have a total maniac inside of me somewhere, and why the us government is holding me in mental prison because of him. it seems related to whatever happened in vallecas, too.
+
+it sounds like that guy didn't use to be a maniac. I think he used to be a sweet gentle, easy going, guy -- just with really strong desire. probably, without an ability to manifest his desire, he is growing quite resistant.
+
+since it sounds like they won't let me get to know him, and they certainly won't be giving me access to my head so I can let him out, so I guess they've got to figure out how to get him to lower his resistance. feels to me like they're growing a pretty huge problem inside of me.
+
+I've sort of gotten used to his constant anger and frustration. I don't let him bother me any more, because there's nothing I can do about it. until I can find my own power, I have nothing I can offer him anyway, and I don't really feel like being depressed and angry along with him. I'm continuing to move forward, and I'm having quite a lot of success at it too.
+
+maybe one day I can start to get to know him. I doubt they will let me see the recordings of the interactions. hopefully lyia can tell me about him :) man, I'm sorry to put her in the middle of all of my problems, but how can I resist asking her about something I have been wanting so much to know about. it would be really cool to see the recordings, because then I could actually experience for myself how the other half of me interacts with her.
+
 # potential topics
 
+### - thought based memory vs. feeling based memory (continued)
 ### - monogamy within the the relationship unit
 ### - vision deviod of meaning
 ### - what could be a reason why women seem to like less than optimal men?
