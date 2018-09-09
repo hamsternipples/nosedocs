@@ -1492,6 +1492,80 @@ I've sort of gotten used to his constant anger and frustration. I don't let him 
 
 maybe one day I can start to get to know him. I doubt they will let me see the recordings of the interactions. hopefully lyia can tell me about him :) man, I'm sorry to put her in the middle of all of my problems, but how can I resist asking her about something I have been wanting so much to know about. it would be really cool to see the recordings, because then I could actually experience for myself how the other half of me interacts with her.
 
+### 2018-09-07 23:49 - no resistance? not any more...
+
+a few entries ago, I mentioned that I did not think any thoughts contrary to my desire @[entry](2018-09-04 03:32), that I know of, so therefore, if that is true, that implies that there are other beliefs in the way of letting the desires begin to manifest. makes sense.
+
+well, after writing that down, I had a series of strange dream-state interactions which I cannot really remember, but it seemed to suggest that perhaps dream-state me is a bit resistant. I don't actually know, so I'm going by vague feelings and memory echos that happen sometimes, sort of like deja-vu, but in reverse... where something in real life reminds me of something that happened in a dream and I have a brief flash. memories of my dreams exist, but I cannot access them.
+
+anyway, since that time I no longer feel that I no longer have thoughts or beliefs which are contradicting my desire. I gave this a bit of a thought tonight when I was watching stars, and what I believe is happening is, these guys are a bit pinned against the wall and they feel like they need an out. I don't believe they have any intention of actually making the girls thing happen at all. it's far too much risk for them. right now while I'm pretty contained, there are not a whole lot of people watching me, so it's easy to control the information and keep my secret revealing ideas tucked away from the majority's public eye.
+
+I believe actually it's a huge risk for them (the people running the show) right now if I no longer have any more resistance to the idea, because that means it would be go-time and I'm way out of their control right now.
+
+remember all of the uplifters and healers trying to help me achieve a better body condition, yet at the same time the engineers are instructed to ensure that any perception progress I make is to be undone in the maintenance portion of my sleep? why would an organisation work against itself like that? I believe that this happens more commonly than imagined and is to promote a good image, looking like they're doing the right thing while at the same time doing the opposite.
+
+so, I believe that only the most upper management are aware that none of this will be going through, and downwards from there it will continue to appear as if everything is continuing according to plan, and I will take the blame for it not going through. it has to look like it was just another failure and couldn't go though.
+
+wow. yeah, seriously. I remember when I first felt the reaction to me saying I no longer had beliefs in contradiction to my desire and there was a very real, "uh-oh we need to fix this" kind of feeling that followed it. it surprised me because everyone seems to have been working so hard to try and get this whole thing rolling, yet all of it was just to placate so many people with strong desire.
+
+as I thought about it, I realised that I'm kind of really fine with it not going through. I began to feel quite a bit of freedom as, even though I am still with the same limitations I had before, the idea of being stuck with a bunch of people that are seemingly there as a way to control me was sort of stressing me out.
+
+I like the idea, but I do not like the constant battle if I'm going to be with other people. let me put it this way: contrast is much easier to experience alone than with other people, because it unnecessarily adds a bunch of variables I have no control over. I prefer the controlled environment of just me.
+
+however, enjoying fun times is *always* better with other people. it just is. I can have fun by myself, but it's not nearly as fun as when other people are around. the main problem with that is, everyone around me is ultra guarded to not say or do the the wrong thing because the enforcers of my experience will reprimand anyone potentially jeopardising their secrets. it's very restrictive.
+
+however, I think the thing that mainly makes me feel good about just letting all of this not happen. let me be clear: it does not seem like they want it to look like a failure. it needs to look like it just circumstantially couldn't happen. like, no one is to blame, essentially.
+
+what makes me feel good about this plan is that I'm finally able to chill out a bit. we will continue on just as we are right now. I'll just keep watching my stars. they'll keep fighting me (because that's what they've been instructed to do). they'll keep utilising my dream-state me to build their stuff. they'll get bigger and stronger, and I'll continue to keep improving my vision (even though I cannot see it), and increasing my sensitivity to higher and higher frequencies -- which they'll fight  (because that's what they've been instructed to do). I'll also keep writing down ideas for them to maybe use or not (I don't care).
+
+I am sure though that as I continue to release more and more resistance, my sensitivity and therefore vision will continue to improve as well. they'll likely need to keep artificially creating resistance, so as to keep me appearing, "normal", when in reality behind the scenes it's growing more and more extraordinary. it's actually kind of good because I'm realising now that, "if I had the manifestation it would slow me way down".
+
+for example, I am sure there are guys working at nosebook that watch stars (they have to -- to try and figure out how it works to poop on my star watching experience). however, I'm sure that they put in lots of hard work and see way less results than I do in the same period of time, with much more optimum conditions. I think one of the reasons why that is, is because I don't see any better. when anyone gets a level, there is a sense of wonder as the whole world looks different to you. it's quite magical, so you enjoy it.
+
+I don't have that magical experience, and things look pretty much the same for me, so I never take my foot off the accelerator to enjoy it. I have two negative analogies to illustrate the idea:
+
+1. when you drive a car that handles so smoothly, you don't feel the speed. so, you can get going quite fast, thinking you're driving a reasonable speed, then you notice the speedometer and see how fast you're really going, and that creates a sudden rush sensation as your consciousness realises the gravity of the moment.
+
+2. when you smoke weed, the first joint is earth shattering. however, after 5, they're not doing so much, and barely get you stoned so much like the first one. after 10, they have almost no effect. the "high" lasts for minutes, and is mostly just the smoke asphyxiation that you notice cause your blood is already saturated with thc.
+
+it's all relative, so if I don't feel like I'm satisfied, I push the accelerator harder, and that's kind of what they're inadvertently doing for me. this sounds so ironic to say this, but one day in the future, all of this will pay off when I finally come into alignment with myself. it'll be much more than a realisation that I'm going double the speed limit and it's and the car feels like it's cruising easily. it's going to probably be somewhat terrifying. something akin to taking an enormous dose of mushrooms: unless I want to try to induce vomiting, this is reality now, so I better find a way of making that reality enjoyable.
+
+I prefer the shrooms perspective because dmt is very similar to psilocybin. however, if you're a christian, this is a pretty common christ theme where the reward comes much later after some difficult experience (slight clarification: not just any difficult experience, but one that forces tremendous expansion).
+
+### 2018-09-08 10:15 - I have a big mouth
+
+I was noticing that the reason why I'm in this situation is because I have a big mouth. abe said that I should keep things to myself, but I rejected the idea simply because everyone is listening to my thoughts anyway, so it's impossible to keep anything to myself.
+
+however, what I have been noticing as I write this blog is that I write it for me, but then things change as a result. I had thought those same thoughts previously and they did not have the same effect. that means that their thought translation system is more rudimentary than I imagined it to be, and also that when I write it, it shows that I took the extra time and effort to communicate something, so it has extra emphasis.
+
+if I had of kept my mouth shut about these guys secrets, it would have probably worked out and the joke would be on them, as I begin speaking openly about their secrets in front of the girls.
+
+this was my main frustration to begin with, the idea that pure knowledge cannot be transmitted. I want to get pure answers from abe, not answers tailored to the capacity of the listeners. eg. when I hear something really big, I want it to cause an expansion in me, not have them make it smaller so I can hear it better. I want pure.
+
+so, in a sense, my desire to speak purely is so strong, I don't feel in any way obligated to reduce the gravity of my words. if you don't like them, don't listen. you do the censoring, not me.
+
+even with this document, I do notice the how others affect the idea with their perception of the idea. I also noticed that creative things were difficult at first because I noticed how others perceived the idea. I found a way of staying solid with the idea, no matter what others think about it. so, in a way this document is kind of like me doubling down on my desire to not need to adjust my vibration to the frequency of the listener to transmit information.
+
+this is something that I have often wondered about abraham because they incessantly talk about how they do not drop down to some other person's vibration (become mutual with them), but they do really go out of their way to say something in way which has the best possible probability of the person getting it. I am completely the opposite. usually, I make very little effort to try and make the information understandable. (though, as I write this, I am noticing that I do. I very much tailor my words already depending on the listener's desire for an answer)
+
+I think what has happened is, I am frustrated with the wide array of different ways to say something. I want my words to become impactful, more than tactful.
+
+I realise that this is the opposite of diversity. so, when I look at why I would want to go in a less diverse way, I notice that it is because of the limitations of the communication medium. I have been looking pretty hard for a way for people to "see what I mean to say". I think I've figured out the mechanism, and it has a lot to do with how psychedelics communicate such vast concepts inside of a swirling pattern of colours.
+
+without having the capability to show you what I mean to say, and allow the diversity of everyone's interpretation of that transmitted concept to become the basis of my communication, I think I naturally must go for more power. not more power to change others, but more power and greater clarity of the concepts so that others' perception of it, does not affect its purity in me.
+
+I'd like to revisit this concept one day, because I'm touching on a concept that I consider capricornian. it's the idea that simpler is better because it as jesus said, "separates the wheat from the chaff". it gets rid of a lot of useless stuff, creating room for future expansion. it's not destruction. it's reduction in preparation for more; a getting rid of a lot of older more useless things to allow a new medium of communication. for mcluhan, the invention of a new cold medium.
+
+### 2018-09-08 18:46 - wild weed growth
+
+lately, the weeds have been growing at an enormous rate. I don't believe that I have ever seen such plentiful weed growth in my life, ever. I think there is something to it, considering the environmental conditions. plants seem to foster mamalian life because they produce the opposite of what we do. they consume CO2 and spit out ozone (O2), so an ideal environment for a plant would be one of high CO2 content in the atmosphere. it occurred to me today that perhaps, in their effort to keep the air as non-conductive as possible, they are filling it with CO2 (as evidenced by the clouds and haze), which is making a very ideal environment for the plants to grow. I believe that CO2 must have some sort of conductivity capability to it. it is conductive, but only in certain structural patterns (as I have learned from robert murrey smith's research), otherwise in an unstructured form it isn't very conductive.
+
+since almost all of our weight loss happens through breathing, meaning we eliminate 90% of the weight we consume through breathing, breath must be pretty important. what if our breath is actually more structured carbon than usual, and is actually more conductive as a result, with greater energy storage potential (capacitance).
+
+this gives evidence that the plants and the mammals are in symbiotic relationship with one another, as the plants provide the oxygen (ozone) for the mammals to consume and structure with their thought into a more and more conductive environment.
+
+they balance each other, because for a mammal, a more conductive environment is ideal, and for a plant, a less conductive chaotic environment is ideal, creating wild out of control growth.
+
 # potential topics
 
 ### - thought based memory vs. feeling based memory (continued)
