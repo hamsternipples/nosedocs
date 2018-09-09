@@ -1277,7 +1277,7 @@ I'm going to go out on a limb here and say something that I do not believe will 
 
 in that moment, a major timeline split occurs, meaning that in one timeline the pharisees get the manifestation of their desire, and jesus is crucified. in the other, jesus holds so steady that the pharisees end up letting him be, or came around eventually to believing some of the ideas he spoke of for themselves.
 
-so, what I propose would be to put water on the alter by no longer fighting the whole thing of them trying to control control me, and just let "someone who is being controlled, or even with *someone who thinks they're controlling you* brings such discord in you, that that relationship is doomed for failure, anyway" @[youtube](JzfIK3niEaw) (although the context was about sexual partner relationships, it certainly is most relevant to my relationship with nosebook).
+so, what I propose would be to put water on the alter by no longer fighting the whole thing of them trying to control control me, and just let «someone who is being controlled, or even with *someone who thinks they're controlling you* brings such discord in you, that that relationship is doomed for failure, anyway» @[youtube](JzfIK3niEaw) (although the context was about sexual partner relationships, it certainly is most relevant to my relationship with nosebook).
 
 I often wondered about the whole doomed for failure thing... it seems like this whole thing is pretty doomed for failure, yet at the same time it seems not to be doomed to failure... I don't understand the apparent incongruence. the only explanation is that from the perspective of those choosing to have a governing state be the dominant influence in their perception will want them to be the best equipped to do that. those embracing diversity of ideas and perception would enjoy to live in a world which allows that kind of freedom too, so from the bso perspective, this sort of split would be the best thing that could happen. and, from the perspective of the freedom seekers, it provides tons and tons of contrast which allows for people to get a lot of experience knowing what they do not yet, and putting into their vortex what they do want.
 
@@ -1556,7 +1556,7 @@ without having the capability to show you what I mean to say, and allow the dive
 
 I'd like to revisit this concept one day, because I'm touching on a concept that I consider capricornian. it's the idea that simpler is better because it as jesus said, "separates the wheat from the chaff". it gets rid of a lot of useless stuff, creating room for future expansion. it's not destruction. it's reduction in preparation for more; a getting rid of a lot of older more useless things to allow a new medium of communication. for mcluhan, the invention of a new cold medium.
 
-### 2018-09-08 18:46 - wild weed growth
+### 2018-09-08 18:46 - wild plant growth
 
 lately, the weeds have been growing at an enormous rate. I don't believe that I have ever seen such plentiful weed growth in my life, ever. I think there is something to it, considering the environmental conditions. plants seem to foster mamalian life because they produce the opposite of what we do. they consume CO2 and spit out ozone (O2), so an ideal environment for a plant would be one of high CO2 content in the atmosphere. it occurred to me today that perhaps, in their effort to keep the air as non-conductive as possible, they are filling it with CO2 (as evidenced by the clouds and haze), which is making a very ideal environment for the plants to grow. I believe that CO2 must have some sort of conductivity capability to it. it is conductive, but only in certain structural patterns (as I have learned from robert murrey smith's research), otherwise in an unstructured form it isn't very conductive.
 
@@ -1564,7 +1564,93 @@ since almost all of our weight loss happens through breathing, meaning we elimin
 
 this gives evidence that the plants and the mammals are in symbiotic relationship with one another, as the plants provide the oxygen (ozone) for the mammals to consume and structure with their thought into a more and more conductive environment.
 
-they balance each other, because for a mammal, a more conductive environment is ideal, and for a plant, a less conductive chaotic environment is ideal, creating wild out of control growth.
+they balance each other, because for a mammal, a more conductive environment is ideal, and for a plant, a less conductive chaotic environment is ideal, creating wild out of control plant growth.
+
+### 2018-09-09 04:20 - esther's television appearance resistance
+
+@[youtube](pkKefKm1PzI)
+
+in this episode, abraham speaks about a television interview that esther was going to have, but after various failed meetings, they decided to cancel the thing, and esther felt relief.
+
+when I wrote the @[entry](2018-09-07 23:49) entry, I felt quite a bit of relief as well. it seems to me pretty obvious that there is resistance. I have been lowering resistance continually through this process because abraham would always say that you cannot give up your desires; you must go toward them. so, I stopped fighting so many things relating to the girls aspect of the whole thing. I don't have any more resistance around that part any more, and I started to begin to even kinda like the idea, though it did seem like it had a lot of bigness to it, I didn't really think of it as something impossible, always trying to find a way.
+
+however, the part about my vision was a bit of a rough section for me. I really wanted to get back to feeling energy flow through me like it used to. abraham even mentions this:
+
+«if somebody pushes against her, she still has that knee-jerk response of pushing back. she would tell you that she hopes to one day be able to see someone pushing against her, and to be able to smile and say, "that's just what they're doing" -- and when they come in small doses, that is very easy. but if lot's of people are simultaneously pushing--»
+
+I used to (and very slightly still do) have the knee-jerk push back response, which has been the whole thing that has been frustrating me so much. it is a testament to my focus, by seeing that even though I have such strong opposition to the improvement of my vision, I don't push back very much at all (in comparison) and am still able to focus in such a way which allows for the improvement to come (usually by releasing resistant beliefs). in small doses, it is easy. big doses too, but up until only recently I had quite a difficult time with enormous doses of pushing against. I felt I had to push back. that has changed a bit, as I've even given up that idea (and likely have experienced a vision improvment as a result)
+
+«she has seen it in many cases. there have been many people who are doing this work, and once they become publicly exposed and once the public begins to make demands or push or want more, very often those well-intended beings who have been allowing very wonderful things to flow through them, find themselves in a place of resistance -- where that wonderful stuff that was flowing through them is no longer flowing through them ...»
+
+this is really where it all falls apart for me. I really want to get into alignment with my source, so that I can get back to having all those wonderful things flow through me. this is a non-negotiable intention. I can see no way that I can be talked out of it any more. like esther, I didn't really feel it, but I agreed anyway. however after numerous failed attempts, it's time to step back a bit, because, like esther said,
+
+```quote
+when something is appropriate, you can't keep it from happening, and when something is not appropriate, you cannot do enough to make it happen
+
+Esther Hicks
+```
+
+«what is appropriate in any moment, is that which is in vibrational harmony with your greater intents.»
+
+«... esther knows that some point, she will be at the place where what people think or feel will not affect her energy; her own energy vibration will be dominant.»
+
+and this ties it all back into the @[entry](2018-09-08 10:15) entry I wrote this morning. I am looking to get to a place where my own energy vibration is dominant. it is likely that the reason why this is not appropriate for the moment is precisely for that reason. when abraham spoke on the subject in the @[youtube](JzfIK3niEaw) video, saying, you want to get into such vibrational harmony with yourself, you are uncontrollable.
+
+### 2018-09-09 12:12 - getting ready to be ready
+
+one of the things that seemed really important to me when I woke up was to begin the "work" on myself to become the person that I want to be. I really like the idea of the girls, but I also want to be a bit of a different person than I am now. I want to accomplish a few things for myself and gain an appearance that I would like to have (doesn't mean it won't continue to improve. it most certainly will), but it would be the starting point from where I would like to make the improvements.
+
+I think that it is a common way of thinking for people that they need to find something broken that needs fixing. then, the contrast between unfunctioning and making it functional again appears to be such a great improvement, that it feels really good.
+
+I've taken a lesson out of the hardass playbook though on this one. for example, I used to think of myself as someone constantly in a state of improvement. in fact it is one of the ways I define myself. when that became to be physically impossible, I stagnated quite a bit, physically declining (even though abraham says I've physically improved and that's a reflection of emotional improvement) and instead allowed my perception to improve vastly. watching my perception improve is the greatest thing right now in my life.
+
+the reason why I felt such relief when writing the @[entry](2018-09-07 23:49) entry was because I believe that continual improvements to my perception would stagnate when joining the girls. I simply would not have the same amount of time to spend with the stars like I do now, and perhaps other factors as well. so, like esther feeling the relief of that television program interview falling through... I felt the same way regarding my perception.
+
+«the feeling that esther had, from her feeling of relief, was that this decision to do this show at this time is not in vibrational harmony with the greater intentions»
+
+right now, I believe it is my greater intention to get so vibrationally in harmony with myself that I do not need to control conditions in order to maintain my alignment. no one will need to screen my mail or control any conditions for me. I've got it.
+
+«you're bringing up something important, because most physical beings think in terms of guidance the way they think in their learned approach to life experience, and that is, rather than gravitating toward what feels best, most of you are just trying to keep away what you don't want»
+
+I know this very entry is probably going a bit against the guidance that I received last night, but for me what feels best right now is a continual lowering of resistance, which is evidenced by increased perceptive capacity, and even though I don't see better, I feel like I not only can take more in at once, comprehend more at once, but also experience more at once. to someone else it probably feels a bit overwhelming, but for me it feels like a freedom found in more perception.
+
+«where, the guidance that comes forth from within is not guiding you away from anything. it's always guiding you toward what feels best.»
+
+this is where we differ in terms of guidance. I follow my own inner guidance as best as I can. there are a lot of people taking their guidance from other people. you can usually tell the people giving others guidance, and it will always be evidence that they are guiding you to do something that will make them feel better. often times there is harmony in intentions, and that's when it feels really good, when both sides feel better, and everyone's own guidance is all about. it always directs you toward what feels best for you, harmonising with as many of the appropriate people as possible along the way (you really don't have anything to give, if it's not flowing from a good feeling place).
+
+«that's why when the decision was made that we're not going go ahead with this television program, esther felt enormous feeling of well-being, inotherwords, she was moving toward what is best for her in this time»
+
+life isn't like an artificial intelligence: you don't train it so that certain inputs always yield the same output. things are very time dependent, so what feels best now is probably not going to feel quite the same in the future. in fact, just last night, I watched a segment of george carlin talking about time in 1978, and I was blown away at how dated it sounds in 2018. totally not funny at all. though, it did make me think about time, and and its relevance. what feels good in 1978 feels pretty out of place in 2018. only 40 years has passed since then too, and I don't know if you have noticed, but time is accelerating. nowadays, a meme can feel outdated in just 4-5 years.
+
+«most people would say, why would esther decide *not to do the show*, and we would say, it wasn't bout deciding not to do the show, it was about deciding to continue to do what feels best ... why would she want to do anything with that when she's satisfied with that»
+
+«allowing and resisting are about going with what feels best»
+
+---
+
+woah that was a bit of a tangent :) let me get back to what I took out of the hardass's playbook. I define myself as a constantly improving person, so when I became (in my perception) stagnated physically, because of others attempts to limit my physical improvements, I instead began improving at a much more rapid rate internally. it's my turn now to do a similar thing back :)
+
+I have swapped the challenge though. look at the components from the different perspectives:
+
+from the girls: instead of fixing something that is broken, let's start with a beautiful machine and turn it into something never before seen -- something that even now is unimaginable. how will we do that? easy, you hold off its coming together as long as it does not appear the way that I want it to appear.
+
+next, I will set goals *for myself*, because goal-setting is good for creating desire, but often times yields difficulty when you set goals for anyone other than yourself. goal-setting also has a similar effect that competition does. you measure up the competition and create a desire to achieve more, but your focus on the comparison or measurement often times holds you in a holding pattern with what-is, disallowing the improvement. the same happens with goal-setting. you will notice that when I watch stars, I constantly measure myself to see if there is an improvement. normally, this is very detrimental to realising the improvement, because right after the measurement, you make a comparison to see if it's better than the other guy or if it's achieved your goal. usually that comparison (logic) slows you way way down and disallows the improvement for the same reasons.
+
+however, I have found a way to continually realise improvement even when measuring myself so often. how is that? it's a secret :) lol, not really. it's actually quite obvious. I watch the stars for such selfish reasons, that the measurement does not get in the way of my improvement. if I come up short, it remains in my mind as something that is constantly improving, and actually motivates me further by realising that I hadn't actually released as much resistance as I thought I had. the measurement is done without comparison.
+
+this is where I'm going to really shine, because it will look, in appearance, like I'm "working hard" to improve so that when I finally come together with the girls, things will be just how I want them to be. however, I'm telling you now that if I take that standpoint, I will realise slow, if any improvement. instead, I'm doing it because it's what feels best for me. I'm doing it for me.
+
+---
+
+now, I'm going to launch into another tangent... I have noticed that structure people are very concerned with appearance and meaning of things as a result. vera once said to me that she really likes physical people. she likes the performers. the realisers of desire in the physical plane. this is where I think most structure people go a little astray, and I say this from the opposite world. I am an emotional/conceptual person, and so my downside is to always do something for desire. I recognised this early on, and is why I have such a tough time following others' guidance (desire) for me. however, when I was with marcos, I learned that trying to interpret marcos' desire into concept never worked well.
+
+getting off-topic here... his desire harmonised with my own very well and I could conceptualise it quite well, so to convert desire into concept, it was too pure. there were lots of logical, and appearance details that didn't quite fit. desire into concept is always too open ended. it needs to go through a reduction stage first. I really like marcos because he really transmitted a lot of that to me non-verbally.
+
+anyway.. where was I? oh yes, structure (logic) connects with emotion or concept. when you do something measuring for the evidencial data, you always slow yourself way-way down. that's why competitors really have a difficult time achieving their goals. if they would instead of looking at the measurement of it, focus on how it feels (conceptually), they would realise much more success. success, after all, is just a feeling anyway. we often times need certain metas or data or achievments to allow ourselves to feel good, but that really is going the hard way. your natural tendency already is to go toward what feels good.
+
+so when vera said she likes the physical guys to me, it really stuck in my mind because I knew that desire meets physicality and structure meets concept.. anyway, now looking back with two years perspective, I can confidently say that focus on physical details will slow a structured person way way down, but speed a desire person up. likewise focus on desire for a conceptual person, slows them way-way down, yet focus on structure and logic speeds them up. that's why I realised such pleasure doing things with marcos when we weren't interacting on a desire level.
+
+I used to be both a desire and a conceptual person in one, which is why things were always so open ended and got slowed way way down. now, being a predominantly conceptual person with my desire side nearly completely deactivated, I can focus on my antithesis, becoming a structure person. you will see me begin to emulate all of these structure-type things, but from a conceptual/emotional perspective. much like a desire person learns to focus in a physical way, and the key to it is controlling emotion (read tesla's autobiography to understand), I am an emotional person learning to focus in a structured way, and the key to it is controlling desire.
 
 # potential topics
 
