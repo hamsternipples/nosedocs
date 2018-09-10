@@ -1652,8 +1652,45 @@ so when vera said she likes the physical guys to me, it really stuck in my mind 
 
 I used to be both a desire and a conceptual person in one, which is why things were always so open ended and got slowed way way down. now, being a predominantly conceptual person with my desire side nearly completely deactivated, I can focus on my antithesis, becoming a structure person. you will see me begin to emulate all of these structure-type things, but from a conceptual/emotional perspective. much like a desire person learns to focus in a physical way, and the key to it is controlling emotion (read tesla's autobiography to understand), I am an emotional person learning to focus in a structured way, and the key to it is controlling desire.
 
+### 2018-09-10 01:18 - followup
+
+first, it must be very difficult for these guys to take something that I wrote, like the previous entry and put it into digestible bites for people to consume. likely, they have to take excerpts from the content and just put those there. that has the potentiality to be taken wildly out of context. usually, most things we communicate is spotty at best, anyway. however, trying to reduce something like the previous entry into a 30s-1m blurb would lose in my opinion many of the connections between the points. imagine that you take what I wrote and you simplify it down to 6 points, with 5 transitions between each of them. there isn't a way to really communicate 6 points in a minute effectively. that's about 10s per point, and if you want to include the transitions, it's about 5 seconds per thing.
+
+typically, what I have noticed people on youtube do is to communicate this information visually. take a vox video for example. if those were just bullet points and text, there would be very little engagement. what people are doing is beginning to find ways to communicate those ideas in a visual format for two reasons: 1. the visual format holds the viewer's attention for much longer than text or narration does and 2. it communicates the same amount of information more rapidly.
+
+for example, if I want to show how growth over time, a graph communicates far more than saying 10% growth in the last 6 months. it also can communicate the bigger picture as well. the narrator can say the 10% in the last 6 months, but the graph can easily show the last 24 months with the last 6 highlighted, thereby giving even more assurance of its quality and believability to the data.
+
+so naturally, one of the reasons why I want to gain control of my visual capacity is I am sure I could find a way of communicating some of these very complicated ideas in a much simpler fashion. I don't know how it all works, but I imagine that it's just like any other skill, where it gets better over time. you guys may be able to see things in my left eye as I write out some of these concepts, but it is unlikely that it is actually communicating anything useful. it would be much better if I allowed my ability to communicate my ideas to improve over time, instead of holding that capability in an raw untrained expression.
+
+---
+
+one of the things that had a bit of a reaction was me saying that I have took some things out of the hardasses' playbook. perhaps it got interpreted to mean that I would be delaying things on purpose as long as possible. I didn't mean it that way, though there is a high probability something like that will happen. let me explain.
+
+I am primarily an emotional person now, in the sense that vallecas was the last time that I let someone else's guidance (desire) direct me. since then, I have increasingly become directed by my emotion. this is good. emotion is a funny thing though, because if you're a structural person emotion can be the best sense of guidance you can ever find, as long as you know the origin of the emotion.
+
+when I feel strong desire from someone, it manifests in my body as an emotion. I can "feel" their desire for me to do something. sometimes it even manifests physically too (especially with girls), so it is tangible.. there is another thing that we often feel, which is what we call peer pressure. this is especially strong when you are younger because it feels so real. this is similar to the last one is your perception of what others will think of you, and this happens more often to adults. it's a learned behaviour that occurs in the socialisation process.
+
+these can affect how you feel, and they are emotions that are outside of oneself, to it's easy to recognise them as outside of oneself, which is why we label them things like peer pressure... etc.
+
+however, there is a truly crippling one that we do not usually recognise as external, and that is based on its appearance. it seems illogical that something that appears out of place can make you feel something so strongly. let me illustrate with a few examples.
+
+imagine you have to present something to a group of people, similar to how I am trying to write out this example. if I give any attention to how they may perceive what I am going to say, then I literally paralyse myself with my own resistance around my beliefs of their perception. it is in fact my own perception of their perception of me (how I appear to them, let's say) that can make me feel bad. in light doses of my analysis of their perception, I take the energy out of my own words. after all, I'm not selling the concept; I'm selling myself. eg. I'm making myself look as believable as possible to them, and then by association, the idea also gets sold.
+
+in stronger doses of trying to conform my presentation to be most compatible with their perception, I am actually tuning into their form of thinking, which is exactly where my idea is impacting. it may seem like a camouflaged idea will be better received, but actually this is similar to what I was explaining in my capricornian concept. the impact of the idea simplifies the chaos, and reduces the number of moving parts, to allow for easier reception.
+
+[sidenote: I am by nature a chaotic person. I flourish in diversity (chaos), and really love it when there is more, so what I'm beginning to communicate here may seem a bit opposite of my personality. you have to just go with it though as I'm making my transition into gaining a structured expression as well...]
+
+so, when trying to figure out how to camouflage the idea, someone can spend a lot of time trying to figure out the best way to make an idea best received, and in doing so, the idea loses its power and it causes negative emotion in the perceiver of its reception.
+
+the reason why the perceiver of its reception experiences negative emotion is usually not because the idea itself is bad, but because their perception of its receptivity is bad. if you see some beautiful flowers and you say to yourself, "I'm going to buy these for my girlfriend" and that doesn't feel bad, but then you think to yourself, "I wonder if she'll like them." or "I wonder if she'll think that I'm trying to make up for something I did wrong" -- and you feel negative emotion, or all of a sudden you can't figure out which flowers you want to buy her... it's very likely that your paralysis to purchase the flowers was not because it's inappropriate to buy the flowers. instead, when you introduced your perception of her reception of them, that was the source of the negative emotion and what caused the paralysis.
+
+so, when I say that, I am meaning to say that I will be working toward things feeling right, not toward things "looking right" -- and as a result, they will also look right. I have learned enough now to know that getting things to look right so that I can feel right is very much the difficult way of going about it.
+
+I watched a segment on seth meyers @[youtube](wh3c7-uVnwQ), which really got me thinking. stephanie ruhle mentions that the economy under trump isn't necessarily performing markedly better; he's just selling it better. that caught my attention. also, abraham is constantly doing quite a sales job for things like meditation and stuff like that too. there seems to be an advantage to "selling" something, and I want to figure it out. I think I've begun to see the light on how to do that. it involves reduction and culling the crap to allow the idea shine on its own... anyway... the point is, I will know by how it feels, not by how it appears (I perceive it to be received). meaning, the idea will be as undiluted as possible, and LOA will do the work. it just needs to feel good to me -- and in feeling good to me, I'm selling myself, and then by association, the idea sells itself. something like that.
+
 # potential topics
 
+### - getting ready to be ready (take 2)
 ### - thought based memory vs. feeling based memory (continued)
 ### - monogamy within the the relationship unit
 ### - vision deviod of meaning
