@@ -1688,6 +1688,38 @@ so, when I say that, I am meaning to say that I will be working toward things fe
 
 I watched a segment on seth meyers @[youtube](wh3c7-uVnwQ), which really got me thinking. stephanie ruhle mentions that the economy under trump isn't necessarily performing markedly better; he's just selling it better. that caught my attention. also, abraham is constantly doing quite a sales job for things like meditation and stuff like that too. there seems to be an advantage to "selling" something, and I want to figure it out. I think I've begun to see the light on how to do that. it involves reduction and culling the crap to allow the idea shine on its own... anyway... the point is, I will know by how it feels, not by how it appears (I perceive it to be received). meaning, the idea will be as undiluted as possible, and LOA will do the work. it just needs to feel good to me -- and in feeling good to me, I'm selling myself, and then by association, the idea sells itself. something like that.
 
+### 2018-09-10 13:42 - back to school daze
+
+had a few dreams last night trying to convince me of the value the relationship with the girls will bring. you don't need to convince me. I am already sold on the relationship. it was also notable to me how without resistance I felt. it just sort of felt like a natural transition into that happening. nice. I guess I don't have resistance toward the relationship.
+
+then near the end of the sequence, some stuff relating to school started coming up. again I felt no real resistance to the school thing. didn't really bother me. however, as I started to become more awake I felt a growing pressure to make action before they have to begin school. I feel no need to make any action here either. really, it's not a problem. just consider it as gaining more clarity about what you do want.
+
+as best as I can tell, there are a lot of people wanting this thing to go through. probably there is money involved. I'm sure that these guys probably thought it was a good idea to get people needing the manifestation because of lack based thinking revolving around money. besides that, I know that there are opposing forces inside of the company which do not want this thing to go through, and the reason why I know that is because it would have already gone through. if there were not strong thinkers with opposing beliefs, I would not have have any problem coming into alignment with myself and my vision. there is resistance somewhere.
+
+it's probably the guy carlene was talking about. he's not going to change, and I agree, he probably won't. ho doesn't need to change for me to find my alignment either. I need to change in order to find my alignment. that's it. that's all there is to it.
+
+there's nothing to be done. I know we're all waiting on me to find my alignment so we can get this show on the road, but really we're just going to have to accept the school as part of the clarifying experience along the way. there's no way around it.
+
+let's take my teeth for example. one of the things that's I feel like I want to really move forward on is my teeth. I want to get them fixed, and I want the implants. I've heard that they take a year to fuse with the bone, so it's going to be the time it takes for them to fuse with the bone, plus the time it takes me to raise the money to get them done.
+
+there is maybe a fast track though, because I know that jesus had the visual capability that I'm looking for, and he could easily look at someone and see them as whole, and then reality had to conform to his perception of the now whole person. I figure I could do something similar with my teeth. you say that's crazy talk, and I like your style, because I'm all about proving that everything you desire is possible as soon as you can line up with it.
+
+I learned about this last night. all your have to do is set your receiver to be in alignment with the manifestation that you want, and it's yours. it works :)
+
+so, let's just chill out and do a little step 5 practicing with me as we get so good at coming into alignment with what we want, all things can then manifest quicker and easier.
+
+if you don't want to go to school, don't go! in every case, this is an excercise in finding what you want and moving toward that. so, don't not go to school. find something you want to do, and do that instead of school. move only in the direction of what is wanted, and pay as little attention to what you do not want.
+
+if you have strong desire to do something instead of school, it will become reality. you don't need to even make it so defined. you don't need to figure out exactly what it is you want to do. find the feeling place of it. for example, I want to be stimulated by interesting ideas around technology, or even more general: I want to feel productive and creative in some crafts that I can do. I want to learn new things. stuff like that.
+
+that may be even a little bit too defined for even people like me. personally, I just hone in what I would feel and practice that. for example, I used to play a computer game called total annihilation. in the game you build up your base with robots. the game had a specific productive feeling to it as I watched my base expand and I felt the sureity of my conquering of my opponent. I really liked how that felt. I also really thought it was so annoying that so much micromanagement had to be done, and I really wanted to learn how to program something that would help me to play the game better, taking off a lot of the burdensome mundane tasks like expanding energy and metal production as excess resources became available or building bigger reserves for them.
+
+actually one of the first things I programmed was a program designed to help me play bingo. it read the screen and pattern matched to find out what was happening so it could play the game for me. I realised that making a full blown TA helper program was very much out of the scope of my capabilities at the time so I shelved the project. later that feeling turned into one where I wanted to do the same to make a digital helper to make a lot of the mundane programming tasks more efficient.
+
+my point is, you can use any feeling that makes you feel good. figure out what it is about the feeling that makes you feel good, and practice feeling that (without playing the game or whatever), and reality will help you find a way toward feeling that feeling more often. if you spend time thinking about school and how you want to do something else, you will find yourself spending a lot more time being required to do something you don't want to do, and wanting to do something else.
+
+figure out what it is you do want to do, and only give your attention to that. you can take my visual capacity as an example for how to do it. if you give your undivided attention to what you want feels like, you will get it.
+
 # potential topics
 
 ### - getting ready to be ready (take 2)
