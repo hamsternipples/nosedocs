@@ -1767,6 +1767,21 @@ well, I'll enjoy my clear night skies for as long as I have them! thanks florenc
 
 it may be too late now to get clear night skies, but if 10-100 people went out and watched stars in north carolina, it would create an enormous "high pressure" hurricane shield bubble, and the storm would never make landfall as it continued up the coast. when these guys don't alter the climate, watching stars seems to make the skies more conductive, and makes for higher pressure too as the increased conductivity allows for more heat (yet to be tested theory: I think the increased heat comes from the earth, not from the sun).
 
+---
+
+there might be clear skies on the appalachian mountains. if you watch stars there, it will push the clear skies down toward the coast. other note: I think what is happening is an intensification in the toroidal field that surrounds a person and allows them to see in 3d. I think the stars excite this field allowing higher vibration in this field while at the same time stimulating dmt production, allowing you to see more detail in 3d and making it possible to create objects in 3d space with your imagination. this intensification of the field surrounding the person is what makes the air more conductive and clears away the clouds. obviously the effect the person has on his environment is proportional to that field size. when I first started out, I noticed it was maybe 100m further in the distance. now I can't see the end of it, and it appears my effect on the clouds by looking at the goes imagery to be more than 50km in diameter.
+
+all you need to make the difference, are a few 3d seers to spend a few nights in the moutains with the stars
+
+---
+
+lastly, no matter what anybody tells you, the device does not jeopardise your ability to watch stars. the truth of the matter is, I am *always* having my own experience. meaning, there is always an image being transmitted into my eyes. so, the idea that the device can harm you if it's creating images in your eyes at the same time as you watching stars, is 100% false. I am proof. secondly, even if that were the case, they could easily disable it when you're looking at a star. if they have the technology to know what you're looking at, they can easily determine if it's a star. meaning, it's something they could easily make possible but do not want to. clearly, they do not want you to watch stars -- and I assure you there is no danger to having them put an image in your eye at the same time as you watch a star.
+
+the only case I can come up with is, for a lot of people, they may need to force your brain to produce dmt to see someone like my experience cause it's at a higher detail level, so they need your brain to be able to perceive at higher frequencies (dmt), so when activating my experience for example, your brain produces a lot of dmt to see the experience, combined with the star's excitation of the same function to create more dmt, you may potentially have a remarkably mind blowing experience.
+
+my experience is the opposite. when I watch stars, they activate the part of the brain that removes the dmt. so if my brain is a bathtub, the star is kind of like a big hose, and their machine is kind of like a big drain. meaning, again, they have the capability if regulating your dmt levels while watching stars, but simply do not want to.
+
+the worst that can happen to you is, you have an ayahuasca-like experience for free. when I first started out, that's what the effect was like (without some of the craziness that comes along with the plant consciousness)
 
 
 # potential topics
