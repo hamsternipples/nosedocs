@@ -1751,6 +1751,18 @@ other things:
 - regulation "solutions"
 - my dream where I was running then floating
 
+### 2018-09-13 14:15 - I love hurricane season
+
+... cause it means I get clearer nights to watch stars. in fact, there is a direct correlation between florence and clear night skies. meaning, as soon as florence was considerable, I no longer had clouds appear as soon as the sun was going down.
+
+few things I didn't think to check. I often watch the GOES-east southern rockies sector, but there may have been a correlation between cloud creation two nights ago (on the 10th), and strengthening of florence during that same time. I remember that it was the usual increase in cloudiness right after the sun was set, then it abruptly stopped. I thought that it was a bit weird and didn't look so much into it, but it's possible there is a correlation.
+
+if there is a correlation, and I believe there is after seeing similar correlations last year with most notably the houston hurricane that pretty much just stayed in one spot for days, means that their attempts to control the climate to prevent me from watching stars could be cost us 100s of billions of dollars in damages... just to make it less likely I can see images. I feel so special :)
+
+let me repeat: I am not causing those damages. likely those damages are as a result to a storm intensified by their attempts to control the visibility of my night skies. mind blowing. for reals.
+
+well, I'll enjoy my clear night skies for as long as I have them! thanks florence!
+
 
 
 # potential topics
