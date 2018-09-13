@@ -1763,6 +1763,10 @@ let me repeat: I am not causing those damages. likely those damages are as a res
 
 well, I'll enjoy my clear night skies for as long as I have them! thanks florence!
 
+### 2018-09-13 14:36 - a possible solution to florence
+
+it may be too late now to get clear night skies, but if 10-100 people went out and watched stars in north carolina, it would create an enormous "high pressure" hurricane shield bubble, and the storm would never make landfall as it continued up the coast. when these guys don't alter the climate, watching stars seems to make the skies more conductive, and makes for higher pressure too as the increased conductivity allows for more heat (yet to be tested theory: I think the increased heat comes from the earth, not from the sun).
+
 
 
 # potential topics
