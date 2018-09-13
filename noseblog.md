@@ -1696,7 +1696,7 @@ then near the end of the sequence, some stuff relating to school started coming 
 
 as best as I can tell, there are a lot of people wanting this thing to go through. probably there is money involved. I'm sure that these guys probably thought it was a good idea to get people needing the manifestation because of lack based thinking revolving around money. besides that, I know that there are opposing forces inside of the company which do not want this thing to go through, and the reason why I know that is because it would have already gone through. if there were not strong thinkers with opposing beliefs, I would not have have any problem coming into alignment with myself and my vision. there is resistance somewhere.
 
-it's probably the guy carlene was talking about. he's not going to change, and I agree, he probably won't. ho doesn't need to change for me to find my alignment either. I need to change in order to find my alignment. that's it. that's all there is to it.
+it's probably the guy carlene was talking about. he's not going to change, and I agree, he probably won't. he doesn't need to change for me to find my alignment either. I need to change in order to find my alignment. that's it. that's all there is to it.
 
 there's nothing to be done. I know we're all waiting on me to find my alignment so we can get this show on the road, but really we're just going to have to accept the school as part of the clarifying experience along the way. there's no way around it.
 
@@ -1708,7 +1708,7 @@ I learned about this last night. all your have to do is set your receiver to be 
 
 so, let's just chill out and do a little step 5 practicing with me as we get so good at coming into alignment with what we want, all things can then manifest quicker and easier.
 
-if you don't want to go to school, don't go! in every case, this is an excercise in finding what you want and moving toward that. so, don't not go to school. find something you want to do, and do that instead of school. move only in the direction of what is wanted, and pay as little attention to what you do not want.
+if you don't want to go to school, don't go! in every case, this is an exercise in finding what you want and moving toward that. so, don't not go to school. find something you want to do, and do that instead of school. move only in the direction of what is wanted, and pay as little attention to what you do not want.
 
 if you have strong desire to do something instead of school, it will become reality. you don't need to even make it so defined. you don't need to figure out exactly what it is you want to do. find the feeling place of it. for example, I want to be stimulated by interesting ideas around technology, or even more general: I want to feel productive and creative in some crafts that I can do. I want to learn new things. stuff like that.
 
@@ -1719,6 +1719,37 @@ actually one of the first things I programmed was a program designed to help me 
 my point is, you can use any feeling that makes you feel good. figure out what it is about the feeling that makes you feel good, and practice feeling that (without playing the game or whatever), and reality will help you find a way toward feeling that feeling more often. if you spend time thinking about school and how you want to do something else, you will find yourself spending a lot more time being required to do something you don't want to do, and wanting to do something else.
 
 figure out what it is you do want to do, and only give your attention to that. you can take my visual capacity as an example for how to do it. if you give your undivided attention to what you want feels like, you will get it.
+
+### 2018-09-12 06:27 - I don't think you're speaking to me in my dream-state
+
+I think it's similar to how you're not speaking to esther when you're speaking to abraham. the same way that abraham operates esther's body is likely how they operate mine in dream-state. the guy you're speaking to sounds exactly like me, uses my expressions, and everything, but he is not me.
+
+you can see how this is likely true when you analyse the function of the brain which translates the concept (block of thought) into words. very often, I'll think a thought, then there's something inside of me trying to get me to translate it into words. as this has increased over time, I've just begun to think almost entirely in words or out loud in voice. I normally don't think in words. words are how I think slowly. the frustration I feel regarding this topic is another discussion, and one of the main reasons why I want to disconnect from the network so bad. I'm tired of being forced to think slowly.
+
+the other day, I was asking mom about her television program, chuck. she said something about how the cia are using his brain and stuff.. I told her that I think that they have completely hijacked my right-hemisphere, because it seems obvious to me. yesterday though, I began thinking of some of the implications. it is quite likely that, just how abraham is able to move esther's body, they are also able to move mine. I notice that they make my muscles spasm when they don't like something I'm doing or I'm seeing images, so muscle movement they already do. however, is it capable of fluid movement?
+
+if they're able to take consciousness from me (or hold me in an unconsciousness state like a sleep-walker), perhaps one of the reasons why they're so super-cool with all of this craziness is because then they could take turns operating my body and having sex with the different girls.
+
+### 2018-09-13 06:33 - when you take away my ability to control myself, I lose self-control
+
+really it is like that. when I am no longer capable of controlling myself. when someone else says, "I don't want you to be able to control you; I want to control you" -- that's when I sorta lose my own self-control, trying any thing possible to regain control. have to be smart about it though.
+
+had a bit of a rough time tonight watching stars. I really got frustrated with the new device in the nose, and stuff. unlike esther couldn't handle pushing against in the form of criticism, I can't handle pushing against in the form of physical limitation. like her, I too know that one day it will be possible that others will try and limit me physically, and I'll just say, "that's nice of them to focus their attention toward me" and I won't need to push back or anything.
+
+I'm not quite there yet. I thought I arrived a few days ago actually to the conclusion that they can add as many devices as they want, cause I'm going to still find my alignment anyway. seems I somehow forgot that temporarily. it's a good thing I was able to get back to remembering that.
+
+I liked the imagery of the last matrix movie where the agents are becoming more and more. at first neo fights them until they become too many to fight. so then as smith tries to take over neo, he consumes smith and conquers him and starts to fly...
+
+cept that's not what happened. I just looked it up. I mixed three scenes from the three movies. in the first one, after dying, trinity saves him with love, then neo flys into smith and causes him to explode: @[youtube](WNnGXXlPzuo) then, so here's the fight scene where there are more and more and more smiths and he flys away: @[youtube](1HdeI-lu3e8) finally, in the final fight of the trilogy, this is where he consumes smith: @[youtube](UrQjHYFChns). (he first is shown flying, besides into smith in the final scene of the first movie @[youtube](Yx12Wy875E4))
+
+I wish I hadn't of looked it up now cause it totally wrecked it for me. I perceived originally that they would try and put more and more devices, (like in the first fight scene where more and more smiths), but fighting so many of them would become impossible and they would eventually pin him down, and then as they tried to take control of him with the black inky stuff. the virus or whatever would overtake him, then, conquering the virus internally he would learn to fly away... lol. I guess I sort of make things up in my mind... lol. the movie version is way worse and super hokey.. lol
+
+other things:
+- a potential future regarding a new switch in consciousness
+- regulation "solutions"
+- my dream where I was running then floating
+
+
 
 # potential topics
 
