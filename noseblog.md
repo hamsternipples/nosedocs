@@ -1742,7 +1742,9 @@ I liked the imagery of the last matrix movie where the agents are becoming more 
 
 cept that's not what happened. I just looked it up. I mixed three scenes from the three movies. in the first one, after dying, trinity saves him with love, then neo flys into smith and causes him to explode: @[youtube](WNnGXXlPzuo) then, so here's the fight scene where there are more and more and more smiths and he flys away: @[youtube](1HdeI-lu3e8) finally, in the final fight of the trilogy, this is where he consumes smith: @[youtube](UrQjHYFChns). (he first is shown flying, besides into smith in the final scene of the first movie @[youtube](Yx12Wy875E4))
 
-I wish I hadn't of looked it up now cause it totally wrecked it for me. I perceived originally that they would try and put more and more devices, (like in the first fight scene where more and more smiths), but fighting so many of them would become impossible and they would eventually pin him down, and then as they tried to take control of him with the black inky stuff. the virus or whatever would overtake him, then, conquering the virus internally he would learn to fly away... lol. I guess I sort of make things up in my mind... lol. the movie version is way worse and super hokey.. lol
+I wish I hadn't of looked it up now cause it totally wrecked it for me. I perceived originally that they would try and put more and more devices, (like in the first fight scene where more and more smiths), but fighting so many of them would become impossible and they would eventually pin him down, and then as they tried to take control of him with the black inky stuff. the virus or whatever would overtake him, then, conquering the virus internally he would learn to fly away... I guess I sort of make things up in my mind... the movie version is way worse and super hokey.. lol
+
+the idea for me was that conquering the "virus" internally, means conquering it externally
 
 other things:
 - a potential future regarding a new switch in consciousness
