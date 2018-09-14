@@ -1793,6 +1793,31 @@ won't stop me from progressing though. when they're finally done dicking around,
 
 that's why I say it's probably never going to happen. it's just too risky for them to give me such a public position, when we're in direct disagreement on so many different things. it's just easier for them to hold me hostage and settle for just having access to my dream-state (and a network filled with other people they can try to control).
 
+### 2018-09-14 12:25 - what all that means (again)
+
+I really want to find my alignment before I begin this thing with the girls. that means physically, I want to feel the agility, stamina, and strength I am accustomed to feeling. that means visually, where I actually see what my eyes are seeing and have access to my visual capacity. that means sensationally, where I actually feel the things they way they are supposed to be felt. I want to have a good experience at it. you can understand, hopefully.
+
+they have some silly rules which state that I cannot have my own experience the way I am actually having it, and not only that, the public agrees that they are rightful and able to take that away from me.
+
+that's cool. I'm going to continue to look for my own alignment while you guys sort that out. we are incompatible, and they are not going to change their silly position on that either. as illogical as their position is, there is no real way to affect any change (in them). the only way forward is for me to find my own alignment with myself even when the conditions are not conducive for me to finding it.
+
+I am convinced that I can find it though, and they are sure that they can just keep making it more difficult for me. every time I get closer, they try to undo that progress or make further progess more difficult. I suppose it's like some really long winded sparring match. it is quite possible that I will never be able to achieve it in my current state (refusing to meditate or engage in any physical activity). in the past I have never needed to engage in physical activity to find my alignment -- and actually, when I did have that energy flowing, I can't just sit around. I have so much excess energy, there is no way I could be stationary. it often means long hours working on something, or lot's of physical exercise.
+
+I will eventually begin meditating again, however I find it mostly frustrating at the moment. recently, I have not bee able to quiet anything in my mind. it's as if they have something in my head that keeps putting stuff in my head all day, and my failed attempts to meditate is where I first begun the idea that my right-hemisphere is being used for something else, which I am not aware of physically, just feel and sometimes it inspires thought.
+
+the best way I can try to reason about what may be happening is, they're using the imagination in my right-hemisphere constantly and, even though I don't see it in my left eye, that's why it's so blurry, because it's not focused to see the darkened picture my imagination is producing in my eye. instead, I'm focused to see the image they are putting in my eye. that explanation certainly would explain why they do not want me seeing images and why my imagination doesn't work. obviously if I'm seeing images, they're not going to be able to use my imagination at the same time. instead, they will see my images, not theirs. they probably don't want that.
+
+I come from the perspective that I can obtain anything I put my mind to, and I want my visual capacity. they believe they can just hijack that part of my head as their own, then hold me a prisoner for the rest of my life. you could say, well kenny, why don't you just accept that you can't use your visual capacity and just enjoy your coming life experience. yeah, I'm not that kind of person. I have to be continually moving toward what I want. you will see that I will find a way of coming into alignment with who I really am, and then reality has to conform and come into alignment with that too.
+
+so you say, why don't you work out a deal with them where they can use your visual capacity during the night and you have access during the day. I tried. that's the proposal I gave to stacie when I was at vanguard. it didn't work. they are sure they want 24/7 access to my imagination, apparently.
+
+so, like I said, that's fine with me. I've grown accustomed to it, and I new perceive it as a competition (spirit of elijah) now, which I am sure I will "win" (eventually). I'm not saying this thing is never going to happen, but it probably won't be happening any time soon.
+
+they see it as a threat to their setup of using my brain to do their stuff, so it's inconceivable for them to relinquish me the use of my own brain, because it means they would lose their main source of visual creativity. I see it as inconceivable that I would attempt to engage in such a large scale operation just kinda "winging it" out of control and out of alignment. I am better than that, and I just won't do it.
+
+when I was young, I would not walk until I knew that I could make it. consider it risk management if you want, but I guess I plowed into enough coffee tables and my dad probably made fun of me enough about hurting the coffee table, to know that when I attempted to walk I wanted to do it well. that meant that I did not walk until much later than an infant usually walks, but when I finally attempted the walk, I did it well. same thing is occurring here: I'm going to wait until I'm sure I can walk well, in order to ensure that I avoid any more coffee table encounters.
+
+you say, what about the "art of the mistake" that you were talking about so much. a mistake is missing a turn; a mistake is not a head-on collision with a tree at 100mph. that's an accident. this isn't "the art of the accident"
 
 # potential topics
 
