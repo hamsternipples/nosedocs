@@ -1819,6 +1819,14 @@ when I was young, I would not walk until I knew that I could make it. consider i
 
 you say, what about the "art of the mistake" that you were talking about so much. a mistake is missing a turn; a mistake is not a head-on collision with a tree at 100mph. that's an accident. this isn't "the art of the accident"
 
+### 2018-09-14 13:48 - why does it have to be like this?
+
+if you think about how the other timelines went, you could see that in a situation where all of a sudden I have other people summoning large quantities of energy from me sexually, you would expect that to create huge desire for me to allow that kind of energy to flow through me again. so, it would. the desire produced by the sexual summoning would require that kind of alignment from me, and since it is what I already want, it would be a nearly instant manifestation. there would be nothing that anyone could do to prevent it. I'm sure they tried fruitlessly in the other timelines, realising they would be forced to scramble and find a different host for their visual creativity.
+
+certainly if I just went with the girls now that would work, and I believe it is how I believe it happened in all of the other timelines. this timeline is different though, as it seems I want the satisfaction of finding that alignment myself, and not needing the excuse of someone(s) else's summoning of desire to make that happen. the evidence of difficulty getting this manifestation to happen suggests that there are greater intentions of not needing someone else to find one's own alignment.. so likely, it is quite possible that even the girls have the intention to find their own alignment too, not needing me to be the reason for it.
+
+mostly I think it gives the bso more time to use my visual capacity and an early warning to begin finding their own alignment, or start looking for a new host. I would love to see all of the world have this capability too, but something tells me the bso has had enough coffee table experiences with visually capable people like me, that they will likely want to ensure that no one else gets an uncontrollable (by them) visual capacity ever again. and, who knows.. instead of trying to vicariously use mine, they may actually learn more by observing me mine. eg. there's no way a dancing puppet can ever dance better than a real dancer can, especially if the puppeteer has never even seen a real dancer dance.
+
 # potential topics
 
 ### - getting ready to be ready (take 2)
