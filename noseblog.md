@@ -1783,6 +1783,16 @@ my experience is the opposite. when I watch stars, they activate the part of the
 
 the worst that can happen to you is, you have an ayahuasca-like experience for free. when I first started out, that's what the effect was like (without some of the craziness that comes along with the plant consciousness)
 
+### 2018-09-14 07:19 - wack eyesight
+
+if you notice that I'm typically looking to the side, above or below the star now when I watch stars, I noticed it too. in my eyes though, it looks like I'm looking directly at the star, but I'm not really looking at it. the image they put in my eye is not exactly looking any more directly at what I'm looking at. typically, it's shifted to the right a bit, now. as I figured it out, I realised that's why I have such low peripheral vision now. in the last few weeks I've noticed a reduction in my peripheral vision, and it's obvious why now.. if you shift a square image to the left, there's a blank spot on the right side. if you shift your eyesight to the left, since it's a parabolic shape (think circular concave mirror), you need to take some space off around the edges, so you make the mirror more concave, so things look further away, then you twist it a bit, so that what appears in the middle of the eye is really slightly to the left, then you chop off the edges. what you get is a lesser quality version of the image which everything appears further away, and you're not really looking at what's in the center of the picture, which is exactly how things look recently.
+
+wow, the lengths they go to to try and prevent me from advancing with the stars... anyway, I've begun to figure out how to detect where the star really is. I'll be honest, it's a bit weird looking at what appears to be empty sky, but feeling like the star is really there, and seeing the star just to the left of where I'm looking light up like it should...
+
+won't stop me from progressing though. when they're finally done dicking around, I'm going to enjoy a small break seeing properly through my eyes so I can have a real star watching experience again, THEN we can do the girls thing... I realise that'll probably never happen, just like the idea of getting to leave the network. they will likely try to hold me hostage for the rest of my life. oh well.
+
+that's why I say it's probably never going to happen. it's just too risky for them to give me such a public position, when we're in direct disagreement on so many different things. it's just easier for them to hold me hostage and settle for just having access to my dream-state (and a network filled with other people they can try to control).
+
 
 # potential topics
 
