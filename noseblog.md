@@ -1827,8 +1827,84 @@ certainly if I just went with the girls now that would work, and I believe it is
 
 mostly I think it gives the bso more time to use my visual capacity and an early warning to begin finding their own alignment, or start looking for a new host. I would love to see all of the world have this capability too, but something tells me the bso has had enough coffee table experiences with visually capable people like me, that they will likely want to ensure that no one else gets an uncontrollable (by them) visual capacity ever again. and, who knows.. instead of trying to vicariously use mine, they may actually learn more by observing me mine. eg. there's no way a dancing puppet can ever dance better than a real dancer can, especially if the puppeteer has never even seen a real dancer dance.
 
+### 2018-09-16 02:35 - I love futurepop/ebm
+
+sometimes there are songs that seem to capture so well different things that I experience in my life. I just began to notice something I have not noticed before. neuroticfish is german. in one of their songs, "waste", he says, "I can't stand your decency" -- which is something I had always interpreted it as "not-nakedness" or "not-offensiveness", but then when I looked it up, he probably used decency in the form of conformity, as defined by the dictionary: "behavior that conforms to accepted standards of morality or respectability"
+
+wow. I never thought about it as conformity. suddenly the song has a whole new meaning for me. it very accurately conveys an emotion I often have felt regarding my role here in the bso shell game. I'm brilliant. I have a truly magnificent mind, and they want to just completely waste it. previously I believed that there is so much that can be gained, but it's as if they do not want to take advantage of the incredible technology that they have available to them.
+
+however, as time goes on, I realise that they are using a good portion of it, but its use is secret because they want to maintain their top-dogness. if this technology gets public acceptance and understanding, then they won't have an advantage any more. they playing field will be levelled and and the plebs will have access to the same technology that they have.
+
+so, in the end what I learned from the song is that it's actually the conformity that allows people to just accept such a vapid reality, where people are seem to be satisfied with a lightweight future were you only mind the perception of others as the measurement of yourself. I cannot handle this. I must have constant expansion. I cannot settle for that.
+
+I can't stand your decency
+I guess you are wasting me
+
+---
+
+I really like the depth to which the words of nuroticfish speaks. it excites the pure desire type being inside of me that speaks in principals and infinitives. the best example of this is "Darkness/Influence" (it just came on as I wrote that!)
+
+```lyrics
+You are the slaves of the modern ages
+Raised to be patient and to agree
+You're only able to turn the pages
+But you have forgotten how to read
+
+You are dancing to the sound of deception
+A product that we have designed
+You are dancing to the sound of deception
+
+You are dancing, awaiting solutions
+Reflecting what we left behind
+You are dancing to the sound of deception
+
+You are deceived by the modern ages
+You throw away your dignity
+You are a part of different stages
+Simplified by productivity
+
+You are dancing to the sound of deception
+A product that we have designed
+You are dancing to the sound of deception
+
+You are dancing, awaiting solutions
+Reflecting what we left behind
+You are dancing to the sound of deception
+
+You are dancing to the sound of perfection
+The moments that we have combined
+You are dancing to the sound of perfection
+
+You are dancing, awaiting solutions
+In doses that we have defined
+You are dancing to the sound of deception
+```
+
+however, today I remembered the song, "you haven't earned it" by assemblage 23, probably because last night I was listening to @[abe](2004-05-01) workshop where abraham talks about "earning". nowadays, they use the expression, "hard work and sacrifice" to convey the same thing. they said:
+
+«earning doesn't feel very good. earning sounds like somebody else is holds the strings. somebody else gets to decide whether I have jumped through the hoops in the right way»
+
+which got me thinking about that. then, today I was thinking about how mom felt when she came home today, thinking about how they are convinced that if I could just do something differently, they could feel good. they have this perception that the governmental entity or the rules are not going to change, and so therefore I am holding them in a place of discomfort because I won't conform to the unchanging (impossible to change) rule. well, the same thing I could say about them. to me it's absolute silliness that the public is in agreement that they can hold my body energetically in a state of such disallowance to the very thing that I discovered. I find it absolutely appalling that the public just sits and watches as they rob me of my discoveries, like they are allowed to literally do whatever they want to a person and then lie about it.
+
+in a very symbolic world, you can imagine it like this. in any relationship, if one of the persons requires the other person to do what they want and does not allow them the freedom to choose what it is they want, we call that rape. imagine though that you were a witness to someone getting raped, and you didn't say anything about it.
+
+ok, so they're not exactly forcing me to do what they want. that would obviously be pretty bad. but it would be somewhere akin to sexual harassment, where the woman is usually confined into a space where the man makes unwanted advances on her. they're not exactly forcing me to do anything, but they're making it really difficult for me to go anywhere else. it's sort of like the guy who presents himself so often to the girl that she finally agrees to go with him on a date just to get him to stop harassing her. true love :)
+
+well, if you were witness to a dude doing that repeatedly over the course of a few years span of time and you continued to let it happen, as he uses his position of power to ensure that she does not advance in her job until he does the necessary favours that he requires for her to advance. if you witnessed that and did not say or do anything about it, you'd be a shithead. I hear at the bso they have a very strong stance against that kind of thing. I feel like if I were maybe a girl, I could tell them that I have these really horrible people that are harassing me, lol anyway...
+
+wow, what a detour. so then the song is going on in my head about how I have not earned it. at first I thought maybe the song would be like what the guys running my head would be saying to me, but then when I heard the part where he says, "you haven't walked long enough in these shoes", I realised that I was in fact singing the song to the guys stealing my discoveries from me.. you haven't earned it.
+
+I began to realise how much I enjoy the emotional perspective that assemblage 23 has to offer. my first memories of listening to both of these songs, I was working on a new social network written in D while sitting in a cast in a small apartment in bilbao living with my mom. I was just beginning to get my job taken away from me by erik. it was right after the accident. I interpreted these same songs as my message to zaryn, having to put up with so much of his bullshit.
+
+crazy how things are so much of a resonance of each other in my life. I am once again living with my mom disillusioned with a large project I initiated, yet our differences of motivations have created the perception conveyed in "waste" and my emotional reaction is the one of "you haven't earned it" as we begin to move apart. "I guess you're wasting me" ... "enjoy the need of all the thirsty minds awaiting light to see"
+
+so, put yourself back in the workplace harassment scenario where the guy is holding the woman away from her promotion because he thinks she has not yet earned it by performing the necessary sexual favours for him to consider her "worthy" enough of her promotion.
+
+in this metaphor, I am the woman in and the bso is the sleazy guy, so the "you haven't earned it" song for me is a pivotal moment where I get to say to them that they haven't earned my visual capacity. they have not lived the life I have lived which caused me to want it. they did not go through the necessary task of releasing resistance to achieve that high of a frequency to be able to allow something like that. they have not earned it, but I cannot do anything about that really. what I can say to them though is, you may believe I have not yet earned the promotion because I have not given you the sexual favours you desire, but you have not earned my favours either. so step the fuck off and "enjoy the *need* of all the thirsty minds awaiting light to see"
+
 # potential topics
 
+### - the uncontrollable visual capacity
 ### - getting ready to be ready (take 2)
 ### - thought based memory vs. feeling based memory (continued)
 ### - monogamy within the the relationship unit
