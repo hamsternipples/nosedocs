@@ -1900,7 +1900,29 @@ crazy how things are so much of a resonance of each other in my life. I am once 
 
 so, put yourself back in the workplace harassment scenario where the guy is holding the woman away from her promotion because he thinks she has not yet earned it by performing the necessary sexual favours for him to consider her "worthy" enough of her promotion.
 
-in this metaphor, I am the woman in and the bso is the sleazy guy, so the "you haven't earned it" song for me is a pivotal moment where I get to say to them that they haven't earned my visual capacity. they have not lived the life I have lived which caused me to want it. they did not go through the necessary task of releasing resistance to achieve that high of a frequency to be able to allow something like that. they have not earned it, but I cannot do anything about that really. what I can say to them though is, you may believe I have not yet earned the promotion because I have not given you the sexual favours you desire, but you have not earned my favours either. so step the fuck off and "enjoy the *need* of all the thirsty minds awaiting light to see"
+in this metaphor, I am the woman in and the bso is the sleazy guy, so the "you haven't earned it" song for me is a pivotal moment where I get to say to them that they haven't earned my visual capacity. they have not lived the life I have lived which caused me to want it. they did not go through the necessary task of releasing resistance to achieve that high of a frequency to be able to allow something like that. they have not earned it, but I cannot do anything about that really. though, what I can say to them is, you may believe I have not yet earned the promotion because I have not given you the sexual favours you desire, but you have not earned my favours either. so step the fuck off and "enjoy the *need* of all the thirsty minds awaiting light to see"
+
+### 2018-09-16 06:51 - a more practical example
+
+I have realised the difficulty with the example of the workplace harassment and withholding of the promotion for sexual favours. instead, let's imagine something more practical.
+
+imagine a guy who makes cocaine. he makes it for his own usage. the police come and take his cocaine from him telling him it is against the law to sell cocaine. so the cops take it and sell it to people at a controlled price. there is no way for him to get justice because who's he going to tell -- the police? so, since he's not breaking the law (the coke he's making is for personal consumption and has no intention of selling it) he decides to just make more. they come and take it again.
+
+this escalates until the police are literally coming all the time to confiscate his coke. he is without options, because there's no way to escape the cops oppression. so, he just decides to make more coke. the more time he spends making coke, the more time he has to enjoy a few lines while making it. escalating further, now every time he finishes production they come to take it. it's official, he can only enjoy his coke while he's making it. he's a coke making machine now.
+
+he keeps finding more ways to make more coke. trying to figure out how he can finally enjoy his own coke, he hears a rumour that the cops also want him to blow the entire police force. he hopes maybe if he does they will take less of his coke as thanks, and finally he can enjoy more of his coke. the police won't talk to him. they just take his coke and leave, so he asks the people buying his coke from the cops, and obviously no one can confirm or deny this rumour. coke? what's that?!?
+
+the cops probably don't to be found out.. maybe they don't want to reveal to their buyers their plan to coerce him into sexual favours as well.. maybe they do they want to reveal that they've selling stolen coke to their buyers.. maybe they don't want their buyers to know how to make their own coke.. obviously though, the cops have no intention of ever taking less coke from him. they definitely don't want their coke provider to be enjoying so much he's all coked out and unable to produce as much as he is right now.
+
+it doesn't matter really what the reason is, the cops clearly have no intention to stop stealing his coke (it's a pretty booming business), or to actually have a conversation with him to work out a deal or confirm that they really want sexual favours too. they want him to offer his sexual favours on the hope that he can catch a break from them.
+
+it's clear this is an impossible situation, so he just settles into the optimising his production technique, which makes it possible for him to get a little higher every production even also produce more every time. why make coke at all? to him, a few lines during production is still better than no coke at all -- and, he's getting REALLY GOOD at making coke.
+
+one day, he hopes to find a way to actually do his own coke distribution. maybe, if he can learn better distribution, provide a purer product, and make it all free (cause the rule is you can't sell it), he'll hopefully have more to enjoy for himself. it's a pretty lofty dream. for now though, he's decided to just get better making his product: more purity and more production efficiency.
+
+it sounds pretty crazy that his goal is to give away his coke for free, but in his perspective, he's already giving his coke away for free, anyway. he's not going to force anyone to take his free coke, he's just doing it for his own pleasure. he didn't optimise his production and quality so that cops can just take his pristine product, dilute the fuck out of it and sell it to naïve people. giving away a higher quality product feels like the right way for him. even just the idea of making people an undiluted product that they can receive more benefit from, makes him feel better than the hopelessness of his present circumstances.
+
+
 
 # potential topics
 
