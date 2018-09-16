@@ -1924,6 +1924,14 @@ it sounds pretty crazy that his goal is to give away his coke for free, but in h
 
 sidenote: I love how the word "users" can be used in the context of both drugs and members. lol
 
+### 2018-09-16 13:53 - step 5 shocks
+
+zehra posted a reply to my comment on her video asking me what emotion I had with the shocks. I decided I'm going to reply here.
+
+I can't think of an exception, so proceeding the shock I am always feeling quite good. in fact, I am feeling so good that is what causes the image to form in my eye. I have always wanted a visual capacity like nikola tesla has, and so to begin translating energy (good feeling) into something visual means I have come into alignment with what I want. usually right after the shock, I often feel negative emotion, which means my inner being perceives the shock differently than I do, which is why I feel the negative emotion. that's why I think it's step 5 practice, because I know what I want (step 1), source answers it (step 2), I find a way of coming into alignment with it (step 3) and begin to see the images. even though I have been shocked in the past, I'm getting quite good at still coming into alignment with what I want that it's normal for me (step 4), and then I get shocked. once I again I know what I don't want (the shocks), so I do know what I want (to translate energy visually), so I'm back in step 1 again and this time I have to find a way of not being mad at myself for attracting the shock (step 5).
+
+so, I believe the shocks are a good thing now. they're just step 5 practice, (or, in last night's analogy, it's when the cops come and confiscate the coke) and I'm really getting used to not letting them really bother me any more. I know that what I want is all queued up for me and ready to go, and all I need to do is to come into alignment with that. my realisation this morning is that likely when I am so practiced at step 5, the shock will no longer bother me and so I will no longer attract the shock, finally achieving mastery of step 5 and also gaining an incredible visual capacity! it sounds good to me, and the idea of coming into alignment with both of these at once is exhilarating to me
+
 # potential topics
 
 ### - the uncontrollable visual capacity
