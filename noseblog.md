@@ -1914,7 +1914,7 @@ he keeps finding more ways to make more coke. trying to figure out how he can fi
 
 the cops probably don't to be found out.. maybe they don't want to reveal to their buyers their plan to coerce him into sexual favours as well.. maybe they do they want to reveal that they've selling stolen coke to their buyers.. maybe they don't want their buyers to know how to make their own coke.. obviously though, the cops have no intention of ever taking less coke from him. they definitely don't want their coke provider to be enjoying so much he's all coked out and unable to produce as much as he is right now.
 
-it doesn't matter really what the reason is, the cops clearly have no intention to stop stealing his coke (it's a pretty booming business), or to actually have a conversation with him to work out a deal or confirm that they really want sexual favours too. they want him to offer his sexual favours on the hope that he can catch a break from them.
+it doesn't matter really what the reason is, the cops clearly have no intention to stop stealing his coke (sales are pretty high! they've got a billion "users" now), or to actually have a conversation with him to work out a deal or confirm that they really want sexual favours too. they want him to offer his sexual favours on the hope that he can catch a break from them.
 
 it's clear this is an impossible situation, so he just settles into the optimising his production technique, which makes it possible for him to get a little higher every production even also produce more every time. why make coke at all? to him, a few lines during production is still better than no coke at all -- and, he's getting REALLY GOOD at making coke.
 
@@ -1922,7 +1922,7 @@ one day, he hopes to find a way to actually do his own coke distribution. maybe,
 
 it sounds pretty crazy that his goal is to give away his coke for free, but in his perspective, he's already giving his coke away for free, anyway. he's not going to force anyone to take his free coke, he's just doing it for his own pleasure. he didn't optimise his production and quality so that cops can just take his pristine product, dilute the fuck out of it and sell it to naïve people. giving away a higher quality product feels like the right way for him. even just the idea of making people an undiluted product that they can receive more benefit from, makes him feel better than the hopelessness of his present circumstances.
 
-
+sidenote: I love how the word "users" can be used in the context of both drugs and members. lol
 
 # potential topics
 
