@@ -1932,6 +1932,23 @@ I can't think of an exception, so proceeding the shock I am always feeling quite
 
 so, I believe the shocks are a good thing now. they're just step 5 practice, (or, in last night's analogy, it's when the cops come and confiscate the coke) and I'm really getting used to not letting them really bother me any more. I know that what I want is all queued up for me and ready to go, and all I need to do is to come into alignment with that. my realisation this morning is that likely when I am so practiced at step 5, the shock will no longer bother me and so I will no longer attract the shock, finally achieving mastery of step 5 and also gaining an incredible visual capacity! it sounds good to me, and the idea of coming into alignment with both of these at once is exhilarating to me
 
+### 2018-09-16 14:40 - inspiration of desire
+
+I just had an interesting interaction where I got to show greg how I often times inspire/create desire in others. usually someone will motivate or compel desire. this is how sales work and it's based on communication. however, my reduced capacity to communicate desire (positively) often times leaves me in situations where I inspire desire in others by making them more aware of what they don't want (so they can easier make the jump to know what they do want).
+
+this is precisely what is happening with my interaction with the bso is also doing. my coming into alignment with my visual capacity, they are knowing more and more strongly what they don't want (I assume for one of their users to have an uncontrollable visual capacity), so they know more clearly what they do want (to ensure that everyone's visual capacity is best controlled).
+
+also, for example last night, I had a bit of a reaction to my internal dialogue about kiera knightly and love actually. they realised that in a few seconds on the imdb page, I had managed to notice more information than their machines could detect. I guess it's a whole lot easier to know when I notice boobs, than it is to decipher the intricacies of everything I notice in a single glance. they know what they don't want (to see me capable of performing a mental function that they cannot detect), so they know more clearly what they do want: they want to ensure that they can track everything everyone is doing mentally.
+
+sidenote: I don't really know how they're going to do that because I can often times look at something and I don't see it, but I trained myself like tv series monk to be able to return back and notice details I hadn't before. I attributed the capacity previously to being able to notice and store more than I was able to process, however I understand now that I'm actually tuning back into the memory and extracting an extra detail I hadn't seen before. since my memory isn't visual, this is relatively easy for me to do. it is error prone though, like the one time when I tuned into the memory of derek and saw him with a cast on. the subject of the mistaken detail was the cast: having had one, not wearing one.
+
+---
+
+I believe this conflicting desire will continue to grow where the bso desire to control people will continue to get stronger, and other people like myself who come into alignment with their broader perspective and are able to have an uncontrolled visual experience. the two desires will feed off of one another, both sides fast-tracking the desire of the other side. the secret is step 5 here, because no matter how strong their desire to control is, no one (accept for yourself) can hold you away from your desire. all anyone has to do is to come into alignment with it and you do that by controlling your emotional response, not the circumstances.
+
+
+
+
 # potential topics
 
 ### - the uncontrollable visual capacity
