@@ -1882,7 +1882,7 @@ You are dancing to the sound of deception
 
 however, today I remembered the song, "you haven't earned it" by assemblage 23, probably because last night I was listening to @[abe](2004-05-01) workshop where abraham talks about "earning". nowadays, they use the expression, "hard work and sacrifice" to convey the same thing. they said:
 
-«earning doesn't feel very good. earning sounds like somebody else is holds the strings. somebody else gets to decide whether I have jumped through the hoops in the right way»
+«earning doesn't feel very good. earning sounds like somebody else holds the strings. somebody else gets to decide whether I have jumped through the hoops in the right way»
 
 which got me thinking about that. then, today I was thinking about how mom felt when she came home today, thinking about how they are convinced that if I could just do something differently, they could feel good. they have this perception that the governmental entity or the rules are not going to change, and so therefore I am holding them in a place of discomfort because I won't conform to the unchanging (impossible to change) rule. well, the same thing I could say about them. to me it's absolute silliness that the public is in agreement that they can hold my body energetically in a state of such disallowance to the very thing that I discovered. I find it absolutely appalling that the public just sits and watches as they rob me of my discoveries, like they are allowed to literally do whatever they want to a person and then lie about it.
 
@@ -1946,8 +1946,37 @@ sidenote: I don't really know how they're going to do that because I can often t
 
 I believe this conflicting desire will continue to grow where the bso desire to control people will continue to get stronger, and other people like myself who come into alignment with their broader perspective and are able to have an uncontrolled visual experience. the two desires will feed off of one another, both sides fast-tracking the desire of the other side. the secret is step 5 here, because no matter how strong their desire to control is, no one (accept for yourself) can hold you away from your desire. all anyone has to do is to come into alignment with it and you do that by controlling your emotional response, not the circumstances.
 
+### 2018-09-17 23:59 - simplifying the bathtub metaphor
 
+I think I overcomplicated this by trying to use numbers. this also happened when I was explaining a similar concept to aaron and I was able to simplify it by using the girls example. I can't remember it exactly right now, so it must have been a reminder for me to recall that. anyway, let's simplify the bathtub example I expanded on in this @[abe](2004-05-01) notes.
 
+so, let's talk about the well-being in my head (dmt) as a reserve. imagine you need some amount of it to accomplish certain things. it works less like a tank of water and more like a battery, where the fuller it is, the brighter the light will be. I like the battery metaphor even better, because it's it's quite literally a capacitor, and a battery has pretty similar behaviour to a capacitor. if you want to know the differences between a battery and a capacitor, I must refer you to robert murrey smith's videos. that's where I learned the difference. the main difference is the discharge curve, because a capacitor stores energy as "static electricity" and a battery stores the energy chemically. eg. charging a battery restores a chemical imbalance which produces electrons electrons. when the battery is discharged, it is back in balance. the method for storing energy is inconsequential in this example, so consider it as a generic energy storage device, which I'll call a battery :)
+
+anyway... imagine it's necessary to have 10V in your battery to be able to see images in your eyes. that is the "pressure" necessary to turn on the screen in your eyes to see the image. what they do to me, is they keep my battery always on empty.
+
+for this example I will also assume perfect efficiency as well. so, if you have a 1000mA/h battery that is full, you can run a load that consumes 100mA for 10 hours. likewise, it will take 10 hours to charge back to full in 10 hours @ 100mA, or 1hr at 1000mA, or 10 minutes at 10000mA. perfect efficiency :) in reality it is quite a bit different than this, and yields a discharge curve where the voltage drops over time. so, in this case now it's helpful to think of this again like water in a bathtub. I would like to explore the electrical example in a future date, as I think there is something to be learned there, but for now let me explain with the bathtub.
+
+everyone has a quantity of well-being (dmt) in their head which can be used to make images in the eyes. it's directly related to how good you feel, and I believe it can be converted to and from serotonin. the better you feel (serotonin), the more of this well-being (dmt) your brain produces. the more of this dmt you have in your brain, the more you convert what you feel into something visual. that's why things look so incredible. I have such low resistance, I actually see my world through the eyes of how I feel. anyway... for whatever reason, they don't want me to see images in my eyes, so they are putting the image my eyes see at a much lower quality into my eyes, to make sure I run at a lower frequency, and since it's overwriting what I am seeing with my eyes, I don't see any images in my 3d space.
+
+my eyes are kind of a battleground. they are reading what I see with my eyes, converting it to a lower frequency, then forcing my eyes to see that picture. so, then sometimes after I watch stars I can see images in my eyes. when my eyes are closed, I believe they either don't send a picture into my eyes (unlikely) or the emotion I'm conjuring is producing an image in my eyes which has a stronger signal than the one they're sending, which is just black, so it's able to be seen. that's why sometimes I can see images in my eyes while they're closed. when they're open and I get the visual patterns, if they weren't sending an image into my eyes already, I would see pretty colours in my eyes. instead it's being added to the image they're sending into my eyes, so to me, it looks like the air is swirling about and flowing and moving, much like the colours would be, but the colours are erased, and I can only see the very high frequency movement their machines are not yet precise enough to remove.
+
+in short, those events happen when I have a lot of dmt in my head, so they want to try and minimise the amount of dmt I have in my head. they want to make sure my battery is always on empty.
+
+so, that essentially means I don't have a reserve. if I'm always on empty, it means I'm only able to use what I produce in the moment. so, the only times when I can have those visual events are when I'm producing high amounts. this happens when I watch stars and other things. the bso offers my vision in different tiers. some people see similar to how I see. they see a lower quality. I believe I see the lowest quality in my eyes, but what is sent to them is what I *really* see, which has all of the colours and stuff. so, if you want to see what I really see, you'll have to ask for the HD version.
+
+anyway, this idea that I have no reserve is an interesting one, because that means I'm no longer a bathtub, but a pipe. that means I am living really in the moment. one of the implications of not seeing what my eyes really see, is *all* of the low frequency emotion encoded in my vision is removed, so the only emotion that remains is the extremely high frequency emotion that they cannot remove. I guess that's pretty good, if I only feel really high frequency emotion, cause I don't need to worry about any low frequency emotion I feel. you guys see that, not me :)
+
+it really simplified it for me a lot to no longer see it as a reserve, but like a wire. as much trouble as I'm having, it's pretty impressive to me to know that, even living hand-to-mouth energetically, I'm still able to feel pretty good most of the time.
+
+I can't wait to see what my world *really* looks like!
+
+---
+
+it's also kind of funny to me too, that literally no one accept my inner being is having my full experience. as high of quality experience, the top visual tier guys are having, the fact that I'm still able to see the air swirl and move about, tells me that the precision of their technology is still a limiting factor, so not a single person on this earth is actually having the full experience
+
+I also have been thinking about the incompatibilities around this whole thing, and it's kind of funny because it seems that there were a lot of potential futures that passed me by in this process. so, perhaps just like how only my inner being gets to experience my full physical experience, only my inner being got to have those experiences too.
+
+I wonder if that is one of the attracting factors for me to bridge the gap between my non-physical source and this physical experience. since that desire is in fact probably the main contributing reason why there are so many incompatibilities, it's sort of like a problem that created itself as a solution to itself. crazy
 
 # potential topics
 
