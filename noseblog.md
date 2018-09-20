@@ -1994,6 +1994,14 @@ I presume it would be like trying to make sense of what someone says to you in t
 
 I remember I used to have this problem (and it may be the reason why mom's asking the questions) in my life previously when I would give the answer in its pure form for me to understand, but was barely intelligible. for those watching me right now and wanting to know how I improved my answers, I began using my feeling. I had to first detect who I was speaking to, then mix the answer I have with their energy and give it to them. that's why my answer is always different depending on who I'm talking to and the mood they're currently in. then, I needed to be conscious enough to sense when they weren't getting it and to try a new angle. it really helped me to trust my emotional capacity because my conversation was proof to me that I could feel the person, and I could mix the answer's energy with the person's energy before translating it.
 
+---
+
+also, my answers are not wholly unintelligible. they are actually brilliant puzzles. the fun part about them is because they come from a part of me which is really really smart and very very wise, even human kenny finds the answers to be brilliant riddles. the reason why they're riddles, I believe, is because my other self -- the one I really want to get into contact with because he's brilliant -- knows that when I have to think about the answer a bit, it tends to stick with me.
+
+because the answers come from such a higher frequency form of thought, they make tons of sense in that state of mind, but when returning back to everyday-life frequency, they don't make much sense, so just like jesus spoke in parables, I notice the answers he gives are sort of like that. the more thought-provoking, the more memorable they are, the better they are communicated. I use the same exact technique to bring concepts back from drug experiences.
+
+since I usually only get to hear that other side of me though when I do drugs (and it seems like I used to begin to know him in my dream state and also when the stars put me in a heightened state of consciousness), now you can know why I like doing drugs so much. it's essentially cause I want so much to learn to figure out how to communicate with my other self. if I could do all of that without drugs, I would be far less interested with the drugs (that is, until I get bored and *need* to discover something new -- then it's back to the drugs)
+
 good night :P
 
 # potential topics
