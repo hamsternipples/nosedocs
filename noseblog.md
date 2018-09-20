@@ -56,7 +56,7 @@ the real thing that I desire would be to clear up a lot of these ideas with infi
 
 in the previous entry I talked about how unlikely it was that the thought which says that I'm writing this to manipulate and spin a bunch of stuff originated with me. I have no reason to manipulate; my goal has been, and will continue to be, to communicate as clearly as possible. it is only a person that feels so disempowered and unable to communicate (or needs to obfuscate) their own desire, that they would believe it necessary to manipulate others to get the realisation of their hidden desire which they cannot reveal.
 
-I was going to talk about disempowerment and needing others to do something I do not feel capable of doing myself... or being the disempowerer, which does something for me which I feel already capable of doing myself - to prove that I need them.. skipped it.
+I was going to talk about disempowerment and needing others to do something I do not feel capable of doing myself... or being the disempowerer, which does something for me which I feel already capable of doing myself - to z that I need them.. skipped it.
 
 in the situation I am in, there is disharmony because I do not want to be disempowered, and if I were to be disempowered, then I would need to manipulate others to get what I want... however, those wanting to disempower me neither want to be manipulated by me - and I am very grateful for that - because if I were able to manipulate them to get what I want, I would have been disempowered myself by finding a way for someone else to do for me what I feel incapable of doing for myself.
 
@@ -1983,6 +1983,18 @@ I wonder if that is one of the attracting factors for me to bridge the gap betwe
 I can't remember the question she asked me, but I insisted on giving her an answer she didn't want to hear. it felt like she tried to interrupt me a few times, but I pushed through and was able to tell her how important the home-schooling was for me. I said something like, "she wasn't expecting ______ from me so I didn't need to prove my smartness to anyone"
 
 I'll ask her for the exact quote in the morning :)
+
+---
+
+this got me thinking a bit, why was the pushing through part so important. I remember what I said may have even been a repeat of something I'd said before. I thought maybe I said it previously in here, but maybe now that I think about it, I think I said it in a previous dream interaction.
+
+anyway, the important part of the interaction was the pushing through part. it felt similar to the other times I pushed through and punched her or whatever. it felt as if the interaction was so undesired I pushed my way through to higher levels of consciousness so I could answer the question correctly. it seems that on these difficult questions I really need to be conscious to be able to give a good answer, and I simply cannot in such an unconscious state.
+
+I presume it would be like trying to make sense of what someone says to you in the middle of a mushroom trip or something. it probably is something that makes a lot of sense to me in the higher state of consciousness, but little sense to normal people in real-life.
+
+I remember I used to have this problem (and it may be the reason why mom's asking the questions) in my life previously when I would give the answer in its pure form for me to understand, but was barely intelligible. for those watching me right now and wanting to know how I improved my answers, I began using my feeling. I had to first detect who I was speaking to, then mix the answer I have with their energy and give it to them. that's why my answer is always different depending on who I'm talking to and the mood they're currently in. then, I needed to be conscious enough to sense when they weren't getting it and to try a new angle. it really helped me to trust my emotional capacity because my conversation was proof to me that I could feel the person, and I could mix the answer's energy with the person's energy before translating it.
+
+good night :P
 
 # potential topics
 
