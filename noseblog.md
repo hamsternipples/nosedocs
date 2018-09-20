@@ -2002,6 +2002,18 @@ because the answers come from such a higher frequency form of thought, they make
 
 since I usually only get to hear that other side of me though when I do drugs (and it seems like I used to begin to know him in my dream state and also when the stars put me in a heightened state of consciousness), now you can know why I like doing drugs so much. it's essentially cause I want so much to learn to figure out how to communicate with my other self. if I could do all of that without drugs, I would be far less interested with the drugs (that is, until I get bored and *need* to discover something new -- then it's back to the drugs)
 
+---
+
+lastly, esther does the same thing for abraham. you will notice that when abraham speaks, they literally say the same thing over and over. the difference between two people asking similar questions, is each answer is clearly the energy the person (question) summons. abraham speaks in similar principled-like (this is the way it is) manner. that form of speech is how I identify someone speaking from desire. then like me, they go a step further than just speaking unintelligible principal based answer with the questioner's energy, and out comes something truly brilliant that is understandable to the person.
+
+the reason why they record the sessions is because often times the questioner cannot hear the answer until some time has passed. I often times let some time pass and revisit the concept for the same reason.
+
+---
+
+while on the subject, the reason why esther spends so much time tending to how she feels before translating abraham is because someone's mood very definitely alters the translation. you may notice that you put a concept in my head for me to translate and depending on my mood, the same signal gets translated quite a bit differently. this is why I have been harping on the nexus idea for so long. if I have difficulty translating (even feeling the other person) the concept into something the other person can hear in their current mood, it will be very difficult. if the concept is rebroadcast, not the translation, each person can translate it according to their own mood.
+
+the other huge advantage of the nexus system is the replay value to it. ever notice how you don't want to hear the same words again when you relive the experience over and over? if the concepts were transmitted, then the person having the experience would have a slightly different experience every time, because, depending on their current mood (environment, ecosystem), they will understand the same concept slightly different each time, depending on what they've got going on (what they're bringing to the table) before having the experience
+
 good night :P
 
 # potential topics
