@@ -1978,6 +1978,12 @@ I also have been thinking about the incompatibilities around this whole thing, a
 
 I wonder if that is one of the attracting factors for me to bridge the gap between my non-physical source and this physical experience. since that desire is in fact probably the main contributing reason why there are so many incompatibilities, it's sort of like a problem that created itself as a solution to itself. crazy
 
+### 2018-09-20 09:10 - dream-state interaction with mom
+
+I can't remember the question she asked me, but I insisted on giving her an answer she didn't want to hear. it felt like she tried to interrupt me a few times, but I pushed through and was able to tell her how important the home-schooling was for me. I said something like, "she wasn't expecting ______ from me so I didn't need to prove my smartness to anyone"
+
+I'll ask her for the exact quote in the morning :)
+
 # potential topics
 
 ### - the uncontrollable visual capacity
