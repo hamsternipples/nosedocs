@@ -2014,6 +2014,10 @@ while on the subject, the reason why esther spends so much time tending to how s
 
 the other huge advantage of the nexus system is the replay value to it. ever notice how you don't want to hear the same words again when you relive the experience over and over? if the concepts were transmitted, then the person having the experience would have a slightly different experience every time, because, depending on their current mood (environment, ecosystem), they will understand the same concept slightly different each time, depending on what they've got going on (what they're bringing to the table) before having the experience
 
+---
+
+for reals lastly... these metaphors, riddles or parables are just a vibrational key to get back to the principal at a later time. they serve as a mnemonic to be able to be able to tune back into the pure desire of that concept. you have often wondered how I can read something or see something and glean a whole lot more information out of it than what was said or what was shown. everything that anyone says is a concept, but behind it is the desire (or motive force) behind what they are saying. there is also meaning and logic behind it too, which I'm learning about recently -- but most importantly, the concept can be used to retrieve the original principal. I practiced this with abraham, trying to get past their words and the answer -- trying to grasp the principal behind it. I found out this can be done with anything though and used the same technique to "descodificar" many other things, too :)
+
 good night :P
 
 # potential topics
