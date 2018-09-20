@@ -2020,6 +2020,20 @@ for reals lastly... these metaphors, riddles or parables are just a vibrational 
 
 good night :P
 
+### 2018-09-20 12:51 - more about waking me up in the dream-state
+
+after this morning, I woke up with a better sense of what is happening. the reason why I felt like it was the same energy as when I punched mom, it's the serious frustration my other self feels and doesn't know what to do. in the case where I punched her in the dream, it aborted the dream, and same last night -- but the reason why michael (the name I will call my other dream-state self) did not resort to violence, is because just like what is happening to me, it doesn't solve anything. they just clamp down tighter.
+
+so, similarly to how I have become in real-life michael has given up hope in the dream-state. it appears that there will be no way for him to find enough action to be able to get his freedom. he's more and more locked into the dreams they want him to be in, and he has to interact with they people they put there. like kenny, he used to enjoy lots of freedom in the dream-state, however, since they're scared he'll fly, and they want to get information out of him, his only environment, the dream-state is very controlled.
+
+he's decided that there's nothing really that can be done. he feels essentially imprisoned as well with no way to change it, so like me he's just going to make the best of the situation, and see if he can't find a way out intellectually. perhaps he could encode his answers and interact in such a way that newfound desire would be born for him to have his freedom.
+
+I didn't really think about it, but I suppose that's how I feel too. I was just reacting logically to things. I did gain that new position after sleeping a lot more I noticed, and thought that maybe someone at the bso ensuring that none of the girls thing going through was behind it, but now that I think about it, it must have been my new personality -- saturn's logical implementation of the strong desire expressed by michael. instead of translating it previously as emotion, it now comes out as logic... wow so cool :) crazy how we're figuring out how to communicate and work as a team even though most (low frequency) communication has been cut off.
+
+anyway, so when powerful frustration builds to such a point, instead of responding violently, now he wakes me up, so I can use my super translation skills to bail him out a bit of the frustration. it's really funny, because the sense I get is like a kid and his parent who's asleep in the other room. if the other kids behave badly enough, he's got to go wake dad up and tell on them, so dad can sort things out... lol, I realise I do have a bit of a repressed kid inside, even though he's 18, it's still kind of funny to me he's resorted to telling on the troublemaker... lol
+
+
+
 # potential topics
 
 ### - the uncontrollable visual capacity
