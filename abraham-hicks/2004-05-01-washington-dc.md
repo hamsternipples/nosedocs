@@ -274,3 +274,41 @@ I am aware now, more than ever about this. I seem to be making a lot of bso drea
 «it's very important, especially when co-creating, that you continually talk to yourself about what is important for you, so that what is important to you becomes the dominant vibration»
 
 yes, I know. it seems that my dreams involving my visual capacity and understanding about how my brain works harmonised with a lot of bso dreams, which worked out for them quite well, but then their desire that I don't have a visual capacity and that I don't have access to, and understand how my brain works is in disharmony with my own dreams. watching my dream vanish enough times now, I have learned how to ensure it is the dominant vibration. it is very important you know what is important for you, to ensure that it remains the dominant vibration.
+
+«so now, we're going to tell you what's bothering you about all of this. you have not yet, and you're not alone in this, given yourself permission to let what you want be your dominant vibration»
+
+pretty good man :) I'm killing it here. this is awesome!
+
+«mothers have that a lot: they care so much more about how their children feel, then how they feel»
+
+not my mom :) not anymore anyway.
+
+«it sort of happens with everyone. it's this thing where you care so much about somebody else's well-being»
+
+well, she does care considerably about the bso's well being that she's willing to sacrifice her own for them -- at least she's not worried about her children's well-being any more :P hopefully she'll get more selfish soon.
+
+«we were visiting with a woman recently, who is living in a place where she is not very happy. she bought a condominium and there are all kinds of rules and restrictions that were not completely appealing to her. she moved in before she'd thought it all through. but, the rule she's using as an excuse for leaving, is the rule says the cat has to stay indoors all the time»
+
+the symbols in this story are the following:
+- a woman
+  - that is more concerned about how others feel than her own well-being
+	- that bought a place to live without giving notice to the rules and restrictions
+	- moved in before she thought it all through
+- a cat
+  - not happy with the indoor restrictions
+
+«so, as we chatted with her, it became clear that she cared more about serving the cat's desires than she does about serving her own -- because, if it weren't for the cat, she'd put up with it. and because the cat wants it differently...»
+
+so let's say the woman is the average bso user. didn't pay attention to the restrictions, didn't really think it all through, etc. let's say the condo is nosebook, and I'm the cat. if it weren't for me complaining about the rules, the bso user would just put up with the restrictive rules. (star-watching?)
+
+«what we're suggesting is that a lot of you are that way: you'll do things for others that you will not do for yourself -- and that's what all this is about»
+
+in this case, I am on the bso's side. don't make the cat's difficulty with the rules be the reason you make a change. all of you should be paying attention, not to me, but to your own well-being.
+
+---
+
+I actually applaud the bso for attempting to make what's important to them their dominant vibration. I don't believe they will see their desire come through this time around though, because you cannot get that keeping your desires a secret and giving your attention to unwanted. instead, you make what's important to you your dominant vibration by talking about it and giving your undivided attention to what is wanted.
+
+I'm getting pretty good at this now, which is why I believe my desires will become more dominant. I talk about it, and communicate my desire, so purely by giving my attention to what is wanted, they will become dominant.
+
+### 8.
