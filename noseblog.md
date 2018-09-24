@@ -2076,11 +2076,32 @@ so that's kinda where this idea comes from. what if all of this is an enormous i
 
 I woke up this morning with a strong sense, that we're working so hard against LOA to go in one direction, when it's actually the "failure" was actually the better way. I woke up with a sense of irony.
 
+### 2018-09-24 15:58 - the bso, LOA and regulation (part two)
+
+in my previous @[entry](2018-09-21 18:07) entry, I wanted to go a whole different direction than I actually went with it. I had a few reactions, and I thought maybe we could go down the direction I really wanted to go as well.
+
+##### how the gutenburg printing press idea could come about
+
+this is entirely speculation, but the way the device works is, it's resonant to a certain frequency. a frequency does not have to be constant either like FM radio works. the carrier signal can be a combination of different frequencies, which makes it unique. there are virtually unlimited combinations. I don't understand the math behind it, but the way I intuitively grasp the idea is that you have this individualised frequency (each device has their own unique signal frequency). for lack of better terms, I'll call this the carrier wave. each device resonates on this exact frequency signal. again it's not constant, so think of it like a transformation on a constant. to make it easier to grasp the idea to we'll just equate it with symmetric encryption. you have a signal (source), then you have key which transforms that source into something unrecognisable. on the other end, you apply the reverse of that key to the unrecognisable message, and the source comes back out.
+
+the "encryption" process has less to do with obfuscating the message and more to do with making the signal unique. no two people should ever have the same transform keys. all you would need to do to transmit and receive on someone's device. but, before I go there, since it's just a transformation process, you can think of it like a specially shaped mirror, that redirects the signal into a location inside of your body. if you want to transmit what your eyes see, their computers send a signal transformed specifically so only your device receives it, which is then tuning into a specific area inside of the body.
+
+so, the tiny device installed in your body is simply a reflector. it resonates on the carrier frequency unique to the device, "reflecting" every signal it is resonant with. the device cannot be selective about what it reflects. it either reflects it all (working) or it doesn't reflect anything (broken). there's no in-between (ironically, kind of like me: all or nothing).
+
+you can imagine that it'll take some time to understand this sort of technology. I believe tesla first discovered it by trying to figure out what was inside of the planet using his transformers. your body can be used as a "ground" source to which you can spatially tune signals into.
+
+anyway, this technology and understanding of how to tune into things spatially is probably some years off, and I doubt the bso will reveal their secrets. that's fine though because I want to (and aim to) figure it out for myself -- eventually. maybe, I'll figure it out with the girls some time in the future. doesn't matter when or who does it -- eventually this sort of technology will become commonly understood by those interested in it.
+
+the gutenburg moment will probably come when a company (or person, but likely a company) figures out how to do this, and makes it possible for you to receive signals from a device like that. if I had to guess, I would imagine it to be a games company that manufactures a tesla coil type device that just transmits locally. in order for it to discover the unique transformation of the individual's device, you will touch a surface, which will allow another tesla coil to tune into your brain and be able to, read the resulting signal, and due to imperfections in the design, be able to deduce the carrier signal. once the carrier signal is obtained, it should be relatively trivial to generate the transformation key.
+
+you can see how having this device means that a gaming company could provide a rich gaming experience in an environment as captivating as my visual capacity allows for. imagine playing something like horizon zero dawn with the graphics like my eyes see. pretty amazing, and I think compelling enough for a gaming company to invest enough money into making happen.
+
+Ok, that's enough to think about for now. I'm going to end this here, and resume again at a later time
+
 # potential topics
 
-### - the bso, LOA and regulation (part two)
-  - how gutenburg's idea could be created
-  - resulting sects (subsets) of christianity
+### - the bso, LOA and regulation (part three)
+#### resulting sects (subsets) of christianity
 ### - conditional living and physicality
 ### - changes happening around the equinox
 ### - future bso pointing present bso toward taking advantage of our desire to express unconditional love, and to further instigate more desire in all of us for self-control
