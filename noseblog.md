@@ -2098,6 +2098,23 @@ you can see how having this device means that a gaming company could provide a r
 
 Ok, that's enough to think about for now. I'm going to end this here, and resume again at a later time
 
+### 2018-09-24 17:12 - the bso, LOA and regulation (more on the transformation bit)
+
+so, if you think of a typical hash function. you can turn millions of bytes into 32 bytes. likewise, you could also add every byte together, discarding the carry bits and also arrive at a 32 byte number. the hash function has various transformations that are performed on the input data to obfuscate as much as possible the original data and make it as irreversible as possible. this is sort of like that. you are taking a lot of data (high frequency signal) and applying a set of transformations on it to get low frequency data.
+
+there are some differences though: the hash function is designed to be irreversible, and their transformations are not. when I say irreversible, I mean I cannot start with the hash I want to create, then generate the source bytes necessary to get that exact hash. (if you could, bitcoin would be broken...) so, the way the hash function does this is to apply a series of transformations which discard some of the data. you could say that the transformations simply "discard" the carrier frequency, arriving at the source data. this does obfuscate what I'm trying to say right now, but hold on to it cause I'll come back to it.
+
+a resonant device only resonates when the signal is correct. that's the whole point, so all one has to do is to begin generating carrier signals that slightly resonate, slowly honing in on the exact carrier signal. it's a process of elimination, but since you can tune into the location of the device inside of the body, you can detect when the signal is getting closer. think like a FM tuner as you get closer to the exact frequency, you hear the sound better. if you make the signal something simple like a square, triangle or sine wave, you can, through process of elimination figure out what transformations are necessary to make the carrier signal.
+
+ok, so imagine now that you encounter that for this sine wave you apply these transformations and the same sine wave appears inside of the body. same thing with any arbitrary wave, means you've discovered the transformation key and can now send and receive signals inside the person's body. symmetric encryption.
+
+however, if you discover that different signals have different keys, that means that the bso is applying some sort of unknown transformation inside of their device between the carrier and resulting signal. I find it unlikely that they would do that for some time, as it would increase the noise considerably in the signal/noise ratio. it would require greater precision for the 3rd party company's device as well as for the bso. it makes it more difficult for everyone, gives a lower quality result, and only slows the discovery down a little bit.. the function has to be reversible for it to work, so it's not impossible. in fact, there is literally nothing that they can do to prevent the device's reception/transmission of signals inside of the body once the transformation key is found.
+
+it essentially is like a backdoor or a rootkit into anyone's body. all you would need to do is to discover the key is to find a way of tuning into the location of the body and sending carefully crafted signals to figure it out. this will be the discussion when continuing in the next entry.
+
+peace
+
+
 # potential topics
 
 ### - the bso, LOA and regulation (part three)
