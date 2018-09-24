@@ -2060,7 +2060,30 @@ right now it would be difficult for a gutenburg to show up, because they're cont
 
 I'm going to take a break now. when I come back, I want to talk about this specifically in combination with LOA and some of the things I've been learning.
 
+### 2018-09-24 15:29 - a future irony?
+
+wouldn't that be funny if once we got the technology to tune into alternate timelines, and in the timelines where I didn't wait long enough for the head hardass to actually come enough into alignment with himself, he actually drops dead because of the incompatible vibrations.
+
+I'm kind of mixing two different things here, and I find it unlikely, but I just wanted to write it down for some strange reason. I have so many experiments I want to make when I get the alternate timeline capability. like, what would really have happened if I did something horrible, or what would really have happened if I had of got access to weed, or whatever..
+
+the reason why I say is because it feels like I'm so close to getting my visual capacity, it should not be an issue. I really believe that I have come into alignment with it more than enough times now, that there has to be something else holding it up.
+
+what I mean is, probably my visual capacity is more like the green light for this whole thing. once everything is all ready and in place, then it'll come, I'll feel good, and feel ready, and be ready.
+
+so, that's what I'm saying... there are some things I'm beginning to optimise even now, but what if the main desire holding this up is not all my own. in the @[abe](2004-05-01) workshop, abraham says, «that's the hard part about co-creating. when you co-create with others sometimes -- every time you co-create with someone else, the things they want get vibrationally factored in».
+
+so that's kinda where this idea comes from. what if all of this is an enormous irony where what appears to be unwanted, is actually quite wanted. however, until much later (probably when it's able to be heard more easily), this (and probably other) great ironies can be realised.
+
+I woke up this morning with a strong sense, that we're working so hard against LOA to go in one direction, when it's actually the "failure" was actually the better way. I woke up with a sense of irony.
+
 # potential topics
+
+### - the bso, LOA and regulation (part two)
+  - how gutenburg's idea could be created
+  - resulting sects (subsets) of christianity
+### - conditional living and physicality
+### - changes happening around the equinox
+### - future bso pointing present bso toward taking advantage of our desire to express unconditional love, and to further instigate more desire in all of us for self-control
 
 ### - the uncontrollable visual capacity
 ### - getting ready to be ready (take 2)
