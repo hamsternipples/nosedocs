@@ -267,7 +267,7 @@ nailed it. I'm sure that I will be delicious to be around. that's why I'm unwave
 
 once again, that's why I'm unwavering on my resolution to make my connection to my inner being my first and only priority :D boom! HEADSHOT!
 
-«that's the hard part about co-creating. whey you co-create with others sometimes -- every time you co-create with someone else, the things they want get vibrationally factored in»
+«that's the hard part about co-creating. when you co-create with others sometimes -- every time you co-create with someone else, the things they want get vibrationally factored in»
 
 I am aware now, more than ever about this. I seem to be making a lot of bso dreams a reality which harmonised with my own.
 
@@ -311,4 +311,14 @@ I actually applaud the bso for attempting to make what's important to them their
 
 I'm getting pretty good at this now, which is why I believe my desires will become more dominant. I talk about it, and communicate my desire, so purely by giving my attention to what is wanted, they will become dominant.
 
-### 8.
+### 8. earn dollars from documenting his negative experiences
+
+«so now we have two new decisions: 1. *I'm going to do what feels good to me, more importantly than do what other people are rooting for me to do* and, 2. *I'm going to follow the trail of feeling good, rather than following the trail of money* -- while they do not need to be separate trails, when they are separate trails I can feel they are separate trails»
+
+I'm so killing it here. naturally, it appears I am inclined to pick the better choice. that's super cool! those have been and still are my dominant decisions/intentions through this whole thing.
+
+«there is plenty of money on the path that feels good, just like there is plenty of money on the path that doesn't feel good. there are a lot of miserable people that have plenty of money. people don't understand that, because so many people tie their happiness into being able to follow an action path, and they see money as soothing that action path -- so that's who so many people are sure that once they get the thing, that it will be the answer to all things, even though our friend says that the bmw was not what she was looking for -- inotherwords, now what she's looking for is a way to pay for the bmw... what you're all looking for, is that feeling of freedom that you get when you find a way to be happy where you are -- and this always concerns people when we talk about finding a way, with no circumstances changing, to change the way I feel»
+
+I would also have to agree. I have met very miserable with lots of money. I've also met miserable people without money, too. I've found the money to only delay and amplify the misery. it seems that when someone with money runs out, the misery has been amplified so much that they're forced to rethink life. before the money runs out, the money acts as a means to distract the person from their own misery. I've found money (like also a lover) to largely be a distraction from unhappiness, rather than the path to happiness.
+
+«that makes people feel afraid because they say, "abraham, if I get happy about what is, won't I be stuck with what-is? isn't that the same thing as saying to the universe that I'm happy with what is, so don't give me anything else" -- and we say, no, that's the way you say, "I'm happy with what-is, and I'm using my happiness with what-is to achieve a vibrational alignment that now allows [...] everything I've been asking for [in]"»
