@@ -2114,6 +2114,46 @@ it essentially is like a backdoor or a rootkit into anyone's body. all you would
 
 peace
 
+### 2018-09-25 13:40 - 4 primary states
+
+I woke up this morning with the realisation that I now operate with four primary states:
+
+(these are the basis of the conclusion I come to upon self-evaluation)
+
+ - moving toward what I want
+ - moving away from what I want
+ - something is not important to what I want
+ - physical evidence does not show it, but it feels like I am moving the right way
+
+when I was young, I was either really happy, or horribly depressed. black and white; no inbetween. this was because I only had the ability to realise the first two of those states. I imagine that newborn childs are like this. they are either happy or not happy.
+
+I think plants perhaps are only the first state. I remember when I was in 2nd grade, the teacher put a plant in a closet as an experiment. the plant grew much much taller than the normal next-to-the-window plants. I remember it grew to be much taller, like say twice the height of the other plants, but it looked very sickly. this horrified me. I remember it quite clearly, as I was overtaken by the height of the plant. there were many questions I had, but the main one was, "how could a plant with less sunlight (less nutrition), grow taller than the ones with the nutrition they needed?"
+
+I determined that the plant was not in total darkness. some light had to be seeping into the closet somewhere. the reduced light the plant experienced made it try harder to find that light. I realised that the plant had no ability to formulate its own logic to formulate or create a way get its own light. looking back on it now, I realise the plant was pure desire, and the strong desire it projected to find light impacted me so strongly that it stayed in my mind. obviously the experimenter didn't have the same experience, because I don't remember the plant ever making it to the window. I think it got thrown in the trash.
+
+anyway. I think that helped me to formulate an basic understanding that I wanted to only be going toward what I want. however, becoming aware that now I wanted to be only moving toward what I want, I suddenly became consciously aware of moving away from what I want. this is why I experienced such extremes in my emotional response to things.
+
+I'm going to take a break for a moment. I want to speak next about how I began to create all sorts of logic to justify or redirect my path toward what I wanted... but it ties in with how things appear, and I cannot make the mental connection just yet
+
+---
+
+the key to my new understanding of this was an interaction I had with mom. I came to the realisation that they installed a new device in my nose after having gone outside and realised that things were more blurry than ever, and I have a new stinging pain spot that appeared overnight in my sleep, just like the last time. apparently the other one in my nose was not doing well enough, so they felt it was necessary to install more devices. naturally, I had a negative response to this. I've been trying to find a way to accept this whole thing and be ok with it, but I am having quite some difficulty with it. upon making this realisation, I felt the anger rise, so I just stuffed it as depression, to be worked on later.
+
+outside, I allowed myself to become angry with the intention of making it back to feeling once again that everything is ok, and it's just a bit of a competition. the "spirit of elijah" is not my normal state of being. I don't normally decide that turning something into a competition, and allowing my success to appear as impossible as possible. I have not yet come to grips with the idea that I should encourage more water pouring on the altar, making the competition appear impossible for me to win.
+
+so, it takes a bit for me to get there. my natural response is to fall into gripping depression when I notice that things are not going in the desired direction. however, I'm smart enough now to know that anger and depression are only indicators that my inner being does not see it the same way, so I have to convince myself that it's ok, and everything is fine.
+
+mom comes out to ask me a question while I'm in the middle of feeling some anger still (cause I haven't yet got back to the competition, spirit of elijah mode). I react in frustration and anger, but I don't act so much on any of it. my query as to why I responded like that (cause it felt very similar to the time at new years where she wanted to come and interrupt me and tell me that I couldn't talk about devices reading people's minds). the reaction felt the same to me.
+
+what I think happened, is someone from the bso alerted mom to my conversation and wanted to deter me from that conversation in new years. yesterday or whatever, it felt the same. I think the same thing happened. I think the train and the barking dogs and the other "nature" sounds weren't enough to distract me from going up the emotional scale on this issue, that they decided to have mom come and ask me a silly question to deter me from those thoughts.
+
+it makes perfect sense that someone being aware of something they did not want (me thinking about my new device), without thinking made action to try and prevent that. also being in the awareness of something unwanted, I was in harmony to that action, so I reflected harmoniously that action with my own action (also without thinking).
+
+this got me thinking about why I have such primitive responses now, which is how I came to these conclusions. I used to have a lot of logic (mostly socialisation, and some justification, all very valid reasons) to not respond in a fit of frustration and anger before. however, have you noticed that your logic can control your anger until you feel anger so strongly that you can no longer control your anger? I feel this not going in the direction I want to be going thing so strongly, that it is forcing me to evolve my personality.
+
+I think what happens when you do a lot of mdma like I did, is it sort of erases most all of your logic. it does that to allow you to feel differently about past traumas and other things. mushrooms have a somewhat opposite effect. they enhance your logic by forming you to become dominant of your feelings. however, no one just gets new logic unless they actually believe it, so in order for mushrooms to be effective, you have to become open to a new logic change. they're aware of what you can handle and kind of throw you in the deep-end by invoking some of your logic (some call this paranoia), and showing to you how silly it is at the same time, you can have a sense of loss of ego (cause your identify is your logic), and you've got to change your logic on something to get rid of the paranoia.
+
+I think these two extremes are parallels of what is happening in society today. dmt is similar to mdma in that it enhances all perception in such a way, logic is no longer relevant, and so if you have a lot of resistant logic, you will feel better on dmt, not because you don't have the resistance, but because things look so good, you're not as aware of the resistance.. that's why on psychedelic experiences you do not have the ability to logically comprehend the stuff you were seeing later when you return back to normal. 
 
 # potential topics
 
