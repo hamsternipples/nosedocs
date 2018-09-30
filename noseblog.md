@@ -2155,17 +2155,8 @@ I think what happens when you do a lot of mdma like I did, is it sort of erases 
 
 I think these two extremes are parallels of what is happening in society today. dmt is similar to mdma in that it enhances all perception in such a way, logic is no longer relevant, and so if you have a lot of resistant logic, you will feel better on dmt, not because you don't have the resistance, but because things look so good, you're not as aware of the resistance.. that's why on psychedelic experiences you do not have the ability to logically comprehend the stuff you were seeing later when you return back to normal.
 
-### 2018-09-30 14:09 - BII: eye notes
-
-so often I have something I want to make a note of or recall at a later time. I could use my mobile, but I don't have one and I find the interface to be quite cumbersome. I want to be able to write notes or lists and recall them and add to them at any time I want. it's often that I have an idea in the shower or some other place where I don't have access to something to write on, or it would be impractical to write something (like in the middle of a conversation).
-
-it requires a thought to text function, which shouldn't be too hard if you're already doing thought to word translation, then simple command based thoughts, such as move cursor, highlight, delete, etc. (word processing functions). not so hard and huge productivity payoff for people with ideas on the go.
-
-I suppose one downside would be the exportability of these notes. they would live inside of your eye and no where else (assuming this is because they, for security reasons, wouldn't want the network or its data exposed to any external networks for fear of hacking). I do suppose a function could be created to share your notes with other people you know, but probably they wouldn't allow that data to leave their network in any way.
-
 # potential topics
 
-### - BII: location aware scents
 ### - the bso, LOA and regulation (part three)
 #### resulting sects (subsets) of christianity
 ### - conditional living and physicality
