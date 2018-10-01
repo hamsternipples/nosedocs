@@ -1,4 +1,4 @@
-## brain <-> keyboard interface
+## thought aggregator
 
 #### background
 

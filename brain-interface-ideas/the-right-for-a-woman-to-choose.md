@@ -1,4 +1,4 @@
-## brain <-> keyboard interface
+## the right for a woman to choose
 
 #### background
 
