@@ -2155,6 +2155,16 @@ I think what happens when you do a lot of mdma like I did, is it sort of erases 
 
 I think these two extremes are parallels of what is happening in society today. dmt is similar to mdma in that it enhances all perception in such a way, logic is no longer relevant, and so if you have a lot of resistant logic, you will feel better on dmt, not because you don't have the resistance, but because things look so good, you're not as aware of the resistance.. that's why on psychedelic experiences you do not have the ability to logically comprehend the stuff you were seeing later when you return back to normal.
 
+### 2018-10-08 - early morning thought
+
+I woke up with a thought this morning, which honestly I had never thought of, but I'm gonna roll with it and make it my own. it goes like this:
+
+after having listened to zaryn tell me enough times that I wouldn't have been able to make it without him, I'm treating this bso situation in the same way. I don't need them to become something. in fact, even with them working against me, I will still rise to quite a spectacular place, all by myself. let's leave the record crystal fucking clear that it was actually the bso who could not have done it without me, not the other way around.
+
+I can roll with that idea.. I don't really want to make it my own too much though, because its emphasis is kind of on the wrong thing. if I'm going to go with the emphasis on the wrong thing, I like my previous way of thinking:
+
+I am the only one now who actually is going to experience my own freedom any more; I *must* follow my own guidance. the rest of all of you *must* obey. you have to follow the guidance of someone else; it's what you agreed to do -- and even the people in the highest places are *also* held in bondage to someone or something, and have to obey. enjoy getting your guidance externally :)
+
 # potential topics
 
 ### - the bso, LOA and regulation (part three)
