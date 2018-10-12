@@ -2165,6 +2165,26 @@ I can roll with that idea.. I don't really want to make it my own too much thoug
 
 I am the only one now who actually is going to experience my own freedom any more; I *must* follow my own guidance. the rest of all of you *must* obey. you have to follow the guidance of someone else; it's what you agreed to do -- and even the people in the highest places are *also* held in bondage to someone or something, and have to obey. enjoy getting your guidance externally :)
 
+### 2018-10-11 17:58 - weird day
+
+for some really weird reason, today felt like an abraham workshop. there was tons and tons of energy, something equivalent to what I would have imagined to be like a workshop. I've been working on my programming this morning and had moderate success.
+
+it turns out that it a lot of the tension and stress I was feeling was that I'm right on the cusp, or have already achieved another visual upgrade. the main theme around this whole thing has been coming to terms with the idea that I'll sort of be in this predicament for quite some time.
+
+I listened to an abraham episode on youtube from the 2018-07-07 alaskan cruise: @[youtube](KPraPAiFObM) and in the episode, the general advice was to the woman to choose to leave the school before drugging her son. the idea is that the world should figure out how to keep up with him, instead of drugging him to slow him down to be more easily managed by his teachers (guides). I have a bit of a problem though because no matter what, I cannot leave. the drugs are not physical ones, but frequencies that slow my brain down to a stupor. I really want to leave, but I'm forced to stay and be drugged. I want so much to be free from this nonsense.
+
+so, as I realised the hopelessness of the situation, I do recognise that like that woman, she wouldn't do much of anything trying to affect a change in the school (reform the school), and likewise I do not believe I will be making any difference whatsoever in my school, either. neither will they let me go, so I just have to get used to the current situation.
+
+to further complicate matters, you can imagine how many problems it would create for the teachers, if they put me on stage regularly. perhaps the meeting today was to try and get the guy holding out at the bso focusing on all of the problems I would bring if I were to be put in a more public place. likely, they assured him that since they control all communications, they can manipulate the message however they want (or something like that).
+
+doesn't matter though. I'm most concerned with my head-space. I want clarity of mind, vision, I want to feel the energy flowing through my body. I like feeling sensitive. I want to learn to control it, instead of constantly having my sensory organs giving my different signals (sometimes sensitive, and sometimes very dull).
+
+I figure that there is no way that we can come to an agreement on my capacities. none. they will not release the limitations on them, and neither will they let me have control over what is happening in my head. they want to do whatever they want inside my head, whenever they want. I'm honing in on the ability to control more and more what is going on inside of my head. since I don't really have a choice, I'll find a way to make the next years of my life about regaining my own self-control.
+
+I also terminated the fast. I felt too many external expectations on it. it felt similar to how quitting smoking had expectations attached to it in the carlota era. I wanted to learn more self-control, not prove some sort of status thing for people. I reasoned that I would prefer to take it the long and thorough route, similar to how noone can really pin a date on when I quit smoking, neither do I want it to be possible for there to be a day where you could say, that's when he quit food.
+
+I did notice a change in feeling toward the end of the afternoon, but they're a one-trick pony: girls are not gonna do it. I *must* gain control over my own head, and really the *only* way forward for me right now is not an action-path: it's finding any way to feel better about where I am right now. I recommend that my friends in the meeting today consider the same. after all, any desire to control externally is only an outward manifestation of one's inward desire to have control over the same thing inside of himself.
+
 # potential topics
 
 ### - the bso, LOA and regulation (part three)
