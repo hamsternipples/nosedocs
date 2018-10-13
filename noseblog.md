@@ -2185,6 +2185,36 @@ I also terminated the fast. I felt too many external expectations on it. it felt
 
 I did notice a change in feeling toward the end of the afternoon, but they're a one-trick pony: girls are not gonna do it. I *must* gain control over my own head, and really the *only* way forward for me right now is not an action-path: it's finding any way to feel better about where I am right now. I recommend that my friends in the meeting today consider the same. after all, any desire to control externally is only an outward manifestation of one's inward desire to have control over the same thing inside of himself.
 
+### 2018-10-13 - the meek shall inherit the earth
+
+I always wondered what "meek" meant. it always felt to me like it had simplicity and not lots of effort or trying to its feeling. anyway...
+
+I've been trying to figure out the long-range vision on all of this for a while now. this is essentially just another stab at that.
+
+the few things that are clear in all of this is somehow they have managed to figure out a way to get their minds to see similar to how I see. when I first got it, I got it with the help of the plant goddess, maiden ayahuasca. using brain stimulants, stars, or meditation you can increase your brain's frequency to see higher and higher frequencies (levels of detail). I believe the manifestation of this increased frequency is more DMT in the brain.
+
+even though I have achieved these higher frequencies using external things, really if I want to keep the high frequency going, I have to release resistance in order to maintain it. not lying (to myself or others) has also decreased that resistance. this means that my brain is swimming in DMT now, and I should be having uncontrollable visionary experiences and all sorts of other psychedelic phenomena. I don't though, and that's because they are essentially reversing the DMT's effect.
+
+in order to see through my eyes, your brain needs to run temporarily at that speed. however, like I mentioned, I believe DMT production is the result of a speed increase (even temporarily), and so likely my viewers brains also have more DMT hanging around.
+
+from my perspective, the only way which I can explain the current situation, and how everyone just seems so willing to go along with the most incoherent ideas, reminds me of what it's like to be in the middle of a psychedelic experience. this sort of universal acceptance of whatever is necessary for the person to have an unbelievable experience, because it allows you to leave the category of normality and begin seeing things you never would have crossed your mind, *normally*. I also noticed this effect happening to me as well, and it comes along with vision upgrades, after long sessions of star watching, smoking weed, meditation, or really anything that allows me to release resistance, I believe I increase the amount of DMT in my brain, and I'm suddenly able to begin accepting bizarre things as normal or OK.
+
+I think this is sort of happening to everyone on the nosebook network, and it's the most logical (and only) explanation that I can come up with, which explains why so many people think some of the nuttiest stuff is OK.
+
+---
+
+they're getting pretty good at keeping me away from anything psychedelic, and I'm sure they will allow some of those effects to occur, but only allowed in a controlled way. I will continue to release resistance and continue to see higher and higher detail levels. the stars help a lot, but one of the things that I noticed while hurricane michael was keeping the night sky cloudy, was that even without stars, I can still improve my vision. this proved for me that the vision increase has more to do with lowering resistance than it does with the stars.
+
+so, a natural improvement in vision happens as a result of lowing resistance, allowing the frequency to rise.
+
+up until now I believe everything I said is correct, but this is the part where I begin to speculate, so take it with a grain of salt. I think a lot of people are running their head at higher frequencies than are natural to them, probably not all the time but certainly enough for their head to have increased DMT levels, and I believe its psychedelic effects are mitigated as well.
+
+you know that I have wanted to leave now for quite some time so I have given quite a bit of thought to what it will be like to have as much DMT as I have floating around, then suddenly there is no longer something mitigating its psychedelic effects... I imagine the first few days would be a non-stop trip like as if I were permanently on ayahuasca. I would quickly get used to it, and then from then on out I will only have these psychedelic flashes only in moments of high tension (strong emotion), much like tesla had throughout his childhood, until he learned to control it.
+
+right now this is only a theory, but anyone with the ability to remove the device, or disconnect in some way could see if they begin to suddenly hear sounds/voices in their head and have lots of bizarre nonsensical visions. if that happens, that means that to the extent to which the person's brain has extra DMT, if for some crazy reason the service got shut down, a lot of people (but me the worst) will all be tripping pretty hard at the same time -- save for the simple ones that haven't had their head overclocked.
+
+I imagine that one day something like a carrington event could occur again, rendering the service non-operational for some time. it does seem likely, and this type scenario would drastically change how things run on this planet. with 99% of the population tripping balls for an extended period of time, the ones with psychedelic experience (drug users and mystics) would make it back to reality the quickest. it would be the archaic revival and the cosmic event I'm looking to grant me freedom from my oppressors (at least until they get the service back online)
+
 # potential topics
 
 ### - the bso, LOA and regulation (part three)
