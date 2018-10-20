@@ -2239,6 +2239,38 @@ I have a feeling that as time continues, the rich will get more empowered to do 
 
 pick your side I guess, cause I think it's going to get kind of extreme over these coming years. what I believe is happening is, I cannot help myself. I *MUST* go the emotional journey. there is just no other way for me to go. unfortunately, it sort of means being pretty aware of what I don't want all along the way, growing that desire in me for circumstances which foster freedom and personal growth. many people will observe and their will come to their own conclusions about it as will. I think it will cause such a bifurcation of opinion on the subject that eventually there will be a major timeline split, were desire is strong enough for the action journey team and the emotional journey team to both get what they want.
 
+### 2018-10-19 16:49 - followup to previous entry: about timelines
+
+I felt a few different questions arise in response to my last entry. when I say a major timeline split, I mean that the majority of consciousness splits itself between two different timelines.
+
+this gives me the opportunity to explain how I understand the inner being to work. take for example all of the major sets of circumstances that exist with the girls. they are all real, and very much a reality -- however my consciousness is tuned in to this timeline. when life produces a desire in anyone, immediately that reality exists with the manifestation of that desire in it, but you do not experience it immediately, because your consciousness is tuned in whereever you are. in the future, technology will allow us to tune into other people and ourselves on different timelines. just like you can see through my eyes and tune into my experience, the same will be possible with other timelines.
+
+I believe that everyone diverges ever so slightly from the mass consciousness timeline every day, and as you sleep at night, you rest and return to the timeline most suitable for you. it seems to me like there are slight differences between everyone's different timelines, and we converge (LOA brings us together) in something that is commonly agreeable.
+
+so, when I say a timeline split, I mean that mass consciousness splits into two mass consciousnesses. similarly to the timeline splits with the girls (or anything you desire), those timelines exist and are reality -- only your consciousness is still tuned in to someplace else. so, conscious you are here and you (your inner being) is on a different timeline too, but you're not conscious of it.
+
+so, what I predict will happen is that some major event will have another mass consciousness split away those who believe action is what it's all about: "the way I feel is influenced by my (and others' -- mostly others) action, and not only are others' actions responsible for the way I feel, but I also have to justify the way I feel with action."
+
+I don't really have a good idea how any of it will turn out. I can only see there becoming a large disparity between those who believe others are responsible for their point of attraction, and those with strong desire (the triad of intentions) to be the dominant influence in their creation of their reality.
+
+---
+
+to put this in practical terms, I will use a hypothetical example of myself. I can't imagine how it could turn out for anyone else, just myself, but this is still hypothetical. so, let's say that my situation continues on similar to how it has been continuing on. I will continue to desire more and more the freedom to expand and grow at the rate at which I want to grow, free from the limitations placed on me. my power continues to grow as I gain more and more control over my experience.
+
+in the bso's perspective, I am a huge risk to the charade they've got going, so I continue to grow more and more out of control for them (giving your attention to unwanted, only gets you more of it), so at some point in time they will attract a future where I am so far out of their control, they'll be generating mega mega desire to gain control of me. at the same time, I have mega desire to be in control of myself. something happens, and obviously since these two cannot exist simultaneously in the same timeline, a split will occur.
+
+in one of the timelines I will probably just give up and die or something. in the other one, I will come into the fullness of who I am. but then, I'll get bored most assuredly, and seeing this other timeline where I have an impossible situation, you can imagine how much it will interest me to see if I can conquer this new "impossible" situation I managed to help create.
+
+how is it impossible? well, as you can imagine, the bso are making pretty sure that they regulate how much dmt anyone is allowed to have in their brain. apparently I have too much for their liking. they must limit my sensory experience, because they can't handle the idea that someone may be superior to them. I assure you, soon they will have everyone in the world chipped and monitored to ensure that everyone and everything is regulated in such a way that they can feel good about themselves and maintain their superiority. any "risky" individuals will be held back and their capabilities limited (much like they do now to me -- so, in a sense, I am already creating and attracting another "impossible" future, to which I can overcome their limitations and *still* find a way of coming into alignment with my unlimited nature)
+
+so, getting bored and recognising that contrast is fuel for the desire engine, I will be born again into the difficult timeline to build up even more energy and desire. again and again -- for sure.
+
+---
+
+totally speculation here, but I can imagine that I may have done this more than once before.. it's funny too because if I follow the pattern of it, it looks like I'm almost (on purpose) creating more and more impossible situations for myself to conquer (who doesn't like solving the problems they create!), and following the pattern, each time there is a split, let's say it's 50/50 (unlikely) and half of the consciousness chooses to continue to let others determine their point of attraction for them... it's sort of like dividing by two to get to zero; it never really happens, so in the end the timeline where these guys want to control everyone else's action will really only have the die-hards like myself and captain hardass over at the bso, left in the timeline. virtually all consciousness will have left that timeline and the consciousness creating the desire to maintain this timeline will just be endlessly micromanaging a much of unconscious people.
+
+I will find it quite humorous when they finally get the technology to tune into other timelines and they see how technologically inferior they are, and much fun they've been missing out on spinning their wheels trying to control others so they can feel good. :P lol
+
 # potential topics
 
 ### - the bso, LOA and regulation (part three)
