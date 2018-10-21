@@ -2271,6 +2271,35 @@ totally speculation here, but I can imagine that I may have done this more than 
 
 I will find it quite humorous when they finally get the technology to tune into other timelines and they see how technologically inferior they are, and much fun they've been missing out on spinning their wheels trying to control others so they can feel good. :P lol
 
+### 2018-10-19 - "born again" after the pregame show
+
+in the last entry, I used the words, "born again" because I liked how the christian symbolism felt when I was writing it, but then later that night while watching stars, I was thinking about it, and being born again: that is, growing my desire for freedom, growth qnd joy to be so much that when I'm born again into this world, I'd grow up believing that it's normal to have my visual capabilities limited by the bso (after all, I would have never known any differently) -- yet at the same time my strong desire to expand into the fullness of who I am that continues to grow even between lifetimes, will pull me forward much like how my life pulls me forward even now.
+
+I grew up with such an increasing velocity that when I found my life come to a grinding halt because these guys decided they were going to limit me to only fulfilling their desire for me (and not my own), I found myself in a pretty rough spot. however, no matter what is the circumstance, I cannot help myself. I must move in the direction of the things that I want. I must have the freedom to think, feel, and do what I choose. no matter what this is the case, and this strong desire is only getting stronger, too.
+
+in fact, it appears to me my present circumstances are only fostering that growth by making me continually aware of what I don't want: limitation of my visual capacity, mental lethargy, reduced energy, agility stamina, and disconnection from who I really am, etc.
+
+so, being continually aware of what I don't want, I constantly have to pivot over to knowing what I do want, and move in the direction of that. practicing that kind of pivot is exactly what I will need to be very good at in order to come back without any memory of this, thinking that limited expansion is normal, and still be able to easily continue to move in the direction of my expansion.
+
+I seem to have the "freedom" aspect pretty well encoded in my vibration, that I figure the major pieces that I'm missing is the unwavering focus on what I want, and the joy factor. I'm still figuring out the fun aspect, but I plan to find a way to get both of those down pretty well before I peace out.
+
+regarding my return, I also realised this morning that kenny is just the pregame show. the real me will make his triumphant return sometime in future... so, I was thinking about our multifaceted nature, and noting that my inner being likely occupies multiple bodies right now on this earth. so, in fact this future me may even be alive right now. I started thinking about it, and what if it's someone I already even know... some ideas popped into my head, like what if it's bruno or andrea, or one of the other girls? could be, I suppose. why not, right?
+
+thinking further, I remembered my origins here, where kenny was the willing container to house me. what if I spliced myself into kenny's body? I started thinking about it some more and it sort of makes sense... I was contacted by a future version of me from another timeline and through some carefully crafted messages, my point of attraction was put in a place where I would be interested in the andy pero story (project superman), then off to vallecas where I could try it out. which is potentially, where I spliced myself into kenny's body. sounds crazy, right?
+
+so, then imagine now this timeline split occurs and for the people desiring to live the bso approved life, I will appear to die, but for me, my consciousness will continue on where my desire is strongest, which is to come into the fullness of who I really am. some event occurs which makes all of that possible and I develop the machine to tune into alternate timelines.
+
+LOA leads me to another kenny in the bso approved timeline and I splice myself into him. I now live inside of the the bso approved timeline inside of kenny v2. using the techniques I described in previous entries, I adjust the timeline so that the craziest scenarios unfold (stuff like bunches of girls, flying, and other crazy things) so I have as much fun as possible. finally, a last disaster run must be made to bump up desire further and split the timeline again. since these body jumps are happening, I may be touching on "immortality" -- which reminds me of something I read in "tesla's last interview" -- maybe these timeline splits are more fun than I could possibly imagine. this really does sound like something that I would do, seeing the big picture like this... lol, yeah wow...
+
+---
+
+ok, so I left out a lot of details I haven't figured out yet, like how to make the timeline cyclical and other unknown stuff like why does it appear that I have two times I was spliced: brain haemorrhage and vallecas.
+
+I figure I'll find out those key ingredients whenever I get connected with my visual capacity, so I'll give these crazy ideas a rest until then. it appears that I have figured out enough now that I'm satisfied to just practice my unwavering focus on what I do want, continue to bump up energy (creating a few problems maybe every once in a while), and figure out how to make all of this fun, so that I'm absolutely unstoppable.
+
+«you want to be so good at finding your own satisfaction, that nobody is the boss of you»
+
+
 # potential topics
 
 ### - the bso, LOA and regulation (part three)
