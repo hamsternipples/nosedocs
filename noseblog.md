@@ -2299,6 +2299,42 @@ I figure I'll find out those key ingredients whenever I get connected with my vi
 
 «you want to be so good at finding your own satisfaction, that nobody is the boss of you»
 
+### 2018-10-23 - the cube and the octahedron
+
+woke up and one of the thoughts that I began contemplating was the cube and the octahedron. they are reversals of each other. meaning, if you connect the center of each of their faces, you get the other. an octahedron lives inside of a cube and a cube lives inside of an octahdron. a cube has 6 sides and is the realisation of 3 and root 3. you can turn a hexagon into a cube by running a line through the center at root 3. an octahedron has 8 sides and is the realisation of 4 and 2x root 2 (root 4). however, the 6 faces on the cube each have 4 sides, and likewise each of the 8 faces on an octahedron has 3 sides. beautiful symmetry.
+
+** I just noted that perhaps you could possibly get an octahedron from an octagon if you ran two lines through the center at root 2.
+
+as I was contemplating this, I think I figured out how to make the timeline cyclical. imagine you have two archetypes. for now, I'll call them moses and elijah. moses represents the internal conflict between desire and emotion. elijah represents the internal conflict between someone's beliefs (logic/structure) and physicality.
+
+I had serious issues with this after my brain haemorrhage. emotion and logic are very similar, but they flow in opposite directions. you will notice that people with strong desire have uncontrollable emotional reactions to a lot of things. this is because of the direction the energy is supposed to flow. when something desired is experienced, positive emotion is generated and it flows immediately into action. smme thing with something undesired. this is moses.
+
+next is elijah. he's a bit of a new one for me, since I am arriving to this archetype virtually, because circumstance in my life right now isn't letting me align my emotion with my desire. so what is elijah? I don't really know very well yet (still in the discovery process), but I do know that it is the reversal of moses. that's all I got so far there... we will obviously return here as I learn more, but like I said, it's the conflict between structure and physicality.
+
+---
+
+so, how do you make time cyclical and what does this have to do with reversals? we know that moses is the inward path turned external. the other major example of this archetype is jesus. when emotion is flowing in the same direction as desire, all is well, but when it doesn't mistakes are made. moses had a few major ones like this, and it started with killing a guy. jesus' death occurred when his emotion overtook his desire. he also started the ball rolling by overturning the money tables in the synagogue. when his emotion was flowing in the direction of his desire, he was master of physicality, "healing people, performing miracles and other signs and wonders."
+
+so, if we extrapolate that as a reversal, the archetype of elijah would be a guy that when physicality is *not* flowing in the same direction as his logic (or belief system), then it produces in him strong desire for internal change (when you know what you don't want, you know what you do want). likewise when physicality *is* flowing in the direction of logic, it produces strong desire for external change. I think this is what makes things things cyclical.
+
+as I'm writing this, I'm also noticing that desire for external change feels to me like negative desire -- and desire for internal change feels like positive desire. I had never noticed this before.
+
+** I just noticed that, I previously have said many times that fear is just desire in reverse. I think this is actually what I mean. fear is negative desire for things external to be different... huh! interesting...
+
+---
+
+in my previous entry, I spoke that I am just the pre-game show. I'm not the main event everyone's looking for. the reason why I say that is, you cannot have a happy ending to an unhappy journey. so, now, let's imagine two entities that are performing this cyclical time jump (moses and elijah, let's call them). if both of them say that they are in fact the pre-game show, they are both speaking the truth.
+
+let's take the hypothetical example I gave. in one timeline, I come into the fullness of who I am, but because the ride was so rough along the way (and you can't have a happy ending to an unhappy journey), he doesn't *really* reach the fullness of who I really am. I've got a lot of baggage floating around causing a lot of resistance. easily one coming after me could do considerably better of a job than me (though I find this unlikely, because like what happened in the church with jesus' message, it got distorted to benefit the church and maintain the church's control over their congregation).
+
+imagine now the other timeline: the failure one. in this one I build up lots of desire internally for my next return, so that I have built up non-physical logic structures in such a way that I must follow my instinct to realise freedom and expansion in a more impossible situation still.
+
+wait a minute!!! that means there are four cases! let's have a look.
+
+* when elijah fails in this one, moses will be triumphant in the next. this is creation of internal desire.
+* when moses fails in this one, elijah will be ti
+
+this is really complicated. I'm going to come back to this... peace!
 
 # potential topics
 
