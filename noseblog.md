@@ -2336,6 +2336,56 @@ wait a minute!!! that means there are four cases! let's have a look.
 
 this is really complicated. I'm going to come back to this... peace!
 
+### 2018-10-27 18:04 - the latest bit that I've pieced together
+
+it seems to have been very important for all of the different christ symbolism and also the moses elijah stuff too, as they have been key to my understanding of the core concepts upon which this latest version is built.
+
+we know that whenever someone (even a single celled ameba), you "a rocket of desire eminates from you." the inner being of whatever it is (its non-physical part) immediately becomes the realisation of that desire (and all of the many ways to get there). from there on, that new point of attraction pulls you toward the realisation of itself. there are infinitely many ways to get there, and there are infinitely many combinations of people with whom you can do it with.
+
+you could say that every time a desire is born, there are a (small) infinite(ly) many new timelines are created along with each desire that is given birth to. the only reason why you're still seeing "the present" and not the realisation of that desire, is because you're tuned into your present circumstances, and not the the realisation of whatever it is. in the future, it will be possible to navigate and tune into different timelines and even alter them, creating new ones which you can also tune into and see the results. got that?
+
+ok, so what I believe happened is the following:
+
+the andrea timeline happened. fwh refers to it as "planet hope" -- which is a direct reference to the "esperanza" diagram that I drew at marcos house. fwh is me in that timeline, affecting this timeline. why? well, here's my new theory...
+
+imagine that future bso gets pretty good at controlling my body through their devices. in fact, imagine that these guys can make a clone of me and operate the clone's body as if it were their own. they are very interested in making clones, and I'm very interested in having multiple bodies which I can influence emotionally. these clones would be 100% autonomous, but the bodies could also be controlled remotely.
+
+[quick break]
+
+### 2018-10-27 19:41 - and, we're back...
+
+I had quite a few reactions about the part about the bso controlling my body, and I don't know how it works fully (ask them about it!), but it seems to me that right now they are able to send electrical impulses into my body and it'll move, but I don't believe this will always be the case. I think, to some extent now, and probably a whole lot more in the future, if the movement they are trying to make in my body doesn't match the emotion my body has, it won't work.
+
+I'm talking about a micro level of individual muscles -- even though you already know this is the case already for me on a macro level: eg. if I cannot feel what it is that I am "supposed to do" I am paralysed, and cannot move in the direction of what is expected of me. feeling is key, and it is actually what I began to learn about today as a response to last night's shock therapy. soon, as I lower resistance more and more, even the shocks won't affect me -- after all, the shocks are only very rudimentary impulses which contract the muscles uncontrollably, but you can imagine that with a more refined interface, those gross motor impulses caould become fine motor impulses. I digress...
+
+the point is, at some point, the limiting factor to my movement is emotional. this is probably why I experienced paralysis after vallecas: I could no longer feel the freedom of my left side, and it reflected that in its movement.
+
+so, imagine for a moment that one of the bso boys wants to jump into one of my clone's bodies to control the physical movement of some activity. let's say it's sex. if their movement, or the intent of their movement does not match the emotion which I am influencing the clone with, the clone will suddenly freeze up and you will probably see him kinda have one of those stuck moments that are so typical of me when I feel conflicting emotion over some action.
+
+so, no real harm with them jumping into my clones' bodies, as I will still have the ultimate control over the clone's expression, emotionally. they cannot make the clone do something that is incompatible with the momentary emotion.
+
+this, you can imagine can create all sorts of different scenarios, as also influencing factor, you have the emotion of the situation, the emotion of the other "co-creators" in the situation with the clone, but ultimately my own emotion has the most priority. let's say for example, I am projecting a silly emotion to my clones, and let's say one is having a conversation, so that comes out as a joke, and two others are having sex. for one of them, the silly might come out, (because of the way she feels), as some very strange manoeuvre, but let's say the other one is feeling perhaps insecure about herself, and so that may come out as a silly comment which (in her mind) amplifies that insecurity. upon feeling her insecurity, I will be able to project into that situation a feeling of both security and probably something like desire for her to feel more secure about whatever that was.
+
+now let's extrapolate that out a bit. imagine instead of just one bso boy, there are hundreds. I remember one abraham workshop where andrea was talking about how good it feels to have so many people there having the same experience with you. well, this would be kind of a little more next-level, because the clone would respond to the strongest impulse sent to it, which fits into the emotional framework projected by the controller of the clone. so, this would mean you could have 100 dudes controlling a man having sex with you, and the clone would respond within the framework of the emotion projected to it (structure), and essentially would essentially act out the strongest (most popular) impulse to action. the impulses are culmulative too, so 100 guys wanting to thrust feels stronger than 10 guys wanting to thrust. you can see how this could be some new way of doing team building or something, lol...
+
+---
+
+back to the story. the esperanza thing took place, and since fwh mentioned many times that he was transporting people to planet hope, I believe this means that he was saying that this timeline is contrived. imagine for example, someone seeing my plight actually tried to help me and totally wrecked the bso secret. that would make things a whole lot less "believable" that I'm really a guy who manages to continue to believe in my own truth, even though quite literally the whole world is saying something different.
+
+in order to make a very extraordinary person, that person needs to be in very extraordinary circumstances. the timeline has to be orchestrated in such a way where these impossible odds are actually contrived. anyone who had a shred of sanity in them got put on the esperanza timeline (this was back in 2012-2013 -- well before any of this happened), and all the people who would blindly believe the bso and obey their commands stayed on this timeline. since the timeline is contrived to be 100% full of people who don't question what they're told to do, you can imagine why fwh almost always referred to this timeline as "3d hell"
+
+so, that begs the question, why would anyone contrive such a timeline to be this way? I believe it has to do with the clones. I am realising that the same way this timeline is contrived to be filled with the correct people to make this as an impossible of a situation as possible to overcome, the timeline is also influenced in such a way that no matter how hard I could possibly try, I won't be able to end up with another girl. fwh has, it seems been able to influence me emotionally, essentially making it impossible for me to go down any of those paths. this timeline is designed that I figure out how to connect with who I really am, by myself, without anyone's help, and in the most statistically impossible odds.
+
+along this journey it seems to have been designed in such a way where all sorts of desire will be born, creating all sorts of alternate timelines. here's where it gets interesting: normally, if you give birth to a desire and you don't go, only your inner being had the experience. you never gave yourself the opportunity to experience it because you kept your focus on something else, never allowing yourself to tune into that future.
+
+HOWEVER, imagine one of these strange scenarios with these girls gave rise to a timeline where eventually I made or got a hold of technology which could tune into different timelines. you could imagine that in every case, the very first timeline anyone in a relationship would check is, "what if we never ended up together? where would we be then?" -- and so obviously every single timeline where I ended up in a relationship, all of us would eventually find ourselves paying close attention to this timeline. essentially, this timeline has to exist for all of the me's to meet all of the other me's. we would all meet at the "end" of this timeline.
+
+gonna take another break. when we come back we will cover:
+1. what does the "end" of the timeline mean
+2. what does all these me's have to do with all these clones?
+
+
+
 # potential topics
 
 ### - the bso, LOA and regulation (part three)
