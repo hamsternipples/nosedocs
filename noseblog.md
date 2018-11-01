@@ -2374,7 +2374,7 @@ back to the story. the esperanza thing took place, and since fwh mentioned many 
 
 in order to make a very extraordinary person, that person needs to be in very extraordinary circumstances. the timeline has to be orchestrated in such a way where these impossible odds are actually contrived. anyone who had a shred of sanity in them got put on the esperanza timeline (this was back in 2012-2013 -- well before any of this happened), and all the people who would blindly believe the bso and obey their commands stayed on this timeline. since the timeline is contrived to be 100% full of people who don't question what they're told to do, you can imagine why fwh almost always referred to this timeline as "3d hell"
 
-so, that begs the question, why would anyone contrive such a timeline to be this way? I believe it has to do with the clones. I am realising that the same way this timeline is contrived to be filled with the correct people to make this as an impossible of a situation as possible to overcome, the timeline is also influenced in such a way that no matter how hard I could possibly try, I won't be able to end up with another girl. fwh has, it seems been able to influence me emotionally, essentially making it impossible for me to go down any of those paths. this timeline is designed that I figure out how to connect with who I really am, by myself, without anyone's help, and in the most statistically impossible odds.
+so, that begs the question, why would anyone contrive such a timeline to be this way? I believe it has to do with the clones. I am realising that the same way this timeline is contrived to be filled with the correct people to make this as an impossible of a situation as possible to overcome, the timeline is also influenced in such a way that no matter how hard I could possibly try, I won't be able to end up with another girl. fwh has, it seems, been able to influence me emotionally, essentially making it impossible for me to go down any of those paths. this timeline is designed that I figure out how to connect with who I really am, by myself, without anyone's help, and in the most statistically impossible odds.
 
 along this journey it seems to have been designed in such a way where all sorts of desire will be born, creating all sorts of alternate timelines. here's where it gets interesting: normally, if you give birth to a desire and you don't go, only your inner being had the experience. you never gave yourself the opportunity to experience it because you kept your focus on something else, never allowing yourself to tune into that future.
 
@@ -2383,6 +2383,38 @@ HOWEVER, imagine one of these strange scenarios with these girls gave rise to a 
 gonna take another break. when we come back we will cover:
 1. what does the "end" of the timeline mean
 2. what does all these me's have to do with all these clones?
+3. the rerealisation of "saturn"
+4. what this means for the future
+5. the different models and their (emotional) effect
+
+### 2018-11-01 14:33 - justification of action (and some major realisations)
+
+I woke up this morning and I had a few realisations:
+
+1. the thing they're trying to undo is my idea that this timeline will be a solo operation.
+2. the reason why they cannot talk to me is because they would have to admit that what they want from me is some sort of sexual action, and my refusal to do it would mean that now they are forcing me to do some sort of sexual action -- which is sort of like rape.
+
+so instead, they just steer me in the direction they want me to go. you may think that sort of sounds like sexual harassment -- where it's no longer forced, but strongly suggested, or even made impossible to avoid.
+
+so then, I was thinking about how in the world this is considered OK. the conclusion I arrived at was that you can justify it by saying that the outcome has a greater benefit for more people, as so they can, in a sense, use me as a "sacrifice" for the greater good.
+
+I went outside to think about this in the sun. before going out, I left off with the other realisation that because they want to steer me toward their goal, I am not allowed to move any energy toward what it is that I want -- meaning, they put resistance any time I am not going the direction that they want to go.
+
+this sort of has the opposite effect though. you may think that steering works for an emotionally oriented person like me, but you have to think of it like tuning: if I cannot go towards things that I want, no matter how hard you try to convince me that this thing that you want for me is something I want -- I cannot go toward things that I want. lol
+
+anyway, I've been learning a lot about tuning lately and am excited to try it out, because I'm realising that even though my physical experience contains no evidence of things going the way I want them to go -- and so therefore, no reason to be happy -- I can, instead choose the way I feel, and not have any justification for the reason why I feel that way. in fact, looking at it with any logic at all, I should not be feeling good. it's pretty cool that, despite all of the "injustices being done to me", I am learning how to tune myself into the direction that I want to be going.
+
+I was reminded of the imagination girl that I met at the bbq church event. I understand that circumstances aren't the greatest, and that is primarily my reason for calling this whole thing off, so I reasoned, "well, I think you should make plans to go your own way -- though if you want to wait for circumstances to improve, there might be a chance."
+
+I *really* don't like the idea of leading people on, so I immediately regretted the thought. instead, I really like the idea of going at this solo. I mean, I really really really like it. all of these timelines exist and one day we will be able to tune ourselves into them much easier.
+
+(btw, if her consciousness is here in this timeline that means that from her broader non-physical perspective she has more go gain here on this timeline)
+
+instead, I like the idea that I will continue on going my own way, «not needing the manifestation to feel good» and eventually, (more on this in future entries) we will be able to clone me, and this clone will be the most awesome of all.
+
+millions of the future self-realised and even further improved on version of me will be able to be "grown" for anyone to try and see if they can form a *creative* relationship with.
+
+you could say that I'm taking this present non-action for the future greater benefit of all. lol
 
 
 
