@@ -2416,7 +2416,158 @@ millions of the future self-realised and even further improved on version of me 
 
 you could say that I'm taking this present non-action for the future greater benefit of all. lol
 
+### 2018-11-02 05:32 - some politics thoughts / desires
 
+[05:58 - break time!]
+
+the other day before going to see stacey I was thinking about what I would want to see in a political party. the conclusions I came up with weren't really necessarily red or blue. let me enumerate them in a bit of a different way:
+
+1. more transparency / information
+2. more education / knowledge
+3. more nurture / opportunity
+4. more ease
+
+you can easily see that these pillars of desire upon which I would like to see a governmental system built come directly from my recent experience.
+
+#### more transparency / information (from the perspective of unwanted)
+
+for me, information is key. I don't necessarily need to keep super up-to-date on stats and metrics, but I really want to be able to know what is happening. we can learn from the early church's prohibition of introspection into the human body, and know that relying on superstition and snake oil salesmen to for your health is not the best way to go about finding an improvement. unlike the church did in the dark ages, we should not hold the population away from critical understanding of how the human body functions and retarding of scientific discovery.
+
+#### more education / knowledge (from the perspective of unwanted)
+
+...
+
+#### more nurture / opportunity (from the perspective of what is wanted)
+
+imagine you logged into a game and there were all sorts of rules about what you cannot do, yet people still do them anyway. some get caught and some don't, but you have less likelihood of being caught if you have money. money also is fundamental to your existence; without it you cannot live. instead of being in reward mode, your brain thinks in survival mode. the game wouldn't be very much fun to play.
+
+#### more ease
+
+### 2018-11-03 19:08 - I think I wanna go full-swamp
+
+we'll come back to the previous topic, as I'll probably make it a full thing, because after having thought about it a bit, I actually have caught a bit of a vision for how I would like this country / world to operate. the main factor is making it technologically up-to-date. which I think is actually the next politician type -- someone who technologically focuses on updating things to improve efficiency over all portions of the government and its effect on our lives.
+
+this entry however, is a bit of the opposite of that. first I will go over what I believe is happening to me, explaining some of the sudden changes that have occurred, and then go over a little bit of my recent acceptance of the situation. I believe it is actually (eventually) beneficial for all.
+
+#### fasting provides considerable insight
+
+as I began fasting again, I have noticed greater sensitivity to how I feel. this is quite good because emotion is generated in the solar plexus (the stomach), and "hunger" is increased sensitivity to that area (to remind you that it's empty and it needs to be filled). interestingly, a filled stomach for me means less sensitivity to emotion. I think it also has to do with the fact that food in my stomach is creating a feeling, and that's just more background noise. only having the feeling of emotion in my stomach (and zipfizz) has made me more aware of the higher frequencies to my emotions I was previously less aware of.
+
+this fast, I chose to drink zipfizz, and has provided me with an excellent comparative experience to last time, but obviously the next level after this is probably just water. however, after having the contrast of zipfizz, it is likely I will do another fast with only coffee, to see how that goes.
+
+fasting also means I have less energy derived from the energy-source of food, and so therefore I have to summon energy a different way. this is truly amazing as I'm learning all kinds of things about how thought and desire actually affect energy levels.
+
+it feels like this is quickly becoming a very very helpful way for me to gain more insight and sensitivity into my emotional aspect, which (as you will soon see) is becoming more and more devoid of any strong feeling.
+
+#### how I believe (and some examples of) they are emotionally dampening me
+
+just like how I mentioned in a previous entry regarding my imagination, what I believe is happening is just like they are using destructive interference to erase what my imagination sees, I believe the same is occurring with strong emotions which produce images. the technique has to be different from the one they use with my eyesight. meaning, they cannot intercept my stomach signal without the extra emotion (like they can my eyes) and then rebroadcast that signal into my stomach, effectively removing all emotion.
+
+they don't have a way to completely block it out, all they can do really is detect the signal pattern in my gut, and then do their best to remove and distort the signal very similar to how noise cancelling headphones work.
+
+so, just like with my imagination, they cannot cancel the highest frequencies because their equipment isn't capable of doing so -- so, while I do not see an image, I do still receive (and am continually becoming more sensitive to) the high-frequency information that comes along with an ever-so-slightly fuzzy black screen. it's kinda like trying to see a shadow in a dark image.
+
+so basically every time I have one of those uncontrolled images pop into my eyes (they probably call them hallucinations (see my entry on DMT levels)) they train their AI's to detect those signals occurring in various places in my body and then try to negate or cancel the signal.
+
+---
+
+##### dampening feeling in my throat
+
+starting at marcos' house, my throat became sensitive to other people's thoughts. most notable were when strong thinkers would think strong oppositional thought in relation to me, I would feel it in my throat. it still happens; I actually even felt it today after my chat outside with jaron.
+
+obviously that feeling in my throat has been quite variable, and it transmits me a lot of information as well. there has clearly been a lot of cancellation of that feeling. which is sort of fine for me as it's not so pleasant feeling, and makes me aware of their strong thought pushing against me.
+
+the throat seems to be responsible for some sort of visual capacity in 3d space, so obviously they wouldn't want me to feel that.
+
+##### dampening feeling in my heart
+
+all of my life really, I've felt things in my heart, but again at marcos' house this opened up for me and I would spend a good amount of time exercising this capacity as I could feel andrea very strongly in my heart, and could transmit to her very strong feelings of love.
+
+later, I noticed that I could feel people's anger and other strong feelings toward me in my heart as well. this has since been dampened so much that my heart has just a constant feeling of slight pain or maybe muscle ache or something (a very constricted feeling).
+
+I really enjoyed the feeling I felt in my heart, and one time I woke up in the middle of a nosebook dream sequence where it seemed I was interacting with a young girl, my ears had ultra sensitivity, and they also took the restriction off of my heart such that I could feel myself transmitting and receiving so much love out of my heart.
+
+having full capacity to feel my heart is what really gets me going. I love that feeling of connectedness that I feel when my heart is in operation. it seems that there also has been evidence that my heart is connected to imaginary things manifesting in 3d space too, so obviously you'd want to make sure I can't feel any of that (so it doesn't produce any images)
+
+##### dampening feeling in my ears
+
+when I was with raquel, I discovered that I could move energy by letting vortexes open up in my ears. I could suck energy in or let it out. this was the first feeling to be dampened (that I can remember). I have only been able to reproduce the effect after smoking weed since then, and every time it gets a bit more difficult.
+
+##### dampening feeling in my eyes
+
+when I began watching stars at marcos' house, I noticed that I could make my eyes produce vortexes and let energy go in or come out of them. I remember very specifically showing marcos the effect on the corner of c/ geranios y miramadrid. later when I was in valverde after smoking weed and putting eyedrops into our eyes I showed daniel and alfon the effect. daniel responded by saying something like, "oh no not that thing with your eyes" -- which surprised me a bit because I didn't think I had shown him before. later, I reasoned that the effect can be felt by my viewers as well and so likely, just like my heart nosebook removes, cause maybe it bothers people?
+
+##### dampening feeling in my gut
+
+now, I will give a recent example (and how combined with fasting, I came to understand what was happening): a while back I really enjoyed playing this game with jaron called cookie jam blast. it's a facebook game and it has some RNG involved so not 100% skill, but it seemed fun to me to match colours on the screen. it also has some visual effects which seemed to stimulate me visually, because often times (and I can't exactly remember why now), often times those visual effects would randomly (uncontrollably) just pop into my eyes. I thought this was quite a good sign, because tesla mentioned having images pop uncontrollably into his eyes. later, he mentioned, when he was 18 (at the time, I believe michael was still 17), so I figured that over these next year (now-ish), I would figure out how to control those visual apparitions. this excited me because I was on my first steps towards being able to conjure images into my eyes on command.
+
+anyway, the cookie jam images eventually slowed down and then eventually stopped. I wondered why that was, but then strangely around the same time I completely lost interest in the game too, and abruptly (and without reason) just stopped playing. I reasoned that it must have been that I didn't want the hassle of having to log into facebook.
+
+#### this could have crazy implications
+
+as I mentioned in a previous entry, they seem to be overclocking and ramping up the levels of DMT in people's brains to allow them to see like I see. this means that people are probably having seemingly random (uncontrollable) voices or sounds in their heads, or in extreme levels of DMT, they will begin to have images pop into their eyes. if you've done psychedelics, this will seem pretty normal, as DMT is the most powerful psychedelic out there, but for most this may be considered hallucinations and so therefore is unwanted in their everyday experience.
+
+those "hallucinations" are actually the beginning step to learning to control this creative aspect of your brain. interestingly enough, I believe tesla had a strange brain malfunction that occurred when he was young which damaged his brain in such a way that it produced much more DMT than it should -- a situation not-unlike what nosebook is causing to occur in the brains of my viewers (so they can see like I do).
+
+so, in a sense, nosebook is essentially turboing out a bunch of young teslas by overclocking their brains on DMT. that's the good news; the bad news is instead of letting these people grow naturally into their visual capacity by releasing resistance (like I have done), they are going to attempt to control the emotional impulses (to prevent unwanted hallucinations) in these people similar to how they are doing in me.
+
+what this essentially means is they will attempt to rid from the person having these hallucinations any strong feeling producing the hallucinations, good or bad.
+
+#### dampening me emotionally will actually (eventually) be beneficial
+
+I can't speak for anyone other than myself, so I won't. remember how I mentioned that after they disabled the device in my left-hand by pretending to remove it (thanks megan!), I had a really powerful image which I labeled the embodiment of "tranquility?" at the time I was feeling so much better about having the painful device out of my hand, I was feeling pretty good and things seemed to be going a lot better. that feeling of well-being produced that image at a particularly high moment. they want to prevent me from seeing any images in my eyes, so they've got to cancel out that feeling of well-being which produced that image to prevent more from appearing.
+
+likely this has been happening for a while now, as that is probably only the most notable example, as the feeling was strong enough to create a signal that was stronger than the image they are constantly putting into my eyes (what I see with my eyes, minus anything extra produced by my imagination). there are probably all kinds of other situations where I am seeing an image, but because the signal is weaker than the one they're putting into my eyes, I don't see the image. I believe the sudden increase in sound I hear whenever I begin to watch stars is actually the stronger signal being sent into my eyes, to prevent me from seeing any visual effects produced by the star.
+
+so, they've been, like my imagination, canceling out any strong feeling I have that produces any images. for me these feelings are almost always good-feeling emotions -- which basically leaves me with only the not-so-good feeling emotions that were hiding behind such a strong good feeling.
+
+to give an example, imagine being somewhere where ten different songs are playing at once each with different volume levels. the loudest one is a really good song that you like, so you don't even really notice the other songs playing. however, someone turns off that song, and so you become aware of the next loudest song now. it's not really a song that you like very much. it doesn't have a good sound to it. beginning to notice how much you don't like it, LOA makes it louder until it drowns out all the other songs and it's the only thing you can hear. you're a creative genius with the capacity to modify your perception of the song, so you do -- and it becomes a good sounding song to you. then someone turns that song off and you notice another quieter song that you like; LOA makes it bigger, and then someone turns that song off... etc.
+
+essentially, what is happening is I am getting anything that feels good, and creates an image (therefore anything that inspires creativity in me) turned off, leaving me left to deal with only the not-so-good feeling background noise.
+
+I think this is a super good thing now that I understand what is happening...
+
+#### the "baptism of fire"
+
+you can imagine now that I'm being forced to become aware of all of these not-so-good feeling background emotions lurking about in my consciousness. every one of these can be resolved by locating the belief or faulty logic that is generating that emotion.
+
+this is essentially purifying my thought patterns (no thanks to the sound architects constantly trying to distract me from my thoughts) and belief systems. the real benefit of all of this is understanding how all of this fits in with with the emotional guidance system. logic (your structure), and your emotional response to it, is essentially how you navigate the physical experience, and getting virtually all of the resistant logic transformed into something less resistant is a super big benefit.
+
+as you can imagine, since my goal is to become a multi-bodied consciousness, where my bodies are influenced emotionally, a *very* important thing will a rock-solid structure (rules, logic, belief system) upon which it operates. so, as I'm beginning my journey to realise that desire, this is actually an essential part of the process.
+
+#### broadcasting stronger emotionally (and therefore also visually)
+
+you can imagine by extrapolating out the sequence of events forward in time, that I will get better and better at «finding my own satisfaction that no one is the boss of me», that even when they silence the strongest feeling producing an image, there next one below it will also be a good feeling. focus a little bit on it and LOA will make it a stronger feeling, once again producing images in my eyes.
+
+since the signal can be put through detectors in parallel, they have virtually unlimited capacity to try detect and silence whatever feeling I've got going on which makes an image, so they won't run out capacity-wise. however, I will continue to expand my capacity as well, meaning they're going to have to make stronger cancelling signals, however eventually I will broadcast stronger than they can cancel -- to which they will have to shock me, but I find it much more likely that instead, they might try to "control" me emotionally, by cancelling to make the signal weaker, then putting a stronger bad feeling to distract me from the good one producing the image.
+
+or, another possibility is they will treat me like mom treated me when I was child. if the child sees something he wants and goes after it, really the only thing that can distract him from that will be something else he wants (until he gets bored of that).
+
+if that happens, fine :) just like when I was a child growing up, I became a person so capable of identifying what I wanted, no one could dissuade me from it -- which really became the foundation upon which I built so much of my "success" (joy) later on in life.
+
+at the end of it all, I will become the perfected man: the re-realisation of saturn -- a very delicious person be be around and co-create with -- and best of all, there will be thousands (millions?) of bodies with which people can interact with me, too.
+
+#### closing thoughts
+
+the example of the room with many songs in it I believe pretty accurately describes my recent loss of emotional "control". without the ability to navigate and find relief from the negative emotion in a positive emotion, I have become very emotionally out of control (cause they want to be in control of when I see images, not me). as they remove these "hallucinations" from others, it's probably going to make a lot of people emotionally out of control. I think there are going to be moderately eventful years ahead, as not everyone will be as dedicated to improving their perception.
+
+my "hallucinations" are usually quite pleasant, but I can imagine maybe for others with a lot more fear, they could be pretty unpleasant -- so that means even the guys running the show will either need to update their faulty logic and release some of their resistance, or go the easy route and try to neutralise any feeling that produces these hallucinations making them less aware of their emotional guidance system -- kind of allowing them to put their hand on the stove for extended periods of time, because they've removed their ability to notice the pain.
+
+I think they're building a *REALLY* fragile house of cards here and it's going to be interesting to me to see what happens as a result. it'll definitely polarise things even more making the extremes even more extreme.
+
+---
+
+also, just like how I lost interest in the cookie jam blast game, I believe this dampening effect is what has been affecting my desire to program. desire is strongly influenced by emotion, as it's essentially the gas for the desire engine. the better I feel, the stronger desire I feel.
+
+I don't know this for sure, but dampening of emotion could also be responsible (like the game) for my sudden disinterest in the whole girl situation. like my programming, dampening my emotion has dampened my desire. for me (and it seemed like for mehiel too) creative expression feels the same as sexual expression. napoleon hill also talks about this in chapter 11 of think and grow rich.
+
+however, I do not believe that the guys in charge are going to reverse their efforts to inhibit my visual capacity all of a sudden. it's far too risky for them, so it's pretty unlikely and even if they did, I'll just turn them down.
+
+it really makes me feel good knowing that I really feel *WAY WAY WAY* better than I do, and one day I will realise that in its entirety.
+
+with my new understanding about what is happening, I am confident that things are going fine, and I did attract my current situation, as it is what I really want. I'm on my way to becoming the perfected man!
+
+I think we should just let the swamp get swampier, as the swamp creatures themselves make things more extreme, will have to (eventually) release their resistance. could take a while though :)
 
 # potential topics
 
