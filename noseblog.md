@@ -2569,6 +2569,28 @@ with my new understanding about what is happening, I am confident that things ar
 
 I think we should just let the swamp get swampier, as the swamp creatures themselves make things more extreme, will have to (eventually) release their resistance. could take a while though :)
 
+### 2018-11-06 13:06 - kenny vs. michael
+
+last night I listened to an abraham which caused me a lot of emotional destress. the next day (today), I had some pretty serious realisations as a result.
+
+the last dream that I had which I can remember, my eyes were blurry and people were trying to figure out what I want to do. I was having a difficult time explaining that I just want to create things. they wanted me to create a game. I tried to say something that has never been seen before. in the sense of a game, it would be revolutionary gameplay or something that would revolutionise gameplay... (though to do that, you probably need to change the media the game is played on, so for example playing a game in your mind is a total game-changer)
+
+they wanted to me make something that existed or something else to me is boring. I kinda broke down and just started saying this isn't what I want... oh wait, that part came before.. at first they wanted me to *play* games, then after breaking down and me saying that I wanted to create something, they wanted me to create a game... after that, something happens which I cannot remember and what woke me up is they were asking me what girls I wanted while making this game (or something like that). I remember distinctly a thought popping into my head about some lesser number of girls like 3-4 or something and it startled me because the thought was not my own. also, the gang of people in the dream doing the questioning all paused and became alert. this sudden change in characters of my dream again startled me, as characters (other than myself) usually do not have sudden realisations and then change behaviour. that is a quality of consciousness, not of symbols (like I'm used to) that appear in dreams.
+
+so, this "dream" was not a symbolic message from my inner being. this was an induced dream-like state where other people were interacting with me to try and figure out something. obviously, my eyes are blurry because they can't project into my eyes my own dream, and don't want me to see how well I really see, so they have to make my eyes blurry. I then reasoned that they had finally realised that they were getting nowhere talking to michael in dream-state, because in wake-state, I am kenny and kenny has no access to michael.
+
+so then, where did this thought come from? I honestly don't know.. I suppose it could have been a number of places, but it certainly wasn't kenny's thought. my best guess is that it was michael's thought.
+
+they have been keeping the two of us as disconnected as possible from each other, and it dawned on me that perhaps my recent disinterest in anything girls related is because they finally disconncted michael completely from my experience. this means I'm back to being the asexual emotionally charged guy I was before I had my brain haemorrhage (we'll call him vulcrum). nice, that actually explains quite a lot, actually.
+
+these guys (and girls) fell in love with the near 50/50 mix of michael and vulcrum back in 2016. I had essentially balanced these two expressions into something wonderful. however, since michael is pretty creative, pretty visual and has lots of desire, they have had to shut the michael part of me down, shutting down my visual capacity, but also my desire and my creativity.
+
+all that is left is vulcrum and this morning my major realisation (from that abraham clip) is that I do get what I think about, which is more and more crappy floor, yet at the same time I'm perfecting my emotional response to it. instead of reaping the consequences of feeling bad about something, I find a way to be satisfied. often times feeling good about something doesn't work out so well either, so instead of feeling good about something, I instead will be staying in the satisfaction zone.
+
+the satisfaction zone is in the middle of the emotional scale; you could call it contentment too, but I think the reason why this is important for me, is it's the "let it build" factor and also considering my previous entry on dampening my emotions, obviously the noise cancelling is also limited to the sensitivity of their noise canceller, so again the high frequency emotional signals still get through.
+
+as I learn to maintain satisfaction, no one will be the boss of me any more. they can't control my by making me feel good or bad. I will maintain myself constant, responding only to the high frequency "knowing" that comes along with those emotions.
+
 # potential topics
 
 ### - the bso, LOA and regulation (part three)
