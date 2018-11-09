@@ -2591,8 +2591,37 @@ the satisfaction zone is in the middle of the emotional scale; you could call it
 
 as I learn to maintain satisfaction, no one will be the boss of me any more. they can't control my by making me feel good or bad. I will maintain myself constant, responding only to the high frequency "knowing" that comes along with those emotions.
 
+### 2018-11-09 06:52 - texas midterm ellections
+
+last night (and a few other nights) it seemed that the beto concept popped into my head quite a lot. I suppose this is so that it will spark further thought on the subject. to be honest, the whole beto thing has been kind of a thing I've subconsciously avoided. I saw the video on colbert, but it felt bad so I avoided it. I heard about it other places too like w/ trevor, but I also seemed like something I particularly wanted to avoid. no real reason at all. a similar sort of thing happened with that girl that was young (like 28 or something). I sort of wanted to avoid her too. no real reason. yet, I felt very strongly toward watching the cnn anchor on colbert's show... I dunno; it has no rhyme or reason to it. it's simply how things kind of are for me.
+
+anyway, last night when the beto concept popped into my mind again, I reluctantly responded by saying that without having any real information, beto's loss felt to me similar to hillary's loss. I couldn't really expand on it, so I said I'd think some more on it.
+
+I woke up this morning, and it feels like had had some dreams about it, but the impression that I had when I woke up is in tight margins, it felt very likely to me that the bso would decide the election based on numerous results, mostly economic, and the rest based on un-popular opinion.
+
+(future entry about the implications of the above)
+
+even though beto had almost all of the endorsements he could possibly need (like hillary), he couldn't pull through. additionally, texas had one of the highest young-person voter turnouts it'd ever had. liberal candidates are usually more popular amongst young people, so beto had the best possible chance he could have had. I think it came down to a simple economic decision.
+
+if one candidate will cost you 20g/yr and the other one will cost you 25g/yr, you will make a purchasing decision based on your current financial capabilities.
+
+we'll see how it goes. one thing I will say though, is when I woke up on wednesday, I specifically remember feeling a very strong sense of joy come from ted cruz. it felt to me like all of his life he had been the unpopular kid, and finally he won meaningful election and even the kids liked him. it really felt like he was riding a wave of feeling popular. I figure he just wanted people to like him, so he got into politics so he could give people what they want, and those wanting what he has to offer would validate him and make him feel liked.
+
+you can clearly see from his sudden turn around on pre-existing conditions, that ted is all about trying to offer the most popular thing. texas is probably pretty conservative (never been there but I can imagine), so likely he has been offering what he has considered to be the most popular. if it were liberal, I imagine he'd be leaning a whole lot more to the left. I don't believe ted is tied very strongly to any ideology in particular, but is actually going for the most popular and economically viable solutions. as much as people make fun of ted, this is potentially very good and can be very productive.
+
+so, if some smart people actually got together and presented important things that would  raise his popularity for lots of people (and benefit them), then found ways to do it economically (like say using some tech solution), those types of things could have great impact.
+
+the opposite side of this is a lobby. most lobbies are wildly unpopular, and all they have to offer are economic kickbacks to the politician in exchange for their unpopular ... whatever it is they want to do.
+
+texas legislation could become a bit of a battle between popularity (economic / benefit) vs lobby (popularity / personal gain) -- in its most simplest terms :P let's see how it goes. I'm not going to endorse ted here, but try and see if economically viable solutions can be found which boost his popularity, and I think it could be possible to get a mix of red and blue ideas which can be beneficial for all.
+
+there are so many little things that can be done (especially involving tech) which would save taxpayers money, and that money could then be funnelled toward programs which benefit the community. it's a potentially exciting time for texas.
+
+just sayin' some really good things could happen here... what if ted could start the wave of uniting red and blue ideas and making them economically feasible with technology.
+
 # potential topics
 
+### -
 ### - the bso, LOA and regulation (part three)
 #### resulting sects (subsets) of christianity
 ### - conditional living and physicality
