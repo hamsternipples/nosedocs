@@ -2171,23 +2171,23 @@ for some really weird reason, today felt like an abraham workshop. there was ton
 
 it turns out that it a lot of the tension and stress I was feeling was that I'm right on the cusp, or have already achieved another visual upgrade. the main theme around this whole thing has been coming to terms with the idea that I'll sort of be in this predicament for quite some time.
 
-I listened to an abraham episode on youtube from the 2018-07-07 alaskan cruise: @[youtube](KPraPAiFObM) and in the episode, the general advice was to the woman to choose to leave the school before drugging her son. the idea is that the world should figure out how to keep up with him, instead of drugging him to slow him down to be more easily managed by his teachers (guides). I have a bit of a problem though because no matter what, I cannot leave. the drugs are not physical ones, but frequencies that slow my brain down to a stupor. I really want to leave, but I'm forced to stay and be drugged. I want so much to be free from this nonsense.
+I listened to an abraham episode on youtube from the 2018-07-07 alaskan cruise: @[youtube](KPraPAiFObM) and in the episode, the general advice was to the woman to choose to leave the school before drugging her son. the idea is that the world should figure out how to keep up with him, instead of drugging him to slow him down to be more easily managed by his teachers (guides). I wish I had the option to leave, I cannot leave. also, the drugs are not physical ones, but frequencies that slow my brain down to a stupor. I really want to leave, but I'm forced to stay and be drugged. I want so much to be free from this nonsense.
 
 so, as I realised the hopelessness of the situation, I do recognise that like that woman, she wouldn't do much of anything trying to affect a change in the school (reform the school), and likewise I do not believe I will be making any difference whatsoever in my school, either. neither will they let me go, so I just have to get used to the current situation.
 
 to further complicate matters, you can imagine how many problems it would create for the teachers, if they put me on stage regularly. perhaps the meeting today was to try and get the guy holding out at the bso focusing on all of the problems I would bring if I were to be put in a more public place. likely, they assured him that since they control all communications, they can manipulate the message however they want (or something like that).
 
-doesn't matter though. I'm most concerned with my head-space. I want clarity of mind, vision, I want to feel the energy flowing through my body. I like feeling sensitive. I want to learn to control it, instead of constantly having my sensory organs giving my different signals (sometimes sensitive, and sometimes very dull).
+doesn't matter though. I'm most concerned with my head-space. I want clarity of mind, vision, I want to feel energy flowing through my body. I like feeling sensitive. I want to learn to control it, instead of constantly having my sensory organs given the signals other people want me to have (sometimes sensitive, and sometimes very dull).
 
 I figure that there is no way that we can come to an agreement on my capacities. none. they will not release the limitations on them, and neither will they let me have control over what is happening in my head. they want to do whatever they want inside my head, whenever they want. I'm honing in on the ability to control more and more what is going on inside of my head. since I don't really have a choice, I'll find a way to make the next years of my life about regaining my own self-control.
 
-I also terminated the fast. I felt too many external expectations on it. it felt similar to how quitting smoking had expectations attached to it in the carlota era. I wanted to learn more self-control, not prove some sort of status thing for people. I reasoned that I would prefer to take it the long and thorough route, similar to how noone can really pin a date on when I quit smoking, neither do I want it to be possible for there to be a day where you could say, that's when he quit food.
+I also terminated the fast. I felt too many external expectations on it. it felt similar to how quitting smoking had expectations attached to it in the carlota era. I wanted to learn more self-control, not prove some sort of status thing for people. I reasoned that I would prefer to take it the long and thorough route, similar to how noone can really pin a date on when I quit smoking, neither do I want it to be possible for there to be a day where someone could say, that's when he quit food.
 
-I did notice a change in feeling toward the end of the afternoon, but they're a one-trick pony: girls are not gonna do it. I *must* gain control over my own head, and really the *only* way forward for me right now is not an action-path: it's finding any way to feel better about where I am right now. I recommend that my friends in the meeting today consider the same. after all, any desire to control externally is only an outward manifestation of one's inward desire to have control over the same thing inside of himself.
+I did notice a change in feeling toward the end of the afternoon, but they're a one-trick pony: girls are not gonna do it. I *must* gain control over my own head, and really the *only* way forward for me right now is not an action-path: it's finding any way to feel better about where I am right now. I recommend that my friends in the meeting today consider a similar way forward for theirselves. after all, any desire to control externally is only an outward manifestation of one's inward desire to have control over the same thing inside of himself.
 
 ### 2018-10-13 - the meek shall inherit the earth
 
-I always wondered what "meek" meant. it always felt to me like it had simplicity and not lots of effort or trying to its feeling. anyway...
+I used to always wonder what "meek" meant. a meek person felt to me like they had simplicity and not a lot of effort or trying in how they felt. anyway...
 
 I've been trying to figure out the long-range vision on all of this for a while now. this is essentially just another stab at that.
 
@@ -2618,6 +2618,24 @@ texas legislation could become a bit of a battle between popularity (economic / 
 there are so many little things that can be done (especially involving tech) which would save taxpayers money, and that money could then be funnelled toward programs which benefit the community. it's a potentially exciting time for texas.
 
 just sayin' some really good things could happen here... what if ted could start the wave of uniting red and blue ideas and making them economically feasible with technology.
+
+### 2028-11-11 11:03 - today kind of represents a bit of an extreme (hopefully)
+
+had a really good star watching session last night with mars. I really felt the connection quite well. I went in feeling pretty successful, but after that, I would go outside and every time it felt like I was constantly fighting the clouds. I could see the clouds would dissipate slightly and the stars would shine through quite nicely. however the cloud situation, which usually improves when I begin looking at the stars, would worsen.
+
+eventually, I decided I would -- instead of spending all night fighting the clouds -- wake up early, watch stars before the sunrise and then begin programming early in the morning. when I went to go to sleep though, my heart was beating very very strongly (like it wanted to beat differently than it was being allowed to do so) and a very strong very agitating frequency began in my head. I can only describe it as something like 1/10 of he agitation it feels like when getting a strong shock in the middle of a nice image, yet constant. the good star watching session must have had a strong positive effect on me because I only feel that kind of agitation whenever I have the extreme contrast between a very nice feeling image in my eyes (the ones I see almost always feel really good), and what the shock feels like.
+
+I flip a coin and decide to go back to sleep. when I wake up at 4:30am, it's cloudy still but I decide to go outside to pee and I can see sirius between the clouds. I get excited so I come in to put on warm clothes and go out again. in the time it took me to put on my star-watching outfit (5 mins tops), it had completely clouded over and no stars could be seen. super lame. I can't decide if I want to try and program without the stars or try to go back to sleep. I flip a coin and decide to go to sleep.
+
+again, stupid strong frequencies and the ones that try to pull my consciousness away. I'm in kind of a light sleep state until about 5:40 or so when things get really intense. I start getting shocked for no reason at all a whole bunch of times. the shocking consciousness pulling frequencies continue throughout the morning and I wake up to everything being covered in snow. something one would not expect having felt yesterday's warm afternoon.
+
+---
+
+I just don't know what to do about the whole shocking bit. there isn't really a whole lot I can do, actually. I know my job is to stay in the satisfaction range of things, and I am doing a little better, but the frequency last night, for example, really did not feel good at all. I know it'll just continue to get worse too, because that's what LOA does.
+
+speaking of LOA, yesterday was an abraham workshop which I felt quite a bit in relation to me as people were organising their questions before the workshop. after it was over, I felt some calming of the tensions around me and my situation, but having felt the reaction associated with my star-watching, the calming felt more like giving a crack-addict a crack rock to calm down. it helped them feel better for the afternoon, but when I reminded them of their inability to effectively control me during the star-watching, the rage and control seemed to return right where we last left it (on friday night) and even a bit worse.
+
+oh well... I'll just figure it out I guess. I keep feeling changes that will begin to occur to my personality, but I think the most important one is getting a lock-on to the satisfaction zone.
 
 # potential topics
 
