@@ -2637,6 +2637,58 @@ speaking of LOA, yesterday was an abraham workshop which I felt quite a bit in r
 
 oh well... I'll just figure it out I guess. I keep feeling changes that will begin to occur to my personality, but I think the most important one is getting a lock-on to the satisfaction zone.
 
+### 2018-11-13 13:27 - birds, the receptive mode and human consciousness
+
+I woke up thinking this morning about some of the trends I see coming forward through time. I have often times compared nosebook to the institution of the church. there seems to be a lot of similarities. I have noticed a bit of forwards and backwards of trends based on what is thought to be controllable.
+
+for example, a while ago, the church tried to deemphasise as much as possible sex in attempt to try and control population numbers. now, sex is all the rage, because the current institution feels that they can now effectively control large populations with the electronic device that everyone has installed.
+
+what is being deemphasised right now is people getting into the receptive mode and allowing more non-physical energy to pass through them. this manifests itself with taboo of watching stars and the utilisation of one's visual capacity to perceive and translate non-physical energy.
+
+however, I believe this trend will change in the future as technology changes. I predict that nosebook will find out that although they do have access to people's heads, it's pretty tough to get people to change their belief systems, and while micro-management is somewhat possible, macro control is near to impossible as it would require people's beliefs to be modified.
+
+this is where timeline technology will change the emphasis. I believe it will be discovered that people's beliefs are essentially an accumulation of conclusions about life experience. so, if you had the ability to change people's perception of the past, you could modify their beliefs. however, there is one caveat: in order to be able to modify someone's perception of the past, they would need to be in the receptive-mode in order to maybe do something a bit differently.
+
+now, all of a sudden nosebook will want as many people as possible to get into the receptive mode, because then large changes can be made by manipulating people's perception of the past (and therefore their belief system).
+
+this is about where I was roughly around the time after vallecas and the heavy mdma / shroom dosing. even before that too, but moreso after the drug experience. because I was so very much in the receptive mode of just about anything, it was very easy for people to convince me of things that were total fabrications.
+
+you'll know when timeline technology had landed, because suddenly they will reverse their opinions about star watching and psychedelic drugs. just like the they did about sex, they'll likely rebrand it and keep it a secret for a while to let the taboo fade slowly. it's a tried and true formula that definitely works<sup>* </sup> :)
+
+I believe timeline technology will be abound in less than 50 years, and even though it explains large portions of the mystery surrounding my circumstances, I doubt it'll be mainstream technology. it's existence will likely be a secret until they figure out a way to attempt to control people with it, and then a subset of the technology will be allowed to go mainstream as a way of satisfying the vacancy created by the previous taboo (keeping people disconnected from non-physical energy and out of the receptive-mode).
+
+in response to the attempt to pinch people off as much as possible from non-physical energy, limiting them both visually and physically (like is being done to me now), will create a new set of "rebels" -- much like the church created a new set of rebels which eventually (with the invention of the printing press) were able to break away and create their own of sects of christianity. growing desire will summon a new printing-press like technology to become available (see entry: the bso, LOA and regulation) which will allow for mainstream to be able to access the brain, like the bso has the capability of now.
+
+you can see a similar occurrence of this happening with the microsoft, windows and the open-source movement. like microsoft, in order to keep-up, nosebook will eventually have to embrace this new open technology. this symbol occurs all throughout history, and is precisely why the united states has anti-monopoly measures to keep these sorts of things from happening (I know, the irony is tremendous).
+
+---
+
+so, I've been paying attention to the birds a lot, and the birds seem to make certain sounds in response to my thoughts. a while back, abraham would repeat many many times the message that birds are always in the receptive mode and can deliver messages. I believe this was an answer in response to nosebook wanting to find solutions to attempt to distract me from my thoughts.
+
+so, whether their literally chipping a bunch of birds or they have figured out a way to wirelessly send a signal to the birds, doesn't matter. however it works out, these birds are making the sound of the frequency put in their vocal chords. I had a similar experience with selma barking when I would see images, so it got me thinking about the receptive mode.
+
+these birds are literally receptive to *everything*, and have no capability if controlling thier impulse to make sound. this is not a problem most people experience, though.
+
+I think the majority of people have so much resistance, they are not in the receptive mode at all. essentially, getting into the receptive mode is done by releasing resistance (unnecessary noise which obfuscates and distorts the signal). you could say that the more "receptive" something is, the better of a "conductor" it is, or really if you think more in terms of frequency, a it has more to do with the structure of the molecules, allowing certain frequencies to propagate more readily than others. some materials will allow wave propagation of all frequencies, and others will be dampened. it's easier to understand this visually, with our knowledge of colour and light frequency.
+
+increasing sensitivity and becoming receptive is one thing, but it is not optimum to be receptive to *everything*. that's why tuning is so important.
+
+---
+
+like the printing-press (and also the internet) did, it made all sorts of things much more widely available to many more people, and it became much more difficult to control and limit communication. following a rapid expansion in communication, there follows a major change in society. it is an inherent freedom people have to, «sift and sort through the contrast, and come to your own personal preferences, as to what you prefer.»
+
+following the push to get everyone into the receptive mode for timeline manipulation, the future capability of nearly anyone to broadcast whatever they want, people will become much more aware of what they are in the receptive mode of. again, a very good thing!
+
+### 2018-11-13 ?? - steps for success
+
+steps for success:
+- obsolete old taboo (sex) with technology (nosebook)
+  - increase people's sensitivity to non-physical energy by flooding their brain with dmt
+    - prevent experiences with that non-physical energy by limiting theier perception to the physical.
+      - create a huge void (desire) to become receptive of that energy
+- obsolete old taboo (receptive mode) with technology (timelines)
+  -
+
 # potential topics
 
 ### -
