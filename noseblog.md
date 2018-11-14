@@ -2707,6 +2707,51 @@ physical <-> desire <-> physical <-> desire
 
 it's like the pendulum of time, and becoming conscious of it allows for a new dimension of freedom not previously realised.
 
+### 2018-11-14 06:35 - more about symbols
+
+so, why would I talk about symbols like this? well besides the fact that I love trying to figure out patterns of how things work, I really enjoy the process of not only seeing evolutionary steps, but attempting to optimise them as well. I like to go fast, and since maybe others might too, so this is for them, too. abraham says the triad of intentions are freedom, growth, and joy. freedom is a given, and growth is inevitable, so joy is the main objective. and then they say, that we say, "we hear you abraham, growth, growth, growth" -- and it's almost like they're talking directly to me, because expansion and growth is mostly what speed is all about. so, I have been trying to figure out ways to make things more fun, instead of just the speed bit. I suppose it's a bit like sex in that regard: you want to enjoy it more than just turbo it out, and it's a whole lot more fun if there are others involved as well.
+
+symbols and their meanings are measures of action. you want to do the right action in the right place and time, to increase their impact, again a lot like sex :) when more people become conscious of these symbols and how they work, more people can go fast, together. this increases the joy factor quite a bit.. I figure it's a good first step.
+
+---
+
+I first began learning about symbols when I began, all of a sudden, to be quite interested in astrology. I don't usually *do* those sorts of things but it interested me quite a bit how people were linking movement of celestial bodies to real meaning in their life. craziness, I know -- but somehow it works. if you wake up in the morning and see that it's monday, your day occurs a bit differently than it does if you wake up and see that it's sunday. you could say that you are deriving symbols from your interpretation of the calendar (instead of the sky).
+
+more practically, you could imagine it like a clock. around the time 5pm rolls around, the hands on the clock alert you to the coming dinner situation. the symboll or the action objective, is to prepare dinner. along the way, you may perhaps wash some dishes, or other things too, but the main *thrust* of the action is to prepare dinner. the symbol is a generalisation of what is to occur.
+
+---
+
+let us begin with aries -- fire. for extreme simplification, I'll just refer to this as anything BC (before christ). then, there was the era of christ in piscis. however, this had me troubled for a bit because jesus seems more about aquarius than about piscis (yet, the spring equinox would have piscis rising to the east). so, it appears to me that jesus was ahead of his era, similar to me. I think the reason for that is LOA plain and simple.
+
+aries is much more compatible to aquarius than it is to piscis. so, to just get it out of the way now, I believe the symbols follow this pattern:
+
+1. fire (increase masculine aggression)
+2. water (increase masculine receptivity)
+3. wind (increase feminine aggression)
+4. earth (increase feminine receptivity)
+
+again, its the general thrust and an over simplification. also I think each era has sub-eras with these points as well. fire corresponds with desire, water with logic, wind with emotion, and earth with physicality (when the technology which changes the era obsoletes the previous taboo).
+
+you will notice that in aries, there was great upheaval on the earth with universally almost all people's trying to apease the gods. piscis soothed that quite a bit, however group thinking and pack-animal behaviour began to flourish as everyone tries to blend in and, "be water my friend" -- water conforms to its container.
+
+entering into wind phase (aquarius) here now, I predict an increase in female aggression (motivation) and a flurry of diverse thought and ideas, as air expands to to fill its container.
+
+so, because fire and wind are more compatible due to LOA (they are both on the aggression or motivation end of things), someone who is headed in the direction (symbolically) of the more extreme attracts those who want to limit this expansion.
+
+to understand what I meant by the last paragraph, take note that symbolically I had achieved an aggressive feminine side and was headed in the direction of increasing my feminine side's receptivity. the guys at nosebook are looking to externally increase the increase in feminine receptivity as well, so I'm very attractive to them.
+
+this is getting complicated, so I'm going to go back to oversimplification and generalisation: those who feel like they're behind the times, feel the need to try and control. they are in the previous era. the majority of the population is headed in the direction of the thrust. the symbol which begins the era has achieved (symbolically) this thrust, and is headed in the direction of the following era.
+
+1. controllers -- lives: era-2, thrust: era-1
+2. majority -- lives: era-1, thrust: era
+3. symbol -- lives: era, thrust: era+1
+
+---
+
+I think I'm going to leave it at that. it's sort of a lot to think about. depending on the cardinality of the era, the symbol harmonises on different things. as I ponder this, I am quite also reminded of the sine wave, and its similarity to what I'm talking about, too.
+
+what actually spawned a lot of this thought was a video I watched on youtube about the circle of fifths, and since there are 12 of them (as it traverses all the notes of the scale), it also made me question maybe to see if the relation to the eras is less about whole notes (+1,-1,etc.), but more similar to how the circle of 5ths works. perhaps there is some optimisation that can be done to my perception of the harmonies of the symbols.
+
 # potential topics
 
 ### -
