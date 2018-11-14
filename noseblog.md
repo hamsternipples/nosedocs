@@ -2679,15 +2679,33 @@ like the printing-press (and also the internet) did, it made all sorts of things
 
 following the push to get everyone into the receptive mode for timeline manipulation, the future capability of nearly anyone to broadcast whatever they want, people will become much more aware of what they are in the receptive mode of. again, a very good thing!
 
-### 2018-11-13 ?? - steps for success
+### 2018-11-13 19:?? - each era's steps for success
 
-steps for success:
-- obsolete old taboo (sex) with technology (nosebook)
-  - increase people's sensitivity to non-physical energy by flooding their brain with dmt
-    - prevent experiences with that non-physical energy by limiting theier perception to the physical.
-      - create a huge void (desire) to become receptive of that energy
-- obsolete old taboo (receptive mode) with technology (timelines)
-  -
+#### steps for success (this era)
+
+1. obsolete the old taboo (sex) with technology (nosebook)
+2. decrease people's resistance to non-physical energy by flooding their brain with dmt
+3. prevent experiences with that non-physical energy by limiting their perception to the physical.
+4. create a huge void (desire) to become receptive of that non-physical energy
+
+#### steps for success (next era)
+
+1. obsolete the old taboo (receptive mode) with technology (timelines)
+2. decrease concreteness of people's beliefs by manipulating their perceptions of the past
+3. prevent interaction with one's past by overloading hyper-focusing them into the present
+4. create a huge void (desire) to be able to tune into and manipulate one's own perception and passage of time
+
+there are various tradeoffs with each era, but the pendulum swings back and fourth. for example, you can see how nosebook is so focused on my past, and I have ever decreasing memory and continuity of my past experiences, that it's forcing me to live more and more in the present. or, for example, in this era, nosebook is focusing really hard on physical experiences, and I'm being forced to focus and rely more on non-physical experience. they do not want me to (and are trying their hardest to make sure I do not) have non-physical experiences, creating desire in me for that non-physical experience.
+
+it appears that I'm simply a symbol of the coming era. obviously, I cannot see the era which will follow the coming one. that would be too far ahead for me to see, as it requires knowing what the future technology is. if I had to guess, I would imagine it would again be a focus on physical expression, so perhaps it is some sort of man merging with the machine thing where once again we are more physically focused.
+
+---
+
+I'm very excited about it all now that I'm seeing so much more of the big picture. it's cool to see how, for example the previous era's taboo on sex built such strong desire for the technology we are now experiencing. each era seems to naturally make a taboo out of the following era's technological liberation, thereby building desire...
+
+physical <-> desire <-> physical <-> desire
+
+it's like the pendulum of time, and becoming conscious of it allows for a new dimension of freedom not previously realised.
 
 # potential topics
 
