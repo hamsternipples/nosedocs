@@ -322,3 +322,5 @@ I'm so killing it here. naturally, it appears I am inclined to pick the better c
 I would also have to agree. I have met very miserable with lots of money. I've also met miserable people without money, too. I've found the money to only delay and amplify the misery. it seems that when someone with money runs out, the misery has been amplified so much that they're forced to rethink life. before the money runs out, the money acts as a means to distract the person from their own misery. I've found money (like also a lover) to largely be a distraction from unhappiness, rather than the path to happiness.
 
 «that makes people feel afraid because they say, "abraham, if I get happy about what is, won't I be stuck with what-is? isn't that the same thing as saying to the universe that I'm happy with what is, so don't give me anything else" -- and we say, no, that's the way you say, "I'm happy with what-is, and I'm using my happiness with what-is to achieve a vibrational alignment that now allows [...] everything I've been asking for [in]"»
+
+### 10. appreciate what-is or fantasise about what will be?

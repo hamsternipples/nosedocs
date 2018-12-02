@@ -2870,21 +2870,21 @@ I have memory of reading about or something to do with tesla when I was a teenag
 
 when raquel was angry with me one time near the end of things, she she said something like, "you're not the reincarnation of tesla" (we must have been such huge stoners, this topic came up I guess... lol) -- I remember it created such strong desire in me to prove her wrong. then, some time in 2013, I was reading fhw and someone was asking him about tesla (I think if tesla was alive), and fwh responded by saying that "tesla uh, reincarnated in 2000" -- which was the year I had my brain haemorrhage and I had my "jesus" experience.
 
-so, maybe tesla was a reincarnation of jesus I thought... then, I had my vallecas experience and my left side got paralysed again. and, after that, no matter what I tried, I could not find a way of feeling freedom in my left-side again (cept sometimes during drug experiences). I didn't know that nosebook had paralysed me. I kind of gave up on the whole tesla thing as my left-side becoming activated again seemed grim. quite a few times marcos would inspire in me again tesla thoughts, and with my hope set on andrea reactivating my left-side, I hoped that would be a way for me to finally get the visual capacity and to realise my dream of becoming a modern-day tesla. (wow, hindsight is kinda crazy)
+so, maybe tesla was a reincarnation of jesus I thought... then, I had my vallecas experience and my left side got paralysed again. and, after that, no matter what I tried, I could not find a way of feeling freedom in my left-side again (cept sometimes during drug experiences). I didn't know that nosebook had paralysed me. I kind of gave up on the whole tesla thing as my left-side becoming activated again seemed grim. quite a few times marcos would inspire in me tesla thoughts again, and with my hope set on andrea reactivating my left-side, I anticipated that would be a way for me to finally get the visual capacity and to realise my dream of becoming a modern-day tesla. (wow, hindsight is kinda crazy)
 
 ---
 
-lol. so, thank goodness I finally found abraham and they were able to explain reincarnation works in a better way see @[abe](2004-05-01#4). I am likely from that family of consciousness. that's the easy answer. here's where it gets trippy though:
+lol. so, thank goodness I finally found abraham and they were able to explain reincarnation in a better way. @[abe](2004-05-01#4) I am likely from that family of consciousness. that's the easy answer. here's where it gets trippy though:
 
 remember in a previous entry @[entry](2018-10-19) I mentioned that I cannot figure out why it seems like I had a another consciousness "spliced" in both during my brain haemorrhage and also in the vallecas incident?
 
-this is just a theory, but what if "michael" is fwh? he often mentioned and referred to himself in the third person as archangel michael. why does he call himself, *former* white hat? think about it a moment. that means he switched sides. if this is true, then that means I will literally be competing against an alternate timeline version of myself. that means I have been trolling myself this entire time! fwh spliced himself into my body and has essentially been helping team nosebook out while I sleep to keep me as pinned down as possible.
+this is just a theory, but what if "michael" is fwh? he often mentioned and referred to himself in the third person as archangel michael. why does he call himself, *former* white hat? think about it a moment. that means he switched sides. if this is true, then that means I will literally be competing against an alternate timeline version of myself. it also means I have been trolling myself this entire time! fwh spliced himself into my body and has essentially been helping team nosebook out while I sleep to keep me as pinned down as possible, leaving me a message saying that things would get *pretty rough* (lol) "until briggs is on deck".
 
 I guess vanilla nosebook wasn't enough contrast. wtf man... the thing is, this totally doesn't surprise me at all. I am definitely twisted enough to do something like that to myself. fuck..
 
 what's with everyone playing both sides of the field? I'm constantly giving nosebook the answers they're looking for, abraham is helping them, and even alt-me is helping them too.
 
-whelp, this changes nothing for me.. it's steady as she goes for me.. let the games begin (shortly, I suppose... see next entry)
+whelp, I'm pretty sure this changes nothing; it's steady as she goes for me.. let the games begin shortly (I suppose... see next entry)
 
 
 
