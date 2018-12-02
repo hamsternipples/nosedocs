@@ -2846,6 +2846,50 @@ the solution to disable my right hemisphere felt quite good to me for quite a fe
 
 I think I remember there being more reasons, but I cannot remember them now. that list is good enough to hopefully . I think one of the important take-aways from this whole thing is that I want to do this myself. I must do it myself, and I think michael is perhaps attempting to compel us to let him have a physical experience.
 
+### 2018-12-02 13:26 - so, who is this michael character?
+
+in the hospital after my brain haemorrhage, I distinctly remember being visited by a someone I could identify as jesus. after agreeing to some things he entered my body. afterward, I thought it quite preposterous to think that jesus himself would enter my body, but as time went on, I didn't think so much of it, rationalising by saying that everyone who is a christian accepts jesus into their heart, and my experience was just more tangible and vivid because of all of the morphine.
+
+in the years following, I found matthew to be my favourite book, and read that over and over, excluding the crucifixion and the resurrection. they made me feel bad so I skipped them. later I just went through the different teaching sections and skipped the story inbetween. david buckle helped me to realise why I liked matthew so much. the other authors tend to interweave jusus' teachings into the story, however matthew goes to great lengths to ensure all of the parables and teachings are grouped together. there are about 5-6 of them if I remember right, each about 1-3 chapters.
+
+david also had a saying that really captured me when he would say something to the effect of, "whether it was jesus' actual words or the author of matthew who made them up, something genius has been recorded here." -- that statement inspired me to find out what was really behind the parables. we know that the gospels were written in aramaic, yet the only records we have left are in greek, so it's already an english translation of an ancient language, which is translation of an extinct language, which is likely cobbled together memory fragments of something spoken years ago. I would not consider this in any way "accurate" -- so I set about trying to find the underlying meaning which jesus was trying to convey (the thrust of the message).
+
+obviously, trying to formulate my own overarching concept of what was being said is a bit of a no-no in church so I kept it to myself. the popular way for people to study the gospels in the church at that time, was to get a strong's concordance and then weave all the different synonyms of each word in the verse together and come up with a very loosely strung together idea (of the various meanings of the words in a translation of a translation of some memory fragments). david also frowned down upon this method and often criticised it. so, instead of drowning myself in these, likely to be inconsequential, details -- I tried to string together common concepts and gain their bigger meaning. this is what david did, so I just copied him (lol).
+
+I didn't realise this at the time, but this is essentially how I began tuning myself to the jesus frequency.
+
+---
+
+then, I met terence mckenna. I really liked him. he connected with me, so I began trying to figure out what he was really trying to convey (the thrust of his message). like I have with jesus, I have a few critisisms, but he got me excited about marshall mcluhan. marshall was so very different than the rest. he had a stability about him which I really liked.
+
+(btw, up until I got to valverde, I had not read any of marshall's work. that was my first time.)
+
+---
+
+I have memory of reading about or something to do with tesla when I was a teenager. I did study electronics, but I did not really find an affinity for tesla until I was with raquel and I was reading his autobiography and the whole thing seemed too eerily familiar, and his explanations of his childhood reminded me so much of my own, we definitely had something in common going on. this inspired me and I spent many a stoned moment thinking about him and his work. I felt so strongly that I had such a strong affinity to tesla I believed I was his "reincarnation"
+
+when raquel was angry with me one time near the end of things, she she said something like, "you're not the reincarnation of tesla" (we must have been such huge stoners, this topic came up I guess... lol) -- I remember it created such strong desire in me to prove her wrong. then, some time in 2013, I was reading fhw and someone was asking him about tesla (I think if tesla was alive), and fwh responded by saying that "tesla uh, reincarnated in 2000" -- which was the year I had my brain haemorrhage and I had my "jesus" experience.
+
+so, maybe tesla was a reincarnation of jesus I thought... then, I had my vallecas experience and my left side got paralysed again. and, after that, no matter what I tried, I could not find a way of feeling freedom in my left-side again (cept sometimes during drug experiences). I didn't know that nosebook had paralysed me. I kind of gave up on the whole tesla thing as my left-side becoming activated again seemed grim. quite a few times marcos would inspire in me again tesla thoughts, and with my hope set on andrea reactivating my left-side, I hoped that would be a way for me to finally get the visual capacity and to realise my dream of becoming a modern-day tesla. (wow, hindsight is kinda crazy)
+
+---
+
+lol. so, thank goodness I finally found abraham and they were able to explain reincarnation works in a better way see @[abe](2004-05-01#4). I am likely from that family of consciousness. that's the easy answer. here's where it gets trippy though:
+
+remember in a previous entry @[entry](2018-10-19) I mentioned that I cannot figure out why it seems like I had a another consciousness "spliced" in both during my brain haemorrhage and also in the vallecas incident?
+
+this is just a theory, but what if "michael" is fwh? he often mentioned and referred to himself in the third person as archangel michael. why does he call himself, *former* white hat? think about it a moment. that means he switched sides. if this is true, then that means I will literally be competing against an alternate timeline version of myself. that means I have been trolling myself this entire time! fwh spliced himself into my body and has essentially been helping team nosebook out while I sleep to keep me as pinned down as possible.
+
+I guess vanilla nosebook wasn't enough contrast. wtf man... the thing is, this totally doesn't surprise me at all. I am definitely twisted enough to do something like that to myself. fuck..
+
+what's with everyone playing both sides of the field? I'm constantly giving nosebook the answers they're looking for, abraham is helping them, and even alt-me is helping them too.
+
+whelp, this changes nothing for me.. it's steady as she goes for me.. let the games begin (shortly, I suppose... see next entry)
+
+
+
+
+
 # potential topics
 
 ### -
