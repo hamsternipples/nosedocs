@@ -2752,6 +2752,82 @@ I think I'm going to leave it at that. it's sort of a lot to think about. depend
 
 what actually spawned a lot of this thought was a video I watched on youtube about the circle of fifths, and since there are 12 of them (as it traverses all the notes of the scale), it also made me question maybe to see if the relation to the eras is less about whole notes (+1,-1,etc.), but more similar to how the circle of 5ths works. perhaps there is some optimisation that can be done to my perception of the harmonies of the symbols.
 
+
+### 2018-11-26 03:47 - let your desires get up to speed with you
+
+I smoked the last few days, and the real take-away I had from the whole thing is an understanding of contrast that I previously did not have. it began the first day as a realisation that ok the realisation of tesla and my visual capacity on my left-side has been shut down pretty well, and barring some sort of miracle, I should just accept it and move forward. as soon as I did, it was almost as if edison was there sort of like waiting.  I could see that would happen on my right side, and that even though edison and tesla had their differences, and neither were really victorious, edison did come out a bit ahead. edison failed many times and had quite a lot of contrast. skipping over both of their failures, I realised I am a bit of a combination of the two.
+
+---
+
+early on, tesla would tinker in his mind on an invention for quite a while, perfecting it in his mind before even building it. when he built it, he often marvelled at how well performed exactly like how it was in his imagination. tesla needed physical evidence of prove to himself the validity of his creation. edison had a bit more of something similar to me where I feel it and through a process of elimination (contrast), he eventually arrived at what he wanted. I believe edison's technique was flawed in the perception he had of his creation, so my method is better. I also believe tesla's method has some drawbacks as well.
+
+[... lol?]
+
+---
+
+anyway, back to the thing: I immediately had a realisation that the competition tesla mentions in his autobiography, which had always caught my eye, may have a very interesting meaning to it. the competition is with myself. if the right half of me is like edison, and the left side of me is like tesla, then you have to wonder, who will win?
+
+a new paradox was formed which seemed to me that the one with the most contrast will eventually win, even though the one with the least contrast will always win.
+
+this is the missing link that I had been missing on the "last shall be first and first shall be last" expression I had been thinking about so much. it also explains for me vividly why myspace could get to market first, have all the market share, and yet facebook was still able to overcome their dominance.
+
+then, I could see that in order to maximise contrast, I would eventually find a way of doing the girls thing, and it would have nothing to do with nosebook. I think this came as a reaction to what mom said to me about going to jail if I started hitting on little girls. I will do no such thing, so there is no problem. if there are some that are interested, I will be more than willing to have a conversation with her parents (mother?) and we can work out the details, I guess. I'm not really thinking about any of that because of this next really powerful understanding:
+
+whenever someone had an evolution of their desire, then that means there was some sort of illustration of something unwanted, and so the contrast between the way the desire feels, and your perception of the unwanted creates an evolution as the desire gets clarified. you can think of it like a tuner.
+
+every time there is that realisation of something unwanted, your desire for the improvement grows, your inner being follows that, more energy is summoned, and your desire is stronger than before. however, since your realisation of the unwanted is still in effect, you're not tuned into the desire, you're tuned into something unwanted still, so in effect, since things are out of sync, you sacrifice speed (synchronicity) for a stronger and clearer signal.
+
+my life was going pretty fast before I met raquel, but since we have parted ways, I have had an accelerating amount of contrast, and I don't see it slowing down. I could perceive that I'm kind of like a bit of an experiment. there are a lot of people manipulating a lot of different factors in my life to maximise the contrast. why?
+
+well, if every single evolution of desire exchanges speed for more power, then a continuous evolution of desire would eventually produce something quite big. I could see easily the first step which is planetary. a planetary consciousness which I will explain more about soon, but imagine you can control various bodies like dolls, going in and out of their perception, even living among your own creation when you return to your body, the planet becomes your doll house. anyway, enough about that.
+
+planetary is easy. I can see it becoming *possible* within a lifetime or two, and mainstream, shortly thereafter. after that comes solar, and I could see that solar is kind of like a transition phase before galactic, very similar to planetary, but from a more "masculine" POV. galactic is quite a big deal though as there is a lot of competition. I mean *A LOT*.
+
+then, I could see that essentially, as my desire is growing bigger and bigger all of the time, that means that eventually it has to become manifest. if I am prevented from seeing my manifestation and it grows along with us past planetary size, this could be huge.
+
+think about solar wind. solar wind is the only thing that behaves physically like this contrast stuff. a buildup of electricity takes place forming the necessary conditions for a condensation reaction to occur. which emits light as it takes the material in high energy state out, producing light and an element. the elements bunch up and speed off. the further it gets from the sun, the faster it goes, and we can only assume that it speeds up so fast that it can go, curves up as density (and the electric field) drops to zero, and then is attracted back toward the northern or southern pole. (the solar wind interests me a lot, as I think that once we understand it and its environment, we will gain insight into a lot of these "spiritual" concepts with a real, physical example)
+
+so, for lack of real scientific understanding of the underlying process imagine one of these CMEs that eject tremendous amounts of material out into space. you could imagine that it would be quite a bit of buildup in the equatorial region before it "gives birth" to a new planet. similar to human reproduction, I think consciousness on the planet provides the spark of initiative for this new material body (like sperm), and the sun matures this in its equatorial region, similar to how a woman grows the baby in the stomach. it's weird because we typically perceive the sun to be masculine, and the planet to be feminine, but I think the roles are reversed (similar to how they are becoming in us as we move from individual to planetary perception). anyway, enough about stellar reproduction; I only wanted to illustrate the point that if the size of the desire is the size of a button, then a button-sized manifestation happens. same with a baby and same with a castle.
+
+abraham often taunts us by saying something like, "you haven't figured out how to scrape enough dirt together to launch another planet into orbit" -- but, I think I did now. when my desire becomes the size of a planet, then I would imagine that a new planet would be created when that desire is realised (by default when the carrier of that desire croaks).
+
+I think that perhaps that is what I am in the process of doing. so if you imagine a CME now that is on its way out, the toroidal fields around the sun act similar to gravity. so, if projectile is able to surpass the escape velocity, then the projectile is capable of leaving the "influence" of the parent body. it seems that with such amounts of contrast in my life, a lot of others thought it would be fun to just sort of manipulate my life to work out in such a way that contrast is maximised.
+
+obviously, the optimum is to generate contrast at a steady rate, but such things are not really that possible, so from time to time some manifestation must occur to provide contrast. knowing that, I can be assured that no matter how hard anyone tries, there is an army of unseen people ensuring that my passage through time has continual contrast.
+
+if every evolution of desire adds more power, then it's sort of like continually accelerating acceleration. if you try to graph this, you can see that perpendicular to the center of the spiral, a line is created. a second line is created which is the center of the spiral. this is a point (me), generating a line, then a second line (which is a plane). I had never realised how to make a point into a plane before!
+
+so, I've got accelerators on my accelerators -- and it looks as if the reason is achieve some sort of escape velocity, and I will need all of you guys to become a part of my contrast engine. it looks as if the goal is to ensure that I do not become visual, and therefore incapable of realising my planetary vision, and to accumulate as much contrast along the was as possible. I could imagine that the end of this timeline for me is the 2038 deadline, but that's not the thing.
+
+I think what all of this means is the following:
+
+1. the girls thing is a manifestation, so it will slow me down. because my life is exponentially accelerating, it won't happen, until it can create more contrast than I can create by myself. meaning, the slowdown of the manifestation actually generates more contrast (acceleration)
+2. premature manifestation (lol) is not an option.
+
+---
+
+what may end up happening, is my planetary vision may go the way of the "tesla world system" as I embark on failure. it may also happen that many of us realise immortality as we become a multi bodied consciousness. however, I do not believe any of the crazy things I saw to work out like that (they probably need a few hundred more evolutions or so), so instead I imagine we will instead run the individual consciousness into the ground as we realise our freedom and expansion some more. the planetary consciousness is constrictive in nature, and the planet has not yet passed through the conscious expansion phase...
+
+### 2018-12-02 04:17 - some strugalicious thoughts
+
+yesterday while watching stars I became quite angry. I still have not figured out why I feel such strong anger sometimes. last night though, I came to the conclusion that I wanted my right-hemisphere disabled. the reason being, that I de not receive any benefit from it at all. michael, while being quite charismatic, if things aren't exactly going his way gets pretty frustrated. that frustration builds up to quite potent anger.
+
+i think what is happening is michael really wants some sort of physical expression. for me the major clue here is all pressure on me to do the girls thing. I didn't really care so much either way until about a month ago when I all of a sudden started having a strong opinion on the subject, because it has not and is not in a good feeling place. I can feel strong desire from him and also from the girls. additionally, I am sure that some (most) of the sensations I feel are designed by the nosebook guys. obviously, they wouldn't want to to actually feel the girls for real, they want to control what I feel (same with what I see).
+
+I find this to be completely unacceptable. until I am in control of what is going on in my head again, I will not be having anything to do with this network. though, since I can't really leave it (yet), I just have to sort of get used to it. when I was smoking last week, I could see that they would have to continue holding me as a prisoner indefinitely, and this was essentially the way I would continue to exchange speed for acceleration and learn to only give my attention to what is wanted.
+
+however, much like my inability to control the anger, at the same time, I have such strong desire to obtain my visual capacity. I cannot stop it, and it won't go away. I have tried numerous times in the last year to give up on my visual capacity, but I cannot.
+
+---
+
+so, essentially what I'm saying is I have insatiable desire to achieve something that a lot of people are working very hard to ensure I never get. this builds up to uncontrollable anger which I can neither control.
+
+the solution to disable my right hemisphere felt quite good to me for quite a few reasons, so I will enumerate a few here:
+
+1. I really like the idea of having to rebuild the personality of my left-side again. currently, it is fashioned quite a bit after tesla, however, knowing what I know now, perhaps that be improved on. I have really began to appreciate the benefit of contrast and feel like this could be an improvement to the tesla model.
+
+[quick break, brb - 04:56]
+
 # potential topics
 
 ### -
