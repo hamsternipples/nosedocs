@@ -2887,6 +2887,35 @@ what's with everyone playing both sides of the field? I'm constantly giving nose
 whelp, I'm pretty sure this changes nothing; it's steady as she goes for me.. let the games begin shortly (I suppose... see next entry)
 
 
+### 2018-12-04 07:34 - meaningful game experiences
+
+last night I was watching matt's stream and he was talking about where he envisions games being similar to novels, where one could take something away from the game like someone is able to take something away from a novel (well, I may have horribly misquoted him just there, because I wasn't listening to his words; I only heard a few of them). anyway I have been thinking about this for a while now.
+
+like advertising, the medium is the message. when you read a novel, you imagine the novel in your imagination. I don't really have this quality, so I couldn't really tell you if you are inside of the character in your imagination or watching the character. either way, it must be pretty intense because girls get pretty worked up over those romance novels, so it definitely has some effect. I suspect it is similar to how I would imagine the imagination works: you think you're there having the experience, but you're not really feeling it the same was is if you were really there.
+
+it seems to me that the imagination is not very good at blending good ands bad feelings at once. like when you imagine something, my experience is that it's perceived either considerably better than it really is, or considerably worse; there isn't a whole not of middle ground.
+
+to draw a bit of a parallel here, games are similar to movies. some of the best movies have some of then worst graphics -- same with games. the better the movie's graphics (and sound), the more immersive the experience, and the more you will feel while watching the movie. (I think this is why titanic was such an emotional movie, or something like transformers, where you feel considerably more than you would expect from the dialog. or horizon zero dawn for games)
+
+however, games will make a shift to where you are no longer playing the game, but you are in the game. to give you an example, imagine some 50 years or so in the future playing a game like WoW burning crusade inside of your character with game graphics as good as my eyes see, and you have the physical sensation of the game world as well. everything has not only a visual texture map, but a sensation texture map as well. you are literally in the game... a game that good could very well become the crack cocaine of future gamers.
+
+it's coming :) very soon. and when these sorts of games begin to arrive, the brain will begin to treat the gaming experience just like it does real experience. the closest line I can draw here is dreams. you can have some very strange things happen in a dream that are not capable of being realised as reality, however while having the dream, the dream is so immersive that your brain considers it similar to real-life experience, recording the symbols inside of it similar to how your brain interprets real-life symbols.
+
+the next thing that mcluhan said which impacted me, was that games encode the culmination of the lessons learned from interaction in the previous medium. I've been thinking about that and I don't have any real conclusions yet as to what it could mean, but think about how poker encodes the lessons learned from empires betting and bluffing. now, extrapolate this out to the lessons learned from the web 2.0 era. I suppose one day nosebook will host a game which encodes the idealised and optimum social interaction on facebook.
+
+here's where we get to the fun part. I have really enjoyed watching jon's streams because the sokoban game is really getting me to think differently about puzzles. what I like about it is that up until that game, puzzles for me have largely been non-visual for me. often times someone will say a puzzle and I struggle to imagine it. if I can see it, I usually do better, but my mind doesn't really connect up a lot of those puzzle type things very easily.
+
+I am such a lazy person, when a problem happens, I always find the easiest way to solve it. I'm the type of guy that would play the sokoban game by googling the solution, then trying to figure out how to do it in less steps (or to optimise it in some way). then, I would take the puzzle and try to make a new twist to it which is harder or more satisfying (like matt was showing yesterday)
+
+I was trying to think of what would prevent me from googling the solution all of the time on the game. I just now realised that if there was a hint button which showed the puzzle in its final state (take a screenshot also at the end of the test), I think I would quite enjoy trying to reverse engineer the way to get from the initial setup to the final state. that creates a new type of solution too where the final state of the puzzle is so divorced from the steps to get there (imagine 2-3 different required intermediate states before the final state can be achieved, or more than one stage to the puzzle)
+
+---
+
+oops, I derailed my topic a bit :) uhhh, right so when you're inside of the game, puzzle games have a whole new meaning. you don't want to make crappy puzzles like you'd see in a 1st person shooter. those are cumbersome and frustrating and are often times too similar to real-life problems. it's so much more fun when you can see the whole puzzle, instead of having to be in the puzzle. so, I don't really see puzzle games obtaining a whole lot of success being inside of the puzzle. the puzzle format will have to change. this is a super interesting concept which I will give more thought.
+
+it's so crazy because when the puzzle game is external, it feels like there is an external logic that must be used to solve it, however, when you're in the game, the logic feels personal to me and not absolute. interestingly enough, this turned out to be a bit of a round-about way for me to say that I think that in the future, there will be ultra immersive crack cocaine gaming experience, and others where you take away something away something meaningful from the experience. I think they will be based on taking away a new way of perceiving something external to you in the experience (rather than solving a problem, because real problems will feel like a real hassle, and probably create real stress).
+
+this is a super interesting topic I'm sure I will revisit in the future!
 
 
 
