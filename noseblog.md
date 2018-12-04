@@ -2917,11 +2917,29 @@ it's so crazy because when the puzzle game is external, it feels like there is a
 
 this is a super interesting topic I'm sure I will revisit in the future!
 
+### 2018-12-04 08:48 - briggs on deck
 
+in a previous entry @[entry](2018-12-02 13:26), I briefly mentioned "briggs on deck" -- and that kind of started to think again about what that could mean after my new understanding of what could be happening. when I first read it, I did not think of the obvious answer: anya briggs, but instead looked up what briggs means on urban dictionary, which has the definition as, "an extremely fierce hot and desirable male who is excellent at anything and everything." I didn't really think much at the time, figuring it was once again fwh mentioning how awesome he is (lol) however, after all the insanity started, I thought maybe that it was a reference to me, and the rough spot I've been in... I've always had serious problems with that because I really do not want to work for nosebook, or have anything to do with them, really. I found it really hard to believe that both they would change in a way which would make that possible, and how an unhappy journey could turn into a happy ending.
+
+another thing to note is that the first 28 years of my life things were pretty easy. in fact, it feels like the first 270°-90° of a sine wave: from peak to peak looks like the symbol used to denote an integral in maths: ∫. it starts off relatively slowly, but gains momentum quite quickly. so, around 14 years old, I would have been making the most mental progress. around 24 things are really beginning to taper off as it reaches its peak at 28 (2011-2012) and the direction begins to reverse. fwh says that I have until 2038, which is when I'm 55-56. I thought that was a fun thought exercise. I am certainly in a pretty slow velocity moment in my life right now, but I kind of see it speeding up.
+
+having my alt-self trolling me, I have begun to settle into the impossibility of achieving my visual capacity. there is no way that I will be able to achieve it if my alt-self is helping them to keep it away from me. there is an interesting dynamic I became aware of this morning too: for now imagine that fwh has all of the details of how to release his consciousness from my body and put it into a clone of me, and that neither of those are non-issues... think of how this would work out in reality now: presently no one on this planet has their own visual capacity. mine is disabled, the guys at nosebook don't have their own; they all use mine. even if fwh found his way into a clone of my body, now nosebook will have to allow someone to use their own visual capacity to continue with the enhancement of their system. they probably don't want to give someone the ability to use their visual capacity.
+
+on my end, I've grappled with the realisation that there's no way I'm going to out-manouvre a future version of myself. I can pretty much expect them to continue to have solutions to any advances I make, and I think that's on purpose.
+
+---
+
+if my theory is correct, right now the path of least resistance for them is to continue to use my  I would imagine contrast to continue to increase in such a way that the next logical step for them is to give fwh a body. I think this is the event called, "briggs on deck" and I think that when I finally get michael out, it's going to begin that sharp rise upward on the integral curve.
+
+when michael gets a body, I don't believe it'll be possible for them to control his visual capacity while he's awake, like they do mine -- so they'll probably have to let him go with it. I presume they'll still be able to use both of ours while we sleep.
+
+with michael no longer working against me, it may become impossible for them to control mine either... we'll see I guess. it could also go in phases where at first my left side is disabled, so even though my visual capacity is black, I still perceive things in it like I do in my imagination now, so maybe we'll reach a day where they *want* me to have a visual capacity so they can at least see an interpretation of what I perceive.
+
+there are a few other interesting implications to this I may visit in the future.
 
 # potential topics
 
-### -
+### - so, what is "in the game?"
 ### - the bso, LOA and regulation (part three)
 #### resulting sects (subsets) of christianity
 ### - conditional living and physicality
