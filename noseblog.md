@@ -2937,6 +2937,38 @@ with michael no longer working against me, it may become impossible for them to 
 
 there are a few other interesting implications to this I may visit in the future.
 
+### 2018-12-06 23:42 - contrast, the "perfect guy", and the way I see this happening
+
+yesterday when I woke up I had a thought about patricia pop into my head. as I have been thinking about this whole michael thing, I have noticed that I really desire that michael gets a body. there are many different reasons, for exaple... I have noticed that often times when abraham is talking with andrea in the workshops, they often make a snide remark taunting her by mentioning that she can have it all "having it all", and "getting the guy". I don't know how to explain, but my sense is that they are building desire in her.
+
+imagine this scenario: somehow it becomes possible for michael to begin residing in a clone of my body. now, there are essentially two versions of me. one of them is the perfected version from the previous iteration, michael (fwh) and the other version is normal physical me (vulcrum).
+
+---
+
+when I was reminded of patricia, I was reminded that she really wanted the perfect version of me. I was not good at sex or anything really. actually, I think if my memory serves me, it had been quite some time since I had sex previous to her, and she would have also been the first *real* girl, too (non-prostitute). I had quite some learning to do, but patricia did not want me to learn with her. she wanted me to be the ideal guy she had conjured in her imagination. she told me pretty plainly that she didn't want to practice with me and I needed to find somebody else. I think it was the same night that raquel sent me an email asking if I wanted to come visit her.
+
+raquel was wonderful because she didn't mind that I wasn't perfect. she just sorta liked being with me and I liked being with her. it wasn't until later though (not sure what was the turning-point) that she began to try and make me into the perfect guy in her mind. around the time all of that happened, things kind of fell apart.
+
+it doesn't matter if it's raquel, zaryn, marcos, augusto, or nosebook: when expectations are put on me, I tend to fall very short of them. it is one of the most consistent patterns of my life. in fact, I can guarantee you that if you expect me to be or do something, you should make sure it's a part of my point of attraction, for it to even be possible, and you should definitely *not* expect me to do it exactly the way you want me to do it. often times, I prefer to do things my way. if you don't like my way of doing things, find and erik to hire... LOL
+
+---
+
+anyway, what I'm getting at here is the whole perfect guy thing is a huge wet-blanket for me. ever since my brain haemorrhage, my life has been the art of turning difficulty into success. even when I had a lot of money, I still preferred to do things the hard way. I seem to really enjoy the difficulty.
+
+this section of my life is, by far the most difficult one that I have had to go through (not physically, but mentally, as I've had to release a lot of resistance in the process). I do not believe that this accelerating contrast will ever wane either. it'll likely only accelerate just like everything else in my life.
+
+so, it has become pretty clear to me that I not only have to embrace the contrast, but see it as beneficial as well. like I mentioned in a previous entry, if the girls thing ever happens, it will only be (and I assure you there are a lot of people making sure of this) when the girls situation is actually more contrast than I can achieve by myself.
+
+I like the idea of the girls being in on the contrast as well. contrast means that you become aware of something unwanted. later on, it barely even affects me in the sense that I spend little time dwelling on the unwanted part and turn my attention as quick as possible to what is wanted.
+
+---
+
+I think I would have let andrea down a bit, as I'm sure that I would not have been able to meet all of her expectations. you could imagine how impossible it would be for any one guy to satisfy her. so in this way she falls into the patricia category for me. I definitely would not have been able to meet her expectations, nor would I have even tried.
+
+instead, I prefer more the beginning relationship I had with raquel, before I became expected in her mind to be the "perfect guy".
+
+to be continued...
+
 # potential topics
 
 ### - so, what is "in the game?"
