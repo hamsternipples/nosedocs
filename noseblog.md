@@ -2969,6 +2969,34 @@ instead, I prefer more the beginning relationship I had with raquel, before I be
 
 to be continued...
 
+### 2018-12-07 01:59 - the two factions?
+
+I kind of see two different sides forming: on one side you have team nosebook / perfection / tesla / imagination -- and on the other side you have team kenny / contrast / edison / communication.
+
+these represent in my mind the two different forms of perception. I wish I could say that either side fits perfectly in the symbol, but it does not. for example, I put nosebook and tesla in the same category, yet tesla talks about perfecting his inventions in his mind and then having them work properly the first try. clearly nosebook does not have a conceptual understanding of how their system works and is kind of learning it as they go through trial and error. however, their trajectory is toward tesla's capacity, which is why I put them in the same sequence as imagination.
+
+unfortunately, my trajectory is the opposite. I am going from someone quite capable of anticipating a lot of things to having to learn by trial and error. my specialty is more in communication than the imagination. currently team nosebook is all about closing, disrupting, and controlling communication while expanding the imagination. I'm currently in the closing and disrupting the imagination while clarifying and opening communication. although I do believe the future holds a role reversal (eg. communication -> imagination, and imagination -> communication), we are not there yet, so my categories remain with team contrast expanding communication, and team nosebook expanding the imagination.
+
+---
+
+I also want to note another very important point for me between patricia and raquel: raquel liked to smoke weed and do drugs. although patricia was intellectually much more "perfect", it was kinda a big bummer for me that she didn't like drugs. I still had a lot of my mind to open, and that was kind of one of those things that I knew that I would be doing a lot of in the future, and to try and down-play the difference of opinion would only lead to problems. I absolutely must be able to continue to expand my mind, and for me, right now, drugs are the easiest way to do it. I don't have access to my imagination yet, but as soon as I create the device which can unlock that for me, I believe that will be when the role reversal will begin to take place. when I can begin to communicate visually, it will force team nosebook to come up with a new way of scuppering me/us.
+
+---
+
+I believe this dance between expansion of imagination and communication for the *individual* will become the new "meta" for this planet in this new era. if you are familiar with mcluhan's work, this will seem quite obvious to you as well. previously these same expansions existed in the "group" symbolic of the picean era.
+
+I will write in the future about these expansions of communication and imagination as an extension to mcluhan's work.
+
+---
+
+if you think about contrast as exchanging speed for more power (acceleration), then the natural unfolding of any manifestation is a gradual process, whereby the manifestation comes when it is so obviously the next logical step, it doesn't even feel like a jump. my goal is to bump up the level of contrast to be so great and so steady, that there will never be a manifestation that is a jump -- meaning that speed never gets out of hand, or too fast. I like to visualise contrast as a bounce, so if you hit contrast head-on, it creates a negative velocity. the worst non-negative velocity is a bounce at 45° angle. if the number of bounces can be increased, and the angle reduced as close to 0° as possible, what you end up with is a curve, but because it's constantly accelerating, it's really a spiral.
+
+you can imagine that if you have a tube, and let's say each side represents the absolute extremes of any one thing, you don't want to go bouncing down the tube greater than 45° angles because it's inefficient (you spend more time traveling between the extremes than you do forward). at the very minimum, you want to be bouncing down at 45° or less, because this means there is more progress forward than laterally. you can also imagine that as the angle reduces below 5°, the distance traveled between bounces becomes quite long. this is boring, and means little contras is happening, therefore little acceleration is happening. so, like water will do in a long tube, it'll eventually make a spiral accelerating the water more toward the middle of the tube. the extra dimension added by going with the flow naturally makes the whole thing run smoother.
+
+team contrast is the water swirling around the extremes of the pipe, and team perfection is going quite fast down the centre of the pipe. to understand this concept, study the function of the tesla turbine.
+
+to be continued...
+
 # potential topics
 
 ### - so, what is "in the game?"
