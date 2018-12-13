@@ -2997,6 +2997,20 @@ team contrast is the water swirling around the extremes of the pipe, and team pe
 
 to be continued...
 
+### 2018-12-12 21:21 - reaction and next logical step
+
+I've been thinking about this whole next logical step thing -- because if the rest of my life is going to be next logical step, I should try and identify things in the past that were also the next logical step. as I thought about it, I realised that nearly everything, (even the big things) have been a next logical step for me.
+
+recently though, I have been saying that my life has been a long series of chain reactions, and I've also said that about nosebook as well: they too are in the middle of a long chain reaction with me too, with nearly no end in sight.
+
+reaction though, as I'm coming to realise is also the next logical step. the only difference is you have less time to think about it, so it's more your reactionary logic than your contemplative logic. (slow-thinking vs. fast thinking) the irony in all of this, is these guys have me head set in such a way that I am not really capable of doing so much fast thinking. they prefer I do slow thinking so they can anticipate my moves. perhaps now I over think stuff now as a result, but it feels to me like I'm still in permanent reaction mode (with slow thinking response).
+
+anyway, the next logical step is an interesting concept because logic is something that seems "normal" or "correct" to you. so this is largely a two part thing: the weights applied to each step option (determined by your logic), and then the perception (or practiced belief) of what is normal.
+
+logic is interesting. I never really thought about it in such a way.
+
+another thing I want to point out is that the next logical step is always the most optimised contrast as well. it's not a jump, but a step. it is always the best path. there are many paths forward, but the step is the shortest. it's possible that the next step is not the fastest, but it is the most energetic, because you have more power going into whatever the next thing is.
+
 # potential topics
 
 ### - so, what is "in the game?"
