@@ -3011,6 +3011,20 @@ logic is interesting. I never really thought about it in such a way.
 
 another thing I want to point out is that the next logical step is always the most optimised contrast as well. it's not a jump, but a step. it is always the best path. there are many paths forward, but the step is the shortest. it's possible that the next step is not the fastest, but it is the most energetic, because you have more power going into whatever the next thing is.
 
+### 2018-12-12 21:39 - on becoming the next universe
+
+it's crazy how that was something that I was contemplating already before I ever smoked, but it's really been on my mind quite a bit since then. there are a lot of things to be considered if that is true (and I'm going for a 99.999999% truth possibility)
+
+first, I don't believe that I am the only one who will ever do this. I think I'm just the first. that would be like a woman saying that after her first child she's all done; no more children are able to come out of her any more. if I think about it more logically, it probably signified the middle of the waveform for this universe. I think it means that from now on, this universe has begun and will produce many more universes.
+
+second, if this is true, in order to keep my speed bearable to others, constant contrast will need to be applied, both making what I see with my eyes more vibrant, but also slowing me down a bit. I believe there will be a lot more people going quite a bit faster than me. I only serve as the platform upon which to jump. think like a moving car. if you throw something out of the window, it's going to go the car's velocity + the velocity imparted from the inertia of the thrower.
+
+it's kind of a crazy thought to think that while this whole time I had been fretting about this whole thing about the government never going to let me go and allow me to be me for the rest of my life, is really just looking at the immediate timeframe. you can clearly see how you poor little people have unfortunately no way of really getting off of this (cept death). we are going to become the new meta, and there's nothing anyone can do about it. just sit back and enjoy the ride as we go from individual to planetary consciousness, then up to solar, galactic, etc.
+
+unfortunately, there's no way to stop this, and I will eventually assimilate you all as we become the new meta. there are some options which I will go over shortly, but I remember quite clearly thinking that what what seemed humourous to me at the time was to jump right to the manifestation of it and not enjoy the journey, as some sort of cosmic irony.
+
+to be continued..
+
 # potential topics
 
 ### - so, what is "in the game?"
