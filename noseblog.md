@@ -3025,6 +3025,47 @@ unfortunately, there's no way to stop this, and I will eventually assimilate you
 
 to be continued..
 
+### 2018-12-13 14:16 - what kind of options are there??
+
+so, I've been thinking about how I have essentially hijacked the entire planet (in a sense, no because if it weren't a part of people's desire, you wouldn't have attracted me in the first place) and it kind of disrupts a lot of things and nullifies a whole lot of people's short-term plans.
+
+the obvious thing for kenny to do is the same thing he has been doing since he was 16 and this whole ordeal started, and that is to continue believing the most unbelievable stories this other guy can come up with. because my focus is not on any specific manifestation, and instead on getting as close to a perfect of a contrast curve as possible, for me, you can now imagine that the intra-dimensional-nosebook (inb) guys are working hard to ensure that I am always guided toward the manifestation (or lack thereof) which produces the most contrast per time unit (let's say their machines can tune into a time, dimension and detail level 1 year into the future, then they would always pick the optimum contrast a year out -- which is the optimum outcome for their machine's ability to tune into the future).
+
+they will soon find that the beneficial effect that I have is one to roll with, and utilise the time I am here best to their advantage. the two (and right now I only have two because I cannot yet see further) possibilities I see are the following...
+
+#### a brief introduction to the problem
+
+I am simply a very good platform upon which michael (sekmet) can operate very well. we have a symbiotic relationship where he protects me. I am in that regard then, quite pure and innocent. this is important because, that means I'm very naïve. I (vulcrum) can believe almost anything. however, as you can see, believing just about anything hasn't served me very well. usually, my naïvaty is not a problem because I have so much energy and speed, that I just blast right on through through to the next thing, and in the wake of my naïvaty, huge desire is created to protect me from those wishing to exploit that kind of power that comes with raw belief like that. they see the opportunity to both protect me, and to feed me their own belief systems and see what happens when I believe their systems.
+
+when these sorts of exploitation events happen (take the vallecas one as the most visible example), a huge desire is built to make the manifestation of vulcrum's polar opposite: saturn. somewhere I have inside of me the constructed personality of saturn, as a protection mechanism for vulcrum (cause he'll believe anything). this is why, as things began to make less and less logical sense, the part of me got activated which must make logical sense and understand everything. since I became aware of the external saturn (nosebook), my virtual saturn has been activated in response to that.
+
+saturn is very thick headed. he cannot move unless he understands or feels safe doing so, this is a very feminine quality, which makes saturn in the most pure form, the most masculine in expression, and the feminine in implementation. you can see how this has become increasingly the lens through which I actuate now. the continual pressure will continue to exacerbate that.
+
+#### 0. remove the limitations on my mind
+
+I have much doubt that this will be the chosen path, because it doesn't really make a very big splash (and you've got to remember the players we've got going here). probably, I would find refuge in my visual capacity, spending more and more time there constructing bigger and bigger ideas which will never see the light of day because the world will not be up to speed with them. (tesla) however, I will revert back to my very lovable self, which you all fell in love with, the naïve and easy-going vulcrum with the power of michael.
+
+#### 1. remove michael from my head
+
+if somehow they were able to take michael out of my head and give him a body, he would instantly become the manifestation you all were looking for. he would be good at sex, raw power all over the place and essentially unlimited amounts of beneficial energy will pour into the nosebook establishment, as you guys figure out how to work with his energy (zaryn, marcos). contradicting his energy will mean constant contrast, but will eventually work out for the better (for everyone).
+
+I will experience even more darkness in my head than I do now. remember how I was complaining about not having any light in my head, but then figured out how to begin making light in my head on the other side? well, it'll force an adaptation in me which will force me into full-time saturn. I will become the rerealisation of saturn as a method of protecting vulcrum's "innocence".
+
+#### 2. find a way of getting the world up to speed with me
+
+as long as michael is inside of me, we will be going faster as faster. there is nothing anything anyone can do about it. it seems I have already achieved escape velocity back in 2012, and have continued to accelerate further. that manifestation is going to happen no matter what.
+
+in a previous entry I mentioned how time splits are possible -- and that is when two very strong desire's are contradicting in such a way, that they both must manifest. the corollary to that is that resistance must increase in such a way that it must withstand the increasing power or the opposing desire.
+
+it doesn't have to be that way though. I believe that contrast can increase, not as a product of resistance, but as a product of diversity. that realisation is huge. truely monumental.
+
+I will in the future write more about this, because I think this will be the chosen future for us, but the bso could make serious bank by implementing a system which benefits *everyone* (including me). there are no downsides to the system, it will make everything easy and will benefit the planet so enormously.
+
+---
+
+whatever the manifestation is, doesn't matter; as long as it's perceived to be the next logical step.
+
+
 # potential topics
 
 ### - so, what is "in the game?"
