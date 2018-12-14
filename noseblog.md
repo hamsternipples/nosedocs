@@ -3025,7 +3025,7 @@ unfortunately, there's no way to stop this, and I will eventually assimilate you
 
 to be continued..
 
-### 2018-12-13 14:16 - what kind of options are there??
+### 2018-12-14 14:16 - what kind of options are there??
 
 so, I've been thinking about how I have essentially hijacked the entire planet (in a sense, no because if it weren't a part of people's desire, you wouldn't have attracted me in the first place) and it kind of disrupts a lot of things and nullifies a whole lot of people's short-term plans.
 
@@ -3065,6 +3065,25 @@ I will in the future write more about this, because I think this will be the cho
 
 whatever the manifestation is, doesn't matter; as long as it's perceived to be the next logical step.
 
+### 2018-12-14 16:13 - first realisation of a universe
+
+so, one of the reactions I had to the @[entry](2018-12-12 21:39) was the question how does a universe reproduce? I just like anything, contrast causes a desire in you for an improvement, nothing new about that, and then LOA becomes immediately that improvement. then, (optionally) you can find a way of getting up to speed with that improvement, and you begin seeing its manifestation, first as thoughts and ideas, but most of all, as a feeling of it, and an increasing knowing of its arrival.
+
+so, all I have to do, is begin thinking about transformations and improvements that can be made to this universe. I have begun to separate out the symbol from its expression, by beginning this activity. to demonstrate, we will do one now.
+
+recently, I wrote on a sticky the idea that I would find it interesting/humorous to create a universe, in which I would conceive it would not be in the creatively rich environment of young girls, but instead continue on as I am now in the constant awareness of the reality nosebook believes I should be living (or rather as their reaction to reality I am living).
+
+let's start with that idea. now, in this other universe, we will only have the human race. no other alien races exist, and we will try to anticipate its performance in that environment. in reality though, it is much more likely that many alien races came together with their knowledge and constructed an organism which would (on this planet) evolve into the most dynamic tranceiver of frequencies. this would be (obviously) to create a receptor for the "soliton of improbability". something which scales from primate-like behaviour all the way to super-human capability (determined by the frequency).
+
+this is important, because conceiving the idea is pretty easy. becoming the realisation of it is something entirely different. obviously, along the way toward the realisation of it, means that the speed of the manifestation needs to rise to surpass the escape velocity of the universe. it seems logical to me that this planet will shortly become a star, and one of the ideas I had was to make the four inner planets all into stars, and we become a quad-rinary star system each with their own planets, then, later a galaxy center, etc. obviously, in order for this to be possible, you will need an organism which can scale like that, and the human race seems capable of achieving this goal.
+
+back to the universe conceived in the image of nosebook. a lot of how this universe will turn out will largely be determined by the environment in which it is conceived, and therefore the desire which was born out of those circumstances.
+
+let's say that maybe I want to jump quickly to becoming a global consciousness, and find a way of making clones of myself. I become the first human to reside in (not just visit) more than one body. this would make me begin to have more of a global consciousness. obviously, this is the future where we begin to construct our world similar to how it is a dollhouse. likely though this is the next era and should not be rushed. I will already become a global consciousness with each new dimension shift that is coming. (more on that some other time)
+
+these are some of the options that are opening up for me. because if I become a global consciousness by interacting with lots of different people through my clones (one way for them to make a profit), or by going up a few dimensions with you guys and merging my thoughts with your mind in the upper dimensions.
+
+you know what... I want to think about this a bit more before going further... I'm noticing some new things I had not before. I promise I will write more out shortly, as this is helping me to process a pretty big idea.
 
 # potential topics
 
