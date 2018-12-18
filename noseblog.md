@@ -3126,6 +3126,52 @@ I would imagine there are quite a few people out there in the ethers trying to r
 
 bask in the irony a moment :)
 
+### 2018-12-17 20:51 - the impossibility train has left the tracks
+
+one of the main things that I mentioned in the first part seemed to have gone completely under the radar. I was trying to illustrate how people pushing against me has only caused things to become nuttier and nuttier. now that I'm in the business of building a universe in the image of nosebook, I've been thinking a lot about how it would be. the thing is, we both are very similar in hew we perceive things. take these examples:
+
+#### perception of strength
+
+all of this time I've been learning that I don't need to take any action because the energy behind me is so strong, it's literally unstoppable. the military/industrial/american mindset is quite similar. they think they just use enough force to ensure its success. eg. we are the strongest, and therefore they will bend to our desires. I have a similar perspective, but I believe that some of my opinions is in fact stronger because they come with such a long train of contrast which helped to arrive at the conclusion, I am sure I am right.
+
+#### perception of rightness
+
+their perception of rightness is rooted in pattern. it's easier to see this in the form of discovery. they shoot the arrow somewhere they want to go, then try to paint the target around the arrow. I shoot the arrow, look where it lands, then expect that is the most optimum location, and then I go on from there improving. we both paint the target around the arrow, but they pretend like they meant to hit where it landed, and have to prove their destination as optimal, otherwise they may feel their landing is inferior, and they have to be the best or most right.
+
+#### desire to be the best
+
+I love optimisation challenges, and I also like imperfection. these are actually a good team, because perfection
+
+optimisation toward some sort of better fitness is fine, because then you have parameters with which progress toward optimum can be measured. this is micro-optimisation. true (macro-scale) optimisation is actually rethinking the thing from a new perspective and taking a whole new approach.
+
+understanding that real progress takes place when things are seen and improved upon from a different perspective. this is diversity; lot's of ideas, each better than others, but no single one is "the best". the diversity creates specialisation and more chances for new things to occur. in this sense, everything is imperfect. in fact, the little idiosyncracies are what make the thing special. there is no best.
+
+#### desire to go the fastest
+
+there is a fastest though, and it's not immediately obvious why it's the fastest. I'll make an analogy though: imagine you have $100 in the bank. you can invest this money and get a return on it. this is similar to interest, but I'll explain it backwards: you invest the money and immediately you get a 1% return on it every day ($100 * 100 days = $100 interest).
+
+if you leave that money in there a year, you come back to a whole lot of money, and for most, that's good enough. however, you notice that if you withdraw the money each day and reinvest it, the fractions add up quickly. so, now you go through the effort of reinvesting the money each day, as it seems to add up quite nicely in the long run.
+
+that effort is thought, and reinvesting is the contrast. so, if you take that example, you can see that lots of small payoffs eventually turns out to be greater gains.
+
+it turns out, the fastest way, is the one with the smallest *individual* payoffs.
+
+#### perspective on conflict of thought
+
+if you have one thought that goes one way, and another thought that goes the opposite way, there is a total movement of 0, but potential energy. contradictory thought is nothing more than potential energy.
+
+I am one of the most open minded people I know. I often times entertain thoughts which make no sense (must drive the guys at nosebook crazy), and I love to explore different mental landscapes to see how they feel. I have stored in my head (am resonant to) so much contradictory thought -- which means I have enormous potential energy.
+
+the logical thing that the mind does is to assume that its way is the correct way and all others are wrong. this is normal. everyone sees through their perspective and it's right, valid and the best. other perspectives do not need to be eradicated though, for they simply provide the potential energy and then environment in which a new concept can be born. a new way to think about something.
+
+so, it turns out, eradicating thought, doesn't really happen; it just increases the potential energy to a point where the diversity can produce an improvement.
+
+---
+
+I'll explore these differences more in the future, as I'm beginning to compare all of the understanding I've gained from mega-desire growth growth growth ultra dominator always-right michael, to my present circumstances.
+
+cause, you may not believe me but I have quite some experience with his antics by now, and we've figured out how to cohabitate the same body peacefully. 
+
 # potential topics
 
 ### - so, what is "in the game?"
