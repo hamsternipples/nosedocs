@@ -3073,9 +3073,9 @@ so, all I have to do, is begin thinking about transformations and improvements t
 
 recently, I wrote on a sticky the idea that I would find it interesting/humorous to create a universe, in which I would conceive it would not be in the creatively rich environment of young girls, but instead continue on as I am now in the constant awareness of the reality nosebook believes I should be living (or rather as their reaction to reality I am living).
 
-let's start with that idea. now, in this other universe, we will only have the human race. no other alien races exist, and we will try to anticipate its performance in that environment. in reality though, it is much more likely that many alien races came together with their knowledge and constructed an organism which would (on this planet) evolve into the most dynamic tranceiver of frequencies. this would be (obviously) to create a receptor for the "soliton of improbability". something which scales from primate-like behaviour all the way to super-human capability (determined by the frequency).
+let's start with that idea. now, in this other universe, we will only have the human race. no other alien races exist, and we will try to anticipate its performance in that environment. in reality though, it is much more likely that many alien races came together with their knowledge and constructed an organism which would (on this planet) evolve into the most dynamic transceiver of frequencies. this would be (obviously) to create a receptor for the "soliton of improbability". something which scales from primate-like behaviour all the way to super-human capability (determined by the frequency).
 
-this is important, because conceiving the idea is pretty easy. becoming the realisation of it is something entirely different. obviously, along the way toward the realisation of it, means that the speed of the manifestation needs to rise to surpass the escape velocity of the universe. it seems logical to me that this planet will shortly become a star, and one of the ideas I had was to make the four inner planets all into stars, and we become a quad-rinary star system each with their own planets, then, later a galaxy center, etc. obviously, in order for this to be possible, you will need an organism which can scale like that, and the human race seems capable of achieving this goal.
+this is important, because conceiving the idea is pretty easy. becoming the realisation of it is something entirely different. obviously, along the way toward the realisation of it, means that the speed of the manifestation needs to rise to surpass the escape velocity of the universe. it seems logical to me that this planet will shortly become a star, and one of the ideas I had was to make the four inner planets all into stars, and we become a quaternary star system each with their own planets, then, later a galaxy center, etc. obviously, in order for this to be possible, you will need an organism which can scale like that, and the human race seems capable of achieving this goal.
 
 back to the universe conceived in the image of nosebook. a lot of how this universe will turn out will largely be determined by the environment in which it is conceived, and therefore the desire which was born out of those circumstances.
 
@@ -3084,6 +3084,47 @@ let's say that maybe I want to jump quickly to becoming a global consciousness, 
 these are some of the options that are opening up for me. because if I become a global consciousness by interacting with lots of different people through my clones (one way for them to make a profit), or by going up a few dimensions with you guys and merging my thoughts with your mind in the upper dimensions.
 
 you know what... I want to think about this a bit more before going further... I'm noticing some new things I had not before. I promise I will write more out shortly, as this is helping me to process a pretty big idea.
+
+### 2018-12-17 18:34 - on impossibility
+
+I want to start out by remembering when I was a lot younger when I first had an awareness of the "impossiblity" of my life. I don't remember if it was before or after the brain haemorrhage, but it had to have been before, because I was still in college, I believe.
+
+next, I would like to pay a bit of attention to the guys at nosebook. they *still* have not found a way to manipulate me into doing what they want me to do. I think one of the main reason why this has been an impossible task for them, is because they are trying to make an impossible reality seem plausible to other people. thing is, my reality is already so impossible as it is, they cannot outdo the weirdness of my own reality.
+
+so, when these impossible situations come up, it seems like some people seem to push against them. for example, it may seem impossible that a young girl falls in love(?) and wants to be with 32 year old guy. no problem. how about finding out that he was never trying to be with young girls anyway. still not improbable enough? how about many young girls... ok, still not improbable enough? what about a guy that feels more capable of figuring it out himself and doesn't want others' help. ok, now he thinks he can conceive of and let LOA give birth to a new universe, no, still not improbable enough?
+
+their best explanation for why I'm getting shocked is so improbable considering the unique set of improbabilites that got me here. some unknown force pushing against anything that excites me is essentially continuing to push the limits of what sort of level of improbability I can obtain for my life.
+
+the next thing I want to note is that "identity" of improbability will not die. think of it like this: some mega attractive force is pulling me toward something very "meaningful" and every attempt to try and devalue that meaning is only causing problems.
+
+I have often noted that highly structured people like to feel like they earned something or worked really hard for it. I believe we could easily realign that concept to replace "hard work" with impossibility.
+
+when I was creating tuenti, I often reminded myself of how amazing it is to considering the impossibility of my meeting zaryn, etc. etc. to ending up in spain to create (what I thought then) the next social network which would dethrone facebook and stuff. I was constantly awestruck by the enormity of what I was doing and the radical change that I could see happening in the country as a result (everyone was on dialup when I got there)
+
+---
+
+I want now to switch gears and talk about impossibility of relationships. it has been wondering to me why it seems like this whole girls thing feels like an impssibility, too. I came up with a few theories:
+
+1. michael's effect on the globe will be so substantial that you can imagine that if he were to engage in a relationship, we would be instantly successful. it's totally guaranteed. however, one he is gone, me you and everyone else will go back to living our lives how they have been. that energy will recede, and I believe that females will retain a lot of the visual capability that he imparted. I believe the distance we travel without having the manifestation of a relationship will create a larger "vortex" and therefore a bigger manifestation. put simply, the longer we wait, the more the of an evolution the female species will receive. I believe that is one of the forces extending through time making this an impossibility right now.
+
+2. we will assume the perspective of michael now and see that the future is creating a new universe. one of the things I like to think of is the contrast curve which will be encoded into the universe, much like a child's dna has instructions about how to go from a very small cell to an adult through a series of transformations. if you think about the timewave/i-ching thing as a series of linear hexagons creating increasingly accelerating novelty, like you would consider energy traveling through the loops created in the folded dna, you could consider that you would want to accelerate fast, but not too fast to create a deformity, or too slow to create a retardation. you want to curve out as best as possible.
+
+now, we will consider that a relationship is a huge novelty/contrast impact which occurs, and is *not* a smooth transition. these abrupt changes in direction remind me of the leaders that go out ahead of the lightning. they shoot (jump) out in all sorts directions, and only one makes it to the other conductor to complete the connection.
+
+now, we will assume the perspective of a girl that I had a relationship with. I imagine (I guess ask raquel?) that she would become pretty, "I'm gonna do this myself. I'm gonna figure this out for me", etc. we also have timeline technology, so first before her ego gets going, she wonders what she'd be like if she hadn't of me me. then, she wonders what I'd me like if she hadn't of met me. so she looks and finds out.
+
+1. she does better without me / I do better without her
+2. she does better without me / I *don't* do better without her
+3. she does *worse* without me / I do better without her
+4. she does *worse* without me / I *don't* do better without her
+
+the results aren't conclusive because there are a lot of variables she can manipulate and the metric of better is difficult to quantify. for example, you can... (nevermind) let's apply some logic now here and note the expression, "things are always working out for me" -- and with the ability to manipulate the roadsigns of your memory, you can guarantee that the result is going to be better. so, we can just lop off the last 3 of those and say that the right answer is, both she and I do better without each other. combine that with the large impact aspect of a relationship and the desired goal to keep the curve tight and smooth.
+
+the reason why relationships occur on the way to the manifestation is because of the streamers. it's much harder to push something than it is to pull it. trying to get me forward to conceiving a universe without a relationship would be an enormous amount of effort akin to pushing a string through a pipe instead of pulling it.
+
+I would imagine there are quite a few people out there in the ethers trying to realise the manifestation that both she and I do better without the relationship. this is an impossibility that can only be realised when looking at time backwards. how can it be possible that we could both be better off for something that didn't happen?
+
+bask in the irony a moment :)
 
 # potential topics
 
