@@ -3182,6 +3182,12 @@ singing my own praises throughout the day
                         [one concept at time]
 [[I] am        realising that same experience external to myself]
 
+### 2018-12-18 09:29 - the news firehose
+
+have you noticed that when I do drugs, the amount of newsworthy bits is overwhelming
+
+I bet trump is jealous :)
+
 # potential topics
 
 ### - so, what is "in the game?"
