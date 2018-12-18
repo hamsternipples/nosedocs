@@ -3172,11 +3172,15 @@ I'll explore these differences more in the future, as I'm beginning to compare a
 
 cause, you may not believe me but I have quite some experience with his antics by now, and we've figured out how to cohabitate the same body peacefully.
 
-### 2018-12-18 09:17 - meleading and merealisation
+### 2018-12-18 09:17 - meleading and merealisation (SUPER IMPORTANT) --TOP PRIORITY--
 
-I love how good I am at giving myself meleading sessions throut the day
+I love how good I am at giving myself compliments
+                    and
+singing my own praises throughout the day
 
-[I am merealising myself] one concept at time [I am merealising myself]
+[[I] have more realising of my felt             inner experience]
+                        [one concept at time]
+[[I] am        realising that same experience external to myself]
 
 # potential topics
 
