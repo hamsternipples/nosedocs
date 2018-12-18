@@ -3162,7 +3162,7 @@ if you have one thought that goes one way, and another thought that goes the opp
 
 I am one of the most open minded people I know. I often times entertain thoughts which make no sense (must drive the guys at nosebook crazy), and I love to explore different mental landscapes to see how they feel. I have stored in my head (am resonant to) so much contradictory thought -- which means I have enormous potential energy.
 
-the logical thing that the mind does is to assume that its way is the correct way and all others are wrong. this is normal. everyone sees through their perspective and it's right, valid and the best. other perspectives do not need to be eradicated though, for they simply provide the potential energy and then environment in which a new concept can be born. a new way to think about something.
+the logical thing that the mind does is to assume that its way is the correct way and all others are wrong. this is normal. everyone sees through their perspective and it's right, valid and the best. other perspectives do not need to be eradicated though, for they simply provide the potential energy and then the environment in which a new concept can be born. a new way to think about something.
 
 so, it turns out, eradicating thought, doesn't really happen; it just increases the potential energy to a point where the diversity can produce an improvement.
 
@@ -3170,7 +3170,13 @@ so, it turns out, eradicating thought, doesn't really happen; it just increases 
 
 I'll explore these differences more in the future, as I'm beginning to compare all of the understanding I've gained from mega-desire growth growth growth ultra dominator always-right michael, to my present circumstances.
 
-cause, you may not believe me but I have quite some experience with his antics by now, and we've figured out how to cohabitate the same body peacefully. 
+cause, you may not believe me but I have quite some experience with his antics by now, and we've figured out how to cohabitate the same body peacefully.
+
+### 2018-12-18 09:17 - meleading and merealisation
+
+I love how good I am at giving myself meleading sessions throut the day
+
+[I am merealising myself] one concept at time [I am merealising myself]
 
 # potential topics
 
