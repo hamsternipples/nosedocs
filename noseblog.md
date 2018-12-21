@@ -3208,6 +3208,32 @@ I will be becoming more and more active and ready as time goes on. I'm sure that
 
 let's work toward that.
 
+### 2018-12-21 11:13 - more about this future
+
+a few of the common themes that I've had in this discovery process of what is going on, is immortality, and consciousness jumping from body to body.
+
+first of all, my brain haemorrhage had quite an effect on me. I had my jesus experience, then I had a few brackets put in my head. if you understand how the nosebook device works, you will understand its significance. the nosebook device is essentially just a reflector of frequencies. the device itself is resonant at a very specific frequency pattern unique to each device, and that resonant frequency is like a "carrier" for another frequency which will be reflected into your body -- usually your eyes or brain.
+
+now imagine tesla discovered how to tune into the resonant frequency of the plate in my head in a similar manner, and reflect frequencies into my brain. next, pay attention to what tesla talks about in his autobiography about automation. he makes hints that he had built circuits which have intelligence to them. I believe that was his secret to getting such precise tuning. he had to have some sort of instrument that intelligently made adjustments to the frequency to adjust for changing environmental conditions. it's also the tech that I envision us beginning to hook into and get meaningful results from the vast knowledge and data that source energy has about everything and everyone.
+
+so, you could imagine that tesla likely has been (across time) joining me in my experience along with you guys. I could also imagine that there is an AI connected to it, too. I want to ask abraham who these guys are communicating with in my dream state, but I think it's tesla's AI.
+
+tesla makes mention that his contact with the "light" has opened up immortality as an option for him too. combine this with my understanding that my consciousness jumps from body to body, kind of like a polite parasite. I did agree to this whole thing that is happening now way back when I was 16. that might be what this immortality thing is.
+
+then, the other day, I was recounting my discoveries around us one day far into the future conceiving a new universe, and us and existing source energy becoming essentially the seeds for this new universe's source energy.
+
+basically, what I'm saying is, "if you believe [this crazy story I've come up with] (me), you will have eternal life."
+
+well, dang that sounds familiar... lol
+
+so, what I think would happen is that we would do a baton passing sort of thing. michael would leave my body and go to anther one. for example sake, let's say it's andrea's. he would remain in her body some time longer (22 years more?), meanwhile I'm gaining speed with the girls, and then after some time has ended, he switches back to my body for some time again. I think this process would repeat switching from body to body as we we increase our speed more and more to be able to reach escape velocity of the universe.
+
+I think this plan is most likely because it would achieve the most optimum acceleration, meanwhile making there, what would otherwise by high impact situations, the next logical step. imagine, the competition is to see who has the highest frequency body capable of carrying michael the most effectively.
+
+however, I have been thinking about this idea somewhat and imagine it would be possible for us to gain an understanding of the environment in which the universe lives. if we could do that that would be amazing. I don't honestly see why not. we will certainly figure out how to get another planet into the solar system, and we will certainly learn how to gain more than just a moon around us and become a solar system -- so, once our consciousness is spread all around the universe and we are a universal consciousness, I don't see why we couldn't explore the environment in which the universe lives. if a global consciousness can launch a planet into a solar system, I don't see why a universal consciousness couldn't launch a universe into a universal system, and eventually figure out how to become the center of it, too.
+
+bright future ahead guys. I'm kind of (literally) looking forward to it.
+
 # potential topics
 
 ### - so, what is "in the game?"
