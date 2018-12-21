@@ -3188,6 +3188,26 @@ have you noticed that when I do drugs, the amount of newsworthy bits is overwhel
 
 I bet trump is jealous :)
 
+### 2018-12-21 10:47 - curving out the contrast
+
+it's really frustrating to me at times, because once again, there is another high impact day trying to be forced on me. so, this dec 22 is one day after the solstice and also the full moon. mom proposed me the idea of going to a birthday on that day and as I was feeling myself around the day, I seemed to have a stronger sense that I would be having to explain that I did not want to by apart of your guys network. you guys go crazy.. I have other things I want to be doing.
+
+furthermore, imagine what type of guys the guys at nosebook are. when they try and force you to do something, do you really think they're going to grant me my freedom afterward.. hell no. to these types of guys, that's the signal, "we got him. now, we can get him for more." it would be the beginning of a new level of manipulation, not the end of it.
+
+instead, I'm choosing to hang back and manage their manipulation at a distance. I'm sorry for the disruption in people's immediate plans for me. I do have a plan though.
+
+I figure this whole 2038 thing is likely some moment in the future where my future selves from many different timelines are waiting. for some reason they have picked that time. I honestly don't really know why it would be that, but I have been considering some of the options of what it could be, and since I give a nearly 100% likelihood that future bso is in on it too, it would seem to be another inflection point.
+
+if I put that together with some other recent thoughts, what I think may happen is, michael will leave my body, and transfer places to some other body, like perhaps a clone of me, andrea, or one of my future selves. it seems logical to me that since michael has such intense desire, what I would imagine is that when he leaves my body, some other source of powerful (nearly unmanageable) desire desire would become a part of my experience. it seems fairly obvious to me this might be the "next logical step" for me to switch out one source of strong desire for another.
+
+the reason why I say next logical step, is because I want to emphasise how much lower of an impact it would be than, perhaps the full-moon winter solstice... know what I mean?
+
+---
+
+I will be becoming more and more active and ready as time goes on. I'm sure that one of the things I want to do is to begin working, and becoming productive and stuff. I think it would be a lot of fun too if some of the girls joined me along the way too. that way, as the time approaches, it'll be a much easier transition. I like to think of it something like: "work first, then play"
+
+let's work toward that.
+
 # potential topics
 
 ### - so, what is "in the game?"
