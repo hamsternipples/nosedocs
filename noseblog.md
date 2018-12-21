@@ -3234,6 +3234,30 @@ however, I have been thinking about this idea somewhat and imagine it would be p
 
 bright future ahead guys. I'm kind of (literally) looking forward to it.
 
+### 2018-12-21 11:54 - conflicting energy
+
+I've been thinking a lot about the difference between contrast, conflicting energy, and diversity of thought. they are all ways to say the same thing really.
+
+it impressed on my really hard to write this. what inspired me was to tell andrea this, but I'm sure many people will benefit.
+
+if you think about all of this diverse energy all at once, you can really paralyse yourself. in fact that is often times exactly what happens. you will notice me walking and then all of a sudden I have a strong limp on my left-side. if you pay attention to my thoughts in that time, I activated conflicting energy and it paralysed me.
+
+so, with time, I found that the more honest I was, the better (less paralysis) I felt. however it wasn't until last week that I understood what is going on. lots of contrast/diversity is a good thing because it's enormous potential energy, and is often times a platform from which many new desires are born.
+
+so imagine a ball of a whole bunch of arrows going in random directions. each arrow represents an different thought that you've thought, or a different experience you've had (something you can feel). imagine them as the emotions, not the thought itself. this is your platform from which desire is born, and people with a lot of desire have a pretty big ball going in all sorts of directions.
+
+now, when you speak or think, you can imagine some of these arrows getting activated. this is why certain things can "trigger" you -- they're just thoughts or words which activated these concepts (emotions).
+
+what I wanted to share though, is what I saw, when I lied, not only did I activate the perceived truth, but I activated my desire around what I really wanted to say, and also what I really perceived to be true. this made for conflicting energy. I was stoned, so it felt strong and I could see its effects on my body.
+
+I then had a pretty serious understanding, that for people with lots of desire or lots of contrast trying to create their own reality responsibly, may want to attempt to only tell the perceived truth, so as to avoid activating all the other stuff around it too.
+
+the next step (where I'm at now) is no longer telling the perceived truth, but what is wanted (which is a bit of a tall tale too, if you think about it)
+
+the reason why I say is that, is because activating conflicting energy feels like agitation, frustration, anger -- all things that people with strong desire often experience.
+
+I wish you all the best of luck(?!)
+
 # potential topics
 
 ### - so, what is "in the game?"
