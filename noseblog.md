@@ -3258,6 +3258,10 @@ the reason why I say is that, is because activating conflicting energy feels lik
 
 I wish you all the best of luck(?!)
 
+### 2018-12-21 12:30 - about the eternal life stuff
+
+so, seeing as the last guy who wanted to conceive a universe and promised those who wanted to believe he had a master plan, got crucified, you will understand completely why I don't want to talk about this... it's my little secret, for now ;)
+
 # potential topics
 
 ### - so, what is "in the game?"
