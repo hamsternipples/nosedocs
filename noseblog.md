@@ -3300,11 +3300,23 @@ I was exploring the reason why they do not want me to access my visual capacity,
 
 the other day I suddenly had an idea that maybe I will be the next matrix: people would eventually live in a dream world inside of my head, this is important because you only need one hemisphere to be able to dream (the left) -- leaving the other hemisphere available to do whatever. the bso could use those hemispheres, I'm sure.
 
-so that means they control access to different parts of this growing dream universe in my mind. they are God of the universe. they don't (and neither do I really) want me to access that universe, because I would have full access to everything. that would make me equally as powerful as they are cause I could perceive anything I want. then, there's source energy, and they're really the backbone of the whole operation.
+so that means they control access to different parts of this growing dream universe in my mind. they are God of the universe. they don't (and neither do I really, yet) want me to access that universe, because I would have full access to everything. that would make me equally as powerful as they are cause I could perceive anything I want. then, there's source energy, and they're really the backbone of the whole operation.
 
 if a universe lives in my mind, then that universe has a father which is last universe's bso, the son (me), and the holy spirit (source energy, cloud of witnesses, etc.) all exerting influence on the universe.
 
-we may be closer than I originally thought to creating a new universe.
+we may be closer than I originally thought to (and perhaps have already started) creating a new universe.
+
+### 2018-12-22 12:10 - was 2012 the start of the new universe?
+
+that would be crazy if this entire thing started out with them occupying my mind since 2012.
+
+it does kind of make sense I suppose. it would explain almost everything. probably the reason why they don't want me doing drugs is because the occupants inside of this new universe also get stoned.
+
+lol, could you imagine these guys stoned??? it'd be pretty funny to see these super important guys giggling through their super serious plans to rid this world of bad things. hahahaha
+
+things are going to be pretty funny I imagine. they may be responsible for the dream world and all of that stuff, but I like to think about the physical implementation of how we can seamlessly grow into being a global consciousness -- and eventually a galactic consciousness.
+
+take your head out of the ground and see that we're going to be much more than just this earth, so we (by we, I mean me) have to start thinking like that, now.
 
 # potential topics
 
