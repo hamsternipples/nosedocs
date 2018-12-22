@@ -3280,6 +3280,8 @@ don't worry, for those of you who don't hate me, it'll only create contradictory
 
 last thing -- because I am fighting these guys so hard, I am becoming like them. I'm finding that lies and secrets and other forms of contradictory energy is in fact beneficial if you want more energy. one day, I will become like them, and they will become like me. who is assimilating whom?
 
+P.S. if shame and scorn just aren't doing it, go for full blown antichrist. know what I mean?
+
 # potential topics
 
 ### - so, what is "in the game?"
