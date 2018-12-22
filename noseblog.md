@@ -3292,6 +3292,20 @@ ok so, how are my ratings now? I bet they're much higher than they were, *and* I
 
 neener neener neener
 
+### 2018-12-22 11:57 - the father, the son, and the holy spirit
+
+so, I'v been wondering in what environment a universe lives, and my answer came to me yesterday.
+
+I was exploring the reason why they do not want me to access my visual capacity, and I realised that it's a persistent space, meaning that all their secret projects and all their meetings are taking place in my mind.
+
+the other day I suddenly had an idea that maybe I will be the next matrix: people would eventually live in a dream world inside of my head, this is important because you only need one hemisphere to be able to dream (the left) -- leaving the other hemisphere available to do whatever. the bso could use those hemispheres, I'm sure.
+
+so that means they control access to different parts of this growing dream universe in my mind. they are God of the universe. they don't (and neither do I really) want me to access that universe, because I would have full access to everything. that would make me equally as powerful as they are cause I could perceive anything I want. then, there's source energy, and they're really the backbone of the whole operation.
+
+if a universe lives in my mind, then that universe has a father which is last universe's bso, the son (me), and the holy spirit (source energy, cloud of witnesses, etc.) all exerting influence on the universe.
+
+we may be closer than I originally thought to creating a new universe.
+
 # potential topics
 
 ### - so, what is "in the game?"
