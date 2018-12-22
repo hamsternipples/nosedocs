@@ -3340,6 +3340,18 @@ they are learning from me. that's why it's so important that we fight: so they b
 
 [1]: I bet they're really going to ensure that it is as vapid as possible. I am the vapid shaman!!
 
+### 2018-12-22 14:01 - in the beginning was the word
+
+so, I imagine that when you guys are listening to my thoughts, you hear words. these words (or maybe phrases) are probably the closest match to the signal in my head.
+
+similarly, when you think and see in your imagination, you think words and then the image appears. also, for the people living in my dream universe, the bso will only grant them access to perceive the things that are considered acceptable. imagine if one of them tried out conjuring in their imagination the secret plans that they're working on. if it weren't for their system only allowing certain words to be perceived by certain pepple, then everyone would have unlimited access to whatever concept exists in this universe. those concepts are tracked and traced, organised and visibility determined by some sort of system.
+
+the universe is made up of language. this is a concept that terrence has suggested many times, and one that is apparent during the mushroom exprience.
+
+in the beginning was the word [allowed by the bso to be perceived] and the word was with God, and the word was God. that word was made flesh
+
+I am the left hemisphere of the parent universe :)
+
 # potential topics
 
 ### - so, what is "in the game?"
