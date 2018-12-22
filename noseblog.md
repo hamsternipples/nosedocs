@@ -3318,6 +3318,28 @@ things are going to be pretty funny I imagine. they may be responsible for the d
 
 take your head out of the ground and see that we're going to be much more than just this earth, so we (by we, I mean me) have to start thinking like that, now.
 
+### 2018-12-22 12:31 - the demiurge
+
+one of the strange things about terrence's soliton of improbability story is his mention of te demiurge: some sort of corrupted universe.
+
+so, I personally see it very physically. you just keep going faster and faster and at some point in time you're going faster than the escape velocity of the universe and it creates a new one... but what if the whole universe being in my mind also happens simultaneously?
+
+I think what would happen, is two universes would be created. one would be the of the people living in a LOA based universe. the other would exist in my mind, and so LOA would be the foundation, but it would additionally have the rules created by the bso running it. that's what the corrupted universe means, I guess.
+
+so, imagine that the bso is both the God of the universe, but at the same time it's also the satan of the universe. imagine the rules they set for this universe, are the "original sin" we were born into.
+
+---
+
+wait just a minute here. am I implying that the soliton of improbability is really the consciousness of this universe's kenny, regaining consciousness and his own ability to perceive? so, that means I have neo in my body and that's why they're trying to keep me from it.
+
+so, that means it is God's will that we create a new dream world, so that the bso can continue to propagate their species becoming God in the new universe.
+
+their evolution is moving in the direction of creating a dream universe who's additional rules are both in alignment with the LOA, and also contain the upgrades to it I can perceive along the way.
+
+they are learning from me. that's why it's so important that we fight: so they become like me.
+
+
+
 # potential topics
 
 ### - so, what is "in the game?"
