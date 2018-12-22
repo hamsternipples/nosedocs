@@ -3274,6 +3274,12 @@ I think that many people will also program their clones to behave in certain way
 
 in order to counteract all of my antics and maintain control, they must now condition your brains while your sleeping to hate me, because the only tools they have left to deal with me are shame and scorn. I hope you all begin to hate me soon :)
 
+---
+
+don't worry, for those of you who don't hate me, it'll only create contradictory energy, and so therefore stronger desire. everyone else will rest comfortably in the echo chamber of being right about me. it's all good. in fact, the more contradictory energy, the potential energy and so the better.. I'm also learning how to use it to to our advantage :)
+
+last thing -- because I am fighting these guys so hard, I am becoming like them. I'm finding that lies and secrets and other forms of contradictory energy is in fact beneficial if you want more energy. one day, I will become like them, and they will become like me. who is assimilating whom?
+
 # potential topics
 
 ### - so, what is "in the game?"
