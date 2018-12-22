@@ -3262,6 +3262,18 @@ I wish you all the best of luck(?!)
 
 so, seeing as the last guy who wanted to conceive a universe and promised those who wanted to believe he had a master plan, got crucified, you will understand completely why I don't want to talk about this... it's my little secret, for now ;)
 
+### 2018-12-21 18:09 - one last thing about eternal life
+
+one of the reasons why I brought up jumping between bodies is because as soon as we lose the idea that "you" live in only one body, you will live eternally. you'll live in more than one body, and so therefore your consciousness remains present.
+
+I like to think of this more like a dollhouse. I imagine that many people will be entire families, living in all of the bodies. in fact, I imagine various people will share the same bodies as well. imagine a family which has 20 bodies in it, but only 3-4 consciousnesses orchestrate everything the family does.
+
+I think that many people will also program their clones to behave in certain ways while the consciousness isn't present. this is a very mechanical way of perceiving things and comes from the capricorn symbol. I think probably cancer is the one where the bodies are interacted with emotionally, instead of logically.
+
+---
+
+in order to counteract all of my antics and maintain control, they must now condition your brains while your sleeping to hate me, because the only tools they have left to deal with me are shame and scorn. I hope you all begin to hate me soon :)
+
 # potential topics
 
 ### - so, what is "in the game?"
