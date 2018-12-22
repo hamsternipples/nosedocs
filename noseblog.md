@@ -3282,6 +3282,16 @@ last thing -- because I am fighting these guys so hard, I am becoming like them.
 
 P.S. if shame and scorn just aren't doing it, go for full blown antichrist. know what I mean?
 
+### 2018-12-21 19:48 - lol, I think I know what happened...
+
+the bso seem to have a tendency to put a lot of their attention on what they don't want me doing. they're endlessly dissatisfied with everything I do, I find it very unlikely that they could actually express something they *would* like me to do.
+
+however, they may be getting close to figuring it out, because it seems to me that maybe one of the culprits to my recent outbreak is declining viewership with the female audiences, and so then a desire was born for me to have better ratings.
+
+ok so, how are my ratings now? I bet they're much higher than they were, *and* I bet viewership is up now as well with the vision upgrade :)
+
+neener neener neener
+
 # potential topics
 
 ### - so, what is "in the game?"
