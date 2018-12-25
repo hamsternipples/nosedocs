@@ -3376,6 +3376,24 @@ who knows. the cool thing is, if I'm really kenny in the parent universe becomin
 
 «you are only as powerful as you are joyful in the moment»
 
+### 2018-12-25 11:18 - the predetermined path
+
+when I woke up this morning, the symbols seemed to make a lot of sense to me. however, I believe that the symbols don't need to be followed any more. I/we can do what I/we want to do; that's what makes the time split. so, take my perception of the predetermined path as seriously as you would the monopoly game rules.
+
+it looks to me that the transition into capricorn (controlling the bodies with logic) will come as a natural result to the creation of this dream universe in my brain. imagine that they could promise you that you could go into this dream world and interact with other people there while your body remains here doing the laundry and washing the dishes. you can imagine how appealing this would be to a lot of different people, and so gradually more people will allow the machine to take over their day-to-day activities for them while the go and have a more enjoyable time in the dream dream world.
+
+have you ever woken up from a dream and the dream felt so good you wanted to find a way back there? I think this whole dream universe will be quite compelling, and considering that visually it's looking better all the time, I can see how this "real-life" becomes less and less appealing in comparison.
+
+at the same time here on earth, having bodies controlled by logic will open up a new set of experiences. probably, because the dream universe will continue to look better and better, the bso guys will spend less and less time inside of it, and more time in physicality monitoring it and sending signals into our minds to try and affect circumstances inside of the dream world. so, probably they'll be forced to take a more of a godlike position, being omnipotent, and indirectly influencing to prevent them from becoming conscious of what is really happening.
+
+also, here on earth since bodies are programmed to behave by some contrived logic, you can imagine many contrived situations will be designed to fulfill the deranged fantasies of those no longer capable of living in my dream world. we will begin to realise two very different realities: one existing inside of the dream world, and the one on planet earth.
+
+if you think about these two worlds, they present some interesting differences. the physical world will be mostly filled with bodies behaving like they have been programmed to behave, with some humans mixed in. though LOA exists here as the basis to everything, the quantity of controlled bodies to behave in the way they have been programmed to will substantially reduce LOA's effects on the physical world.
+
+then, the dream world, also having its foundation in LOA will have its "manifestations" (which could be anything) reduced to a limited set of acceptable or least risky manifestations for its inhabitants (like dreaming about doing drugs, or dreaming about things that don't exist yet and aren't catalogued by them would be prohibitted).
+
+to be continued... 
+
 # potential topics
 
 ### - so, what is "in the game?"
