@@ -3352,6 +3352,30 @@ in the beginning was the word [allowed by the bso to be perceived] and the word 
 
 I am the left hemisphere of the parent universe :) the "prodical son" if you will.
 
+### 2018-12-25 00:45 - the inflection point
+
+my last entry stirred a lot of reactions and even caused some depression in me as well. I've given it some thought, because I ... anyway, no matter what, it's clearly an inflection point. I see it (now) three ways:
+
+1. the plan to build the dream world is underway and as time continues, some limit is reached -- whether I'm generating so much energy that they can no longer dissipate it all with the tiny devices, or something else, this point would probably mean the end of my human life. they'd probably have to put me in some sort of stasis or something.
+
+2. global warming seems to be real, and it appears that I'm the number one cause of it. things seem to be warmer than usual. they maintain temperatures at relatively acceptable levels, but clearly I have an effect on the climate. I believe that extra "warming" is actually increased conductivity in the air, and warmer weather and sunshine are the side-effects. this may be the point where the atmosphere around the planet is so conductive that the sun is now warming the planet at an alarming rate. this means that it'll be time to push the atmosphere up higher and turn our upper atmosphere into a plasma.
+
+3. some other life-changing event like meeting my future self or something like that. totally unknown. it could even be the time when michael is released from my body. it's really too impossible to speculate on a whole lot.
+
+---
+
+obviously one thing that is quite important to me is to be as much on the right path as possible. I know this sounds a bit opposite to what I'm all about, but the whole thing seems to revolve around me getting access to my visual capacity -- and it seems obvious to me that if any of the situations with the girls had of happened, I would have achieved my visual capacity. it seems to me like the bigger plan is that I get as many vision upgrades as possible before I: gain my visual capacity, they create the dream universe, michael gets released from my body, or the girls thing happens (or some combination thereof).
+
+it seems that I'm to just keep releasing resistance and getting more vision upgrades. meanwhile, the bso will be getting better and better at containing someone's vision and commanding it with the mind sufficient that they can construct a universe in which they can control a lot of our responses just by putting signals in our minds. it also allows for the dream universe to look so amazing that almost everyone wants to be there more than they want to be here.
+
+I'm going to begin thinking about this whole dream universe a little more because it seems like there may be a way to make it happen without putting me into stasis. it seems like a pretty poorly thought out plan. what happens when I die? where does all that stuff go? I hardly believe that my future is to be put into stasis and then little by little as I live life in the dream universe, I begin becoming conscious as to who I am (like I am now). I doubt that my entire future will be a repeat of becoming conscious only to find myself trapped once again, never to realise my own potential.
+
+one thing that has bothered me around the whole procession of the equinox and the symbols things is that there are about 2000 years between each sign. with the rate at which things are accelerating, I find it pretty hard to believe we will be in the aquarian age for much longer than 50 years. maybe 1800 of those years are spent in mental darkness. probably the days where we worship the bso as God are over, but just the same maybe we will be trapped in a dream universe where the bso tries to keep us in the dark for fear that we will realise our own capability.
+
+who knows. the cool thing is, if I'm really kenny in the parent universe becoming conscious in his own dream, then I should be exploring the possibilities that realisation opens up.
+
+«you are only as powerful as you are joyful in the moment»
+
 # potential topics
 
 ### - so, what is "in the game?"
