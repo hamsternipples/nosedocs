@@ -3390,9 +3390,9 @@ also, here on earth since bodies are programmed to behave by some contrived logi
 
 if you think about these two worlds, they present some interesting differences. the physical world will be mostly filled with bodies behaving like they have been programmed to behave, with some humans mixed in. though LOA exists here as the basis to everything, the quantity of controlled bodies to behave in the way they have been programmed to will substantially reduce LOA's effects on the physical world.
 
-then, the dream world, also having its foundation in LOA will have its "manifestations" (which could be anything) reduced to a limited set of acceptable or least risky manifestations for its inhabitants (like dreaming about doing drugs, or dreaming about things that don't exist yet and aren't catalogued by them would be prohibitted).
+then, the dream world, also having its foundation in LOA will have its "manifestations" (which could be anything) reduced to a limited set of acceptable or least risky manifestations for its inhabitants (like dreaming about doing drugs, or dreaming about things that don't exist yet and aren't catalogued by them would be prohibited).
 
-to be continued... 
+to be continued...
 
 ### 2018-12-17 18:37 - the evolution of desire from era to era
 
@@ -3424,7 +3424,7 @@ I guess this pattern in my life is to continually create new stronger desire in 
 
 I suppose if you think about this further, this is already the case. these guys will not let me relax, and they won't let me slow down and enjoy where I'm at, the constant dissatisfaction with how things are, only propels me forward and motivates me to skip the present manifestation and to go toward what I want.
 
-it's sort of like "living in the present" -- but more like, "living in the dissatisfaction of the present"
+it's sort of like "living continually in the present" -- but more like, "living continually in the dissatisfaction of the present"
 
 # potential topics
 
