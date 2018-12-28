@@ -3394,6 +3394,38 @@ then, the dream world, also having its foundation in LOA will have its "manifest
 
 to be continued... 
 
+### 2018-12-17 18:37 - the evolution of desire from era to era
+
+I have this sneaking suspicion that in the previous era, many young girls were also attracted to jesus. also, after having witnessed the way that nosebook has explained away various notable things in my life, I would imagine that the virgin mary myth was to cover up these young girls that were attracted to jesus... saying, no the virgin was his mom, not the girls attracted to him.
+
+it would also make sense that could have been one of the reasons for his crucifixion, too. in a previous entry I offered the idea that he too had the idea of creating another universe (or some other large transformation of consciousness) where he and the people involved serve as the vibrational basis for the new creation. this may have angered the pharisees quite a bit because he would be suggesting that for example (in today's terms) nosebook would become the planetary consciousness responsible for the climate and growth of the planet -- the God of the earth, if you will.
+
+so, in this timeline jesus made his transition into non-physical. we are sure of this. there are accounts of people having witnessed his presence since his death -- which seeing people that are not on this physical plane as if they were is quite possible (as I have seen my future self in broad daylight with my very eyes).
+
+you could imagine what kind of desire that would create in the women when this super awesome dude with superhuman capabilities gets put to death in humiliating manor: it would create strong desire for a new kind of culture where young girls can like an older guy and it's not perceived as something bad.
+
+so, here we are. the path of least resistance for that to become a reality is to have a whole bunch of horny hardasses that want to utilise that desire as the excuse to track and manipulate the lives of everyone on the planet.
+
+there's a catch though. the super cool guy that the girls like *must* be free to operate his own life and mind. this is how he became a super cool guy in the first place -- by paying attention to himself and continually pointing himself in the direction of what he wants.
+
+---
+
+so, you can imagine that whatever happens to me and my situation will create enormous desire to have a world in which secrets no longer need to be kept, and those running the whole operation (the parents) are not trying to steer the population, but are actually observing and learning from the population (the kids).
+
+whatever the path of least resistance toward a world in which that is a reality will lead us into the next era -- and along with it will come new sets of contrasting circumstances in which the next version of me will again (due to a circumstantial inability to make the desire a reality) create once again more strong desire to make a world in which this is possible.
+
+---
+
+essentially, what I am saying is that my purpose is to fail, so strong transformative desire for improvement will be made in (mostly) the female population. their desire for improvements to the world we live in, is the motivating force to create new improvements for all of us to enjoy.
+
+I suppose it kind of sucks to know that the greater good actually comes as a result of my failure -- not from my success. as I review my life, this does seem to be my pattern, so it does seem the most likely. it also means that if I don't die after this ordeal, once again I will find myself on the path toward some new thing, only to have a plot twist right before the achieving of it.
+
+I guess this pattern in my life is to continually create new stronger desire in me to go always for the next bigger thing, never needing to actually have the manifestation. abraham once said in a very memorable episode for me about a guy wanting his carwash to be better, that manifestations only slow you down. since I'm attached to some sort of speed demon, I suppose any manifestations that happen, are only to propel me forward, not to slow me down by allowing me to get comfortable..
+
+I suppose if you think about this further, this is already the case. these guys will not let me relax, and they won't let me slow down and enjoy where I'm at, the constant dissatisfaction with how things are, only propels me forward and motivates me to skip the present manifestation and to go toward what I want.
+
+it's sort of like "living in the present" -- but more like, "living in the dissatisfaction of the present"
+
 # potential topics
 
 ### - so, what is "in the game?"
