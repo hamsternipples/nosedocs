@@ -3426,6 +3426,34 @@ I suppose if you think about this further, this is already the case. these guys 
 
 it's sort of like "living continually in the present" -- but more like, "living continually in the dissatisfaction of the present"
 
+### 2018-12-27 20:55 - the backwards man
+
+I just took a shower and I was thinking about the progression of things in my life, in relation to what I talked about in the last entry.
+
+the way I see it is, the "bait" was set for you guys with my interaction with andrea. essentially, I proposed a physical manifestation. you guys decided (well, most of you anyway) that that was something wanted. however, because the circumstances didn't allow for what I wanted (open communication with non-physical intelligence), there was an evolution of desire.
+
+at that same time I became enamoured with my imagination and the capacity to visualise things. it seems to me that andrea continued on with the physical manifestation while I kept going up. it seems to me that the peak of my attempt at getting a manifestation in my imagination happened when I broke the van window and was sent to the states.
+
+upon arrival to the states, I still had some manifestation in the imagination trend, but my new focus was on finding the feeling place of what I wanted. meanwhile, it seems that simultaneously nosebook figured out how to to have sex in my dreams. so, now you guys are in the manifestation of the imagination zone and I'm in the only looking for the manifestation of the feeling zone. again, I'm one step ahead.
+
+I believe that in this era, the trend is toward having the manifestation in the imagination. the last was the controversy over the physical manifestation. so, following that pattern, I imagine the defining moment of the present era will be the controversy around the manifestation in the imagination. and so therefore, the next will be the controversy around the manifestation of the feeling (multi-bodied consciousnesses where the experience is felt non-physically),
+
+---
+
+so, I believe that the direction we are headed will actually be one of a dream world. you can imagine that with these hardasses being the way they are, a world in which secrets and lies no longer can exist, will only be possible in the imagination (the dream world they are creating for you guys).
+
+the reason is probably because these guys are so physically oriented, they're unable to imagine a world where that could be possible. they're probably the type that have to see it so they can believe it (the thomases of today's age).
+
+and, the path of least resistance toward that type of world, will be to create a dream world where anything is possible. just like how the physical manifestation was made possible by a bunch of horndogs wanting to monitor everyone on the planet, this one is likely going to be made possible by a bunch of guys wanting to control and borrow the visual capacity of many able-minded people on this planet (similar to how my situation is now).
+
+yay?! ... I think so, actually. it's going to be fun to live in a world where *anything* is possible (cept certain things) -- much like how a newborn sees things when first arriving here.
+
+I believe those certain secret things, will be the foundation of the new desire for openness. seeing such a vibrant universe where there is so many possibilities, like any good capitalist, and having the contrast to the mechanical fully under control environment seen in physicality, they'll likely join us in the dream world (with the excuse that things are too free, and they need to be controlled).
+
+rinse and repeat over and over. this is life. «you can't get it wrong and you'll never get it done» there will always be an improvement to be found. I have no idea the heights I will see the human race reach in my lifetime, but I get the feeling that galactic probably isn't big enough (but we'll cross that bridge when we get there).
+
+I also believe that this planet will never achieve a perfected state. can you imagine how much diversity could exist in one galaxy?? I believe we are right now, the planet in this universe with the most diversity (potential energy) on it.
+
 # potential topics
 
 ### - so, what is "in the game?"
