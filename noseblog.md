@@ -3454,6 +3454,54 @@ rinse and repeat over and over. this is life. «you can't get it wrong and you'l
 
 I also believe that this planet will never achieve a perfected state. can you imagine how much diversity could exist in one galaxy?? I believe we are right now, the planet in this universe with the most diversity (potential energy) on it.
 
+### 2018-12-29 19:16 - staring at the sun
+
+this afternoon I went outside to sit in the sun and the sky was clearer than usual. I decided I would stare at the sun. these are some of the things I noticed (mainly for me to remember them easier)
+
+1. when I looked at the sun with only one eye, when I opened up the other eye, I noticed that things were considerably blurry. this falls in line with my experience looking into the sun at puerto de hierro: if I looked into the sun with my left eye for some time (there was tinted glass so it was easier) then my right eye (which is normally much clearer) would be so blurry, it would actually take me some time for me to be able to see very well out of my right eye (maybe 10-20 minutes).
+
+2. when I looked at the sun with both eyes I had a similar sensation to my eyes crossing when I begin to hallucinate from over-tiredness. I think this is their machines trying to prevent me from seeing images. I found it very strange that it was so difficult to keep my eyes from not crossing or my eyelids from trying to close. additionally, a bunch of birds started making a bunch of sounds, so probably they don't want me looking at the sun with both eyes.
+
+3. after looking into the sun with both eyes for as long as I could hold it, approximately 7-10 times, I went inside and really wanted to program. upon beginning to program, I noticed a lot of mental clarity. I was able to see the parts of the code and how they seemed to connect and interact with the other parts. this was super exciting for me because I usually have extreme tunnel vision when I'm programming, often times spinning my wheels on something irrelevant to what I want to accomplish. I also noticed that I had a much bigger picture of what I was working on, too. I seemed to be able to perceive clearly not only what I wanted to accomplish, but the steps necessary to get there. (I have more mental clarity now a few hours later, but not nearly as much as I did right after staring into the sun)
+
+4. after programming for 10-15 minutes I began to feel very weird. it felt like sadness. it felt like not living up to someone's expectations and a few other feelings I can't really identify. I finally decided to lay down. after laying there quietly and not moving for some time, I noticed my heart was still racing... like really going fast as if I had been exercising quite hard. I know they mess with my heart to try and prevent me from seeing images, but I also seemed unable to relax either. I think that was on purpose.
+
+5. I also noticed that my temperature was really cold too. I can't remember the exact circumstances now, but I related the cold feeling in my body to the effort once I went inside to undo all the progress I made with the sun.
+
+6. I got up and made myself some coffee. I noted that the feeling of coffee seemed to be harmonious to how I felt after staring at the sun. no conclusions there; I just thought it was notable.
+
+I believe I will be doing a whole lot more staring at the sun from now on. it's really a crazy experience and I feel a lot lot better after doing so. a while ago it was difficult for me to look at the sun with one eye for more than a few minutes, but now I can pretty much stare for as long as I want into the sun with one eye.. only after 10-15 minutes does it start to leave a spot on my eyes. looking at the sun today with both eyes left a little bit of a spot, but not much. I wasn't able to hold the gaze for longer than a few seconds though. I will be practicing though, because I want to get to the point where I can maintain eye contact with the sun (with both eyes) for a really long time.
+
+### 2018-12-30 01:52 - existing in someone's imagination & love
+
+earlier while watching stars I was noticing that when you're in love, the person that you are in love with exists in your imagination a lot. you fantasise about them, picture all sorts of scenarios and situations where you're together and generally all of those things you dream of are positive.
+
+then, I was thinking about hatred. I would suppose that hatred would be the opposite -- meaning that if I really hated someone, that person too would exist a lot in my imagination visualising their demise and other unfortunate events for them.
+
+I have used the word hate to both describe how I feel about the these clowns who are holding me hostage and all of the rest of the people who are enabling them to keep me held hostage. however, I don't visualise unfortunate things happening to them unless I'm really angry though -- and that's only half of me; the other half does not.
+
+so, maybe I don't have as much hatred as I previously thought. it's a weird idea for me.
+
+anyway, the next thing that I noticed is that if you guys are all going to be existing in my imagination in the dream world like that, it's sort of symbolic, using the definition offered above, that I would have the most intense love/hate relationship with you guys.
+
+### 2018-12-30 02:04 - redefining strength
+
+earlier tonight I felt inclined when mom told me nancy said hi to offer extra information. it also seemed like a voice inside her head seemed to want me to continue talking. I offered some observations on "structural" families that I had noticed with my interaction with the azconas (marcos' family).
+
+noting that as weird, I wondered why I felt compelled to offer that information. later, while watching stars I concluded that it was probably the setup for an illusion that will be performed later. the best part about these sorts of things is I have no idea what they are or how they will turn out; they're completely unplanned, so it's always kind of fun to shoot my mouth off periodically. a common pattern is for me to begin completely convinced of something that is incorrect. it seems that when I'm clearly wrong, people relax a lot more and the illusion can appear. as a contrast, when I'm right about something, it seems to only create opposition.
+
+anyway, later on, I noticed that a lot of these "structured" people are quite jealous of me because I'm effortlessly redefining what strength is. they seem to have an idea of what strength looks like in their mind, and I seem to dodge the attempts that make me look weak. it's really cool because I don't even try. I'm not exactly sure what it is that I do or why I'm successful at it either. maybe it's because I'm so genuinely wrong sometimes and it doesn't bother me.
+
+it's definitely not only that. take for example the concept of survival: if someone can survive longer, they are considered to be stronger -- at least that's what darwin(?) has taught us, anyway. it seems common to think that survival is a physical capability, yet I believe it to be more of a mental capability.
+
+interestingly enough, that is probably one of overlooked gems in tesla's autobiography. he says that it's his nature as an inventor which gives him the adaptability to survive adverse circumstances. I suppose so, but for me that's still way too physical. for me, I believe my increased survival and adaptability come from my ability to redefine reality in a way which suits me.
+
+this capability though, negates a lot of belief built around good and bad -- which is very anti-structure. if "bad" can be perceived as something wanted from a different perspective, then my strength comes from the flexibility of my perception.
+
+it's kind of anti-structural because my definitions or the structure of my perception is ad-hoc and subjective; it's not built on data or evidence, but on whimsical ideas which allow me easily adapt to my circumstances. it's not rigid and it's not strong. it's neither similar to a liquid, in that I don't conform to the shape of the bottom of the container, but more like a gas which continues to expand until it fills the container.
+
+can't wait to [feel the reactions] of this :D
+
 # potential topics
 
 ### - so, what is "in the game?"
