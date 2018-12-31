@@ -3500,7 +3500,26 @@ this capability though, negates a lot of belief built around good and bad -- whi
 
 it's kind of anti-structural because my definitions or the structure of my perception is ad-hoc and subjective; it's not built on data or evidence, but on whimsical ideas which allow me easily adapt to my circumstances. it's not rigid and it's not strong. it's neither similar to a liquid, in that I don't conform to the shape of the bottom of the container, but more like a gas which continues to expand until it fills the container.
 
-can't wait to [feel the reactions] of this :D
+can't wait to [feel the reactions to] this :D
+
+### 2018-12-31 00:08 - getting in the shower...
+
+a strange thought entered my head which reminded me that raquel told me, pretty proud of herself that all of her ex-boyfriends had not returned to find another girlfriend since her.
+
+wtf, lol... is that really something to be proud of? I suppose you could look at it one of two ways:
+
+1. she was so amazing that no other girl could ever live up to the standard she set..
+2. she was such an awful girlfriend none of her ex-boyfriends even considered the idea of attempting that again
+
+I have truthfully thought both. I suppose love is so weird and complicated like that, where a contradiction like that can seem true.
+
+---
+
+another thing that I was thinking about too was the whole aspect of the clones of me vs. an entire population group existing, living, and considering the inside of my mind, their reality.
+
+it's a crazy thought, but I've really been thinking of how my instincts to nurture, care, and encourage would manifest inside of this universe, considering I also very much enjoy experimenting, letting things play out, and observing things interact/react with each other.
+
+I think I will make a good universe to live in.
 
 # potential topics
 
