@@ -3504,7 +3504,7 @@ can't wait to [feel the reactions to] this :D
 
 ### 2018-12-31 00:08 - getting in the shower...
 
-a strange thought entered my head which reminded me that raquel told me, pretty proud of herself that all of her ex-boyfriends had not returned to find another girlfriend since her.
+a strange thought entered my head which reminded me that raquel told me, pretty proud of herself, that all of her ex-boyfriends had not returned to find another girlfriend since her.
 
 wtf, lol... is that really something to be proud of? I suppose you could look at it one of two ways:
 
@@ -3520,6 +3520,28 @@ another thing that I was thinking about too was the whole aspect of the clones o
 it's a crazy thought, but I've really been thinking of how my instincts to nurture, care, and encourage would manifest inside of this universe, considering I also very much enjoy experimenting, letting things play out, and observing things interact/react with each other.
 
 I think I will make a good universe to live in.
+
+### 2018-12-31 22:50 - military intelligence
+
+last night while watching a mika concert in paris in june this year @[youtube](MxYE0RSOu4o), I began to feel many things. back in june I hadn't given up on the whole thing yet. I still had optimism that I could figure out a way to get my visual capacity.
+
+the difference between then and now was quite apparent to me last night and it caused some depression because I realise quite a few people all around the planet wanted to see the thing work out. this caused me to think a little bit harder about what was happening, instead of just reacting to things.
+
+I believe what has happened is, when they found out that I can access and create whatever I want on my inside, they decided they wanted to work on some military projects in there. from what I have read about in other people's account's of the capacity (andy pero, tesla) whatever is created in there stays in there in operation and you can come back to it later and see even things like wear and tear on the creation over time, and all of it operates within the laws of the universe -- meaning, anything created there will behave the same way in real life, like it does in my visual capacity. it is a persistent universe that lives on the inside of you in your right hemisphere.
+
+anyway, since there are all sorts of military secrets in there, they believe it absolutely necessary to prevent me from accessing my own visual capacity at all costs. that's probably why they shock me and are willing to harm me to ensure the security of their secrets.
+
+you (and me) might think that is a bit unfair that someone can just take over some part of my brain and decide that my brain is now property of the us government.
+
+so, how do I combat that idea? well, I can't really. I would have to convince them that all of the work they have done and the time they have spent in my universe belongs to me, not to them. it's not really going to work that way.
+
+instead of trying to strengthen rights to ownership and reclaim ownership of my mind, I think the path forward is actually to go toward the village approach, where no one really owns anything. the global village.
+
+---
+
+the global village is a term that has been around for a while. leary talked about it, and mcluhan also has mentioned it, I believe. he predicted that as communications improves further past the electric age, we would eliminate time and space in such a way that we would return to more village-like thinking. the nosebook technology does exactly that, and this year I want to really begin allowing that to become a reality.
+
+if we're a global village, we won't really need a military (and I can get my brain back). any foreign "threat" we may have will come from out there in space somewhere. we'll still have infighting for a while, so police is still a thing, but maybe the future is to begin moving forward with the space force.
 
 # potential topics
 
