@@ -3543,6 +3543,42 @@ the global village is a term that has been around for a while. leary talked abou
 
 if we're a global village, we won't really need a military (and I can get my brain back). any foreign "threat" we may have will come from out there in space somewhere. we'll still have infighting for a while, so police is still a thing, but maybe the future is to begin moving forward with the space force.
 
+### 2019-01-01 10:41 - my ideas are free
+
+I really like how this sort of thing ties everything together. back in 2007 when I was living with luke and maria, the relax song came out by mika. maria is funny because she liked to sing when she felt happy, and so she would play that song on repeat in her going to work music (or was it spinning class music.. I can't remember). that song, along with many others she would completely destroy lyrically when she would sing them. I didn't really mind so much because she was being happy (and I too tend to sing more when I'm happy). I also seem to make a lot of lyrical mistakes as well, so it never really bothered me any. I think luke or maybe me might have said something or corrected the lyrics from time to time because I remember her often defending heself by saying, "the letters are free!"
+
+this got me thinking quite a bit about what she meant my that statement. I reasoned that it was perhaps a mistranslation of, "las letras estan/son libres" but I wasn't sure. I could tell that she wanted to say that you could sing the song any way you want, with any words you want. having been a childhood fan of weird al, that seemed fine to me -- however I had a bit of a disagreement as someone creative.
+
+I could imagine the original artist putting quite a bit of thought into the optimal combination of words to convey a concept or an emotion. in any creative endeavour, there is an underlying emotion which is being presented -- so for someone to destroy the meaning being conveyed with words which don't adhere to the feeling of the song, I can imagine how that betrays the original intention to make the thing in the first place.
+
+for example, when I come out talking about all of the amazing things the nosebook technology can do to improve our quality of life, the original creators of the technology are likely having a cow because they made it with surveillance in mind, and I'm betraying their original intention for their creativity.
+
+it goes the opposite direction too. there have been numerous ideas I have offered with the intention of improving my (and others) quality of life, only to find the idea utilised to make my star watching more difficult or to inhibit my progress instead of further it. such is life I am finding. not a whole lot I can do about it, and the perception of what I don't want the idea used to accomplish only adds more energy into the equation toward my original intention of what I do want.
+
+I had this argument with augusto a few times, because he believed that there should be some way to protect my ideas by claiming ownership to them with a patent or something. so, to cut the argument short, I adapted marias potential mistranslation and then mistranslated it again by saying, "mis ideas son gratis" (changing the meaning of free from libre to gratis).
+
+I determined that because I come up with so many ideas so quickly and effortlessly, I thought they should be for free. I always had this concept that ideas grow on trees; thee are so many of them, that really the only worthwhile ones are the ones that someone takes the time to implement. for me, implementing an idea is much more difficult than getting one, so I value much more its implementation (and its implementers) than the idea itself.
+
+my ideas are free.
+
+---
+
+so, henceforth and retroactively I would like to forfeit all of my rights to any ideas I've had. please implement them.
+
+I think probably up until now there has been a restriction on anyone (other than the guys working at nosebook) wanting to use my ideas. besides the fact that every lawyer out there has already agreed to follow nosebook's orders for them -- so trying to fight a legal battle would be senseless, even if I was to try and do that, I would not be going after some guy trying to make my idea a reality. I would be going after the guys at nosebook in the first place. they've stolen my ideas, sold my content and exploited me in nearly every way.
+
+I want to see my ideas come to see the light of day. even if they don't adhere to my original intention for them, it's still progress, and they will eventually transform into something we all want.
+
+if they try to restrict the propagation of my ideas by claiming that you have to maintain secrecy, first of all, since it's a secret that everyone knows, the secret part is just so they can control communication about it. like any good teller of lies, they are telling many people many different things, and that would become very evident very quickly if secrecy weren't maintained. obviously it would also be much more difficult for them to avoid a conversation about the rights they believe they have to inhibit or improve human body function. keeping the secret is only a means to control open communication about it.
+
+so, I'll do a thing: I can keep a secret too. if you want to use my idea, and you absolutely feel that you need to have a written forfeiture of my rights too it, but you don't want to let on how you found out about my idea, just keep that a secret. I won't ask you about that, and I won't tell anyone I gave up my rights to the idea. I will hopefully see quite a few of them blossom into something wonderful.
+
+oh yeah, if you want to expand on the idea or get further insight into what I was trying to convey, just ask me :)
+
+please, just use my ideas.
+
+P.S. to further tie all of this together: the other night, when I replied to Turbo Knight on youtube, I began speaking about some (incomplete) ideas ideas I had about music creation software. because I mentioned reason and rebirth, it seemed like there was some reaction from people related to propellerheads (the swedish company which makes those programs). I laid down and began to try and think of how I would improve on the piano note blocks interface and felt further reactions. so, I got up, was inspired to find mika (which means I found what I was looking for, by dani another musician), which would bring me to remind me about the whole ideas are free thing. it all connected together for me in a perfect end of the year :) cheers!
+
 # potential topics
 
 ### - so, what is "in the game?"
