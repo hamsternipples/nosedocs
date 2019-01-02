@@ -3579,6 +3579,32 @@ please, just use my ideas.
 
 P.S. to further tie all of this together: the other night, when I replied to Turbo Knight on youtube, I began speaking about some (incomplete) ideas ideas I had about music creation software. because I mentioned reason and rebirth, it seemed like there was some reaction from people related to propellerheads (the swedish company which makes those programs). I laid down and began to try and think of how I would improve on the piano note blocks interface and felt further reactions. so, I got up, was inspired to find mika (which means I found what I was looking for, by dani another musician), which would bring me to remind me about the whole ideas are free thing. it all connected together for me in a perfect end of the year :) cheers!
 
+### 2019-01-02 12:50 - the minesweeper prediction
+
+this morning I watched kripp's minesweeper prediction he posted yesterday @[youtube](SbmBWbgsBnI) and it really got me thinking. I really like those sorts of symbolic things. I do them all the time myself to kind of get a feel for things.
+
+the crazy thing is I know those sorts of symbolic things work for me all the time, so I'm not at all disputing anything about it. I found it really cool that someone else does those sorts of things, too.
+
+anyway, for me the feeling I got when 2019 began was one where I was kind of beginning to get some liftoff. it feels to me like the beginning of starting to take things a little more seriously (I'm speaking personally), as I had a sudden shift in my desire to do things, "right." I'm typically pretty mamby-pamby feelings oriented, but it feels to me like I have to begin to run my life more like I would a business venture.
+
+the distance between where I am at now and the ideal of that, is considerable -- so, and it feels to me like there are a few rough spots ahead in that sense, as it's going to take a shift in my mindset from feelings oriented (creativity type thinking) toward a more of a business mindset.
+
+the way I interpret the way the minesweeper thing played out seemed to fit my present circumstances a little bit. the first click on the minefield is never a bomb, but in his game, very little opened up. usually you have a few paths you can use to begin opening things up, but this his starting place did not give enough information to make a good judgement about where to go.
+
+he picked and immediately the one he determined to be least likely to have a bomb, was in fact the bomb. life isn't minesweeper in the sense that it's the end of the game like that though.
+
+I'm king of mistakes, so that sounds about right that things would begin with a whole lot of unknowns and the path of least risk, I would run into the bomb immediately. no big deal for me, now :)
+
+I wouldn't say it's "fucked" (as if it were the first bomb ever encountered) -- lol, I just think I'm/we're gonna start off hitting a few bombs in the beginning :)
+
+---
+
+although I felt resonance with his minesweeper prediction, I also thought it was interesting they were casually talking about people flying in 2020, too :D yay!
+
+I will now superimpose the metaphor that 2018 was the runway, 2019 should be low-altitude turbulence, and 2020, I think think things will begin to cruise along smoother.
+
+nice :)
+
 # potential topics
 
 ### - so, what is "in the game?"
