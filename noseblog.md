@@ -3605,6 +3605,44 @@ I will now superimpose the metaphor that 2018 was the runway, 2019 should be low
 
 nice :)
 
+### 2019-01-02 16:31 - justification
+
+I was outside talking with jaron when I hit a rough subject. I would like to continue it here, because I have come to a new capability that I wanted to get some reactions on.
+
+so, I was talking with jaron about how when I was around zaryn, I had to essentially learn to throw my common sense out of the window in relation to spending money and such. what I explained to him is that I now, looking back, can see that zaryn and his friends are capable of throwing common sense out the window just for the night. I'm a bit different in that I did not previously have the ability to switch between modes like that. the way that I am is the way that I am in all environments.
+
+jaron agreed and said that he has the same thing relating the idea to the concept of lying, saying that he cannot just senselessly lie, and describing himself as, "all or nothing." I began to offer the idea of what may be the difference between people like us, and others.
+
+I have been studying this thing and the conclusion that I have come up with is that, they can modify their behaviour to be different than their default by justifying it. for example, someone with this capability could be fuming mad, and then come into contact with someone with whom they are supposed to be upbeat -- and so, especially if that person is valuable to them, they can change their demeanour nearly instantly.
+
+I found this to be extremely upsetting. where did that emotion go? for me, this was not possible. if I am whatever, then that is what I am. I have to slowly make my way up the emotional scale until I'm feeling good again. for me, there was no quick fix. so, how were they doing it?
+
+I found that that the common thread in all of this is a *reason* to feel a certain way, or some sort of *justification* for their emotional status. I don't justify what I feel. I am what I feel, because I essentially only have one mode of operation.
+
+this wasn't working very well for me because I really want my visual capacity. I really want to see out of my eyes clearly -- so, my observation of the absence of what is wanted made me feel a lot of anger and frustration. so, abraham advises to, instead of noticing its absence, instead know that it's on its way...
+
+got it. that's easy for me to do. in fact it's so easy for me to do, I regularly can begin to see images in my eyes. so, whenever that happens, I have made the transition from, it's coming, to it's here -- then I get shocked or whatever and I'm back to seeing its absence. returning to feel it on its way is sort of an exercise in masochism.
+
+so here I am now and I've got this impossible situation where I'm constantly forced to become aware of the absence of what I want. no matter how hard I try to no longer want my visual capacity, it only makes me want it more. it's sort of like when I see people run or move their body in a way which looks nice, I want to be able to do that too. no matter how hard I try, I will always want to be able to run, too. fortunately, I don't achieve the capacity to run only to be shocked or something back into being a gimp. you could imagine how disheartening that would be.
+
+really, the only thing that works is to distract myself. I do that by involving myself in creative things like programming -- but that's difficult at best now too. I get to choose between perceiving the absence of what I want and that's it, because if I see if coming, it does come and then goes again and I see again its absence which doesn't feel good. distracting myself isn't working so well either, so I'm sort of stuck.
+
+you can imagine now why I want to know how these other people are capable of switching between modes like that. like I said, I've found they justify their different than how they are normally feeling, feeling.
+
+that doesn't really work because how do I justify being shocked for coming into alignment with what I want. there is no explanation for it either, only denial from everyone around that it's happening. it's unjustifiable. there is no way that I can figure out to justify it. the best one I came up with is, they will find a way of holding back the manifestation in my imagination for so long, that the energy would eventually build to be big enough to create a new planet/star/galaxy/universe/etc.
+
+that's a bit of a reach, even for me. certainly there has to be a justification. ok, so now I'm on to they have military secrets in there and they need to keep them secret. maybe there are a whole bunch of people who are living / will live inside of my inner universe.
+
+these are all justifications I'm attempting to come up with to try and allow my to justify feeling something other than frustration and depression.
+
+---
+
+as it turns out (and I'm sure you're seeing) that I have begun to develop the capability to feel the way I want to feel even without justification for the feeling. I don't really know how I'm doing it yet. I just sort of decide the way I want to feel, or something like that.
+
+I essentially wrote this to begin myself to come to an understanding of what I am now achieving in this new freedom to feel the way I want to feel. as I understand it better, I perhaps can transmit some things to guide others who want to make the way they feel less conditional and for my own improved control over it, too.
+
+you know it takes a real hardass to, contrary to the current conditions, feel something other than the what all logic and reasoning would dictate them to feel
+
 # potential topics
 
 ### - so, what is "in the game?"
