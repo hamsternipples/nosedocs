@@ -3643,6 +3643,62 @@ I essentially wrote this to begin myself to come to an understanding of what I a
 
 you know it takes a real hardass to, contrary to the current conditions, feel something other than the what all logic and reasoning would dictate them to feel
 
+### 2019-01-05 05:57 - let the games begin :)
+
+the last line in my previous entry got me thinking, because... I can imagine that in a military situation, one would normally feel sympathy, regret, or some other form of negative emotion when giving the orders to soldiers to go into situations that the person giving the orders knows they will not come out of alive.
+
+I could imagine that there are rules in place which prevent those in command from feeling anything that would prevent them from giving those orders. they probably need to maintain enough distance from the situation to be able to do that.
+
+I could also imagine that in my situation there are probably other people that would be saying that those giving the orders to shock me and so-fourth should feel something, but they do not; they follow the rules. they are real hardasses about it.
+
+I have taken that capability one step further. just like them, I too am now running my emotions through a set of rules, because, like I said, there is no way that I can come up with which allows me to justify my circumstances.
+
+the commander of the army can justify his lack of sympathy or humanity by saying that the battle must be won at any cost. I too have adopted this principal as well :)
+
+let the games begin mutherfuckers
+
+### 2019-01-05 06:11 - don't let your left hand know what your right hand is doing
+
+this concept popped into my head this morning and it got me thinking. I have no idea what jesus was referring to -- in fact, it's one of the scriptures that has always puzzled me -- especially since I have a lateral brain injury.
+
+for me it's a little easier to comprehend this idea than most people, I think. I am capable of separating my sides like that, which I don't believe most people can.
+
+before vallecas, I used to be able to do entirely different things in each side and not have them interfere (*asterisk*). nowadays, I'm not capable of doing this with action, but with thought. it's easy to see the sides of my brain warring with each other, often times you will see me visually want to take one action, and then the other side is sorta like ... no, we're not doing that.
+
+the next thing that often had me puzzled about jesus was his mention that "when thine eye become single" -- something I've often wondered about, because it seems to make reference to something I have only had the privilege of experiencing a few times while watching stars. if I had've known that people were actively trying to make that impossible for me, I would have stayed extended time out watching stars. I often times decided to try again tomorrow, only to find the task increasing in difficulty. I also noticed an increasing astigmatism in my left eye, and was the reason why I began to stare into the sun.
+
+again, if I had of known that the astigmatism was caused by people trying to prevent me from seeing out of my left eye, I would probably not have stared into the sun. it worked out though because after my eyes got used to the sun, I can actually see out of my eyes way way way better since. the only reason why they're blurry is the same reason why I have an astigmatism (on both eyes now).
+
+---
+
+anyway, so it got me thinking a bit about it, and besides the idea that may be evidence (along with perhaps other things) that jesus may have had a lateral brain injury as well.
+
+so, onward to lateral brain injuries... in a previous concept that I made the startling revelation that it's quite likely that a universe lives inside the mind of someone. this follows hermetic teaching and would seem to me to be the most logical conclusion one could make, as well. it seems to me this would be where the circle of creation is completed, where the snake bites its own tail, etc.
+
+then, I postulated that perhaps we are living in universe made of language, a concept that is quite popular in the bible (God made the world with words), and then that word became flesh as jesus.
+
+so, to imagine this in real-life terms, the bso would allow many people to live inside of this universe made inside of my head. you could imagine that it would be created and controlled with words (thoughts).
+
+so, for simplicity sake, let's say there are 1bn people living in this universe inside of my head. wait, let's make it easier. let's say 1000 people are living in a really small environment inside of my head. it doesn't really matter much, but they begin in an environment, a garden perhaps, and then they go on living their lives inside of this universe.
+
+different people will procreate and make new "real" lives in this universe. however, the bso can only see through their parents eyes, because the parents are connected to the network.
+
+so, there was this funny conspiracy theory I read a long time ago saying that nicholas cage was a time traveler, sighting that he has many lookalikes through many time periods. I found that hilarious at the time, because why on earth would a time traveler go through all the trouble of jumping through time to blast through the box office with so many 2-star masterpieces -- I dunno.
+
+anyway, if nick were a bso body resident in the parent universe, every time that he "reincarnated" into a body, I find it highly likely that he would imagine himself to look similarly. quite plausible. I suppose, if that were so, then I would imagine his movies would have a theme to them (no matter how bad they are). I don't actually know, because I've only seen the one where he stole the constitution -- and I believe I was very drunk at the time, cause I remember it being hilarious.
+
+---
+
+so, here's where it all fits together: jesus had very keen eyesight. so did tesla, and probably some other people. well, I imagine that after a certain limit, these guys won't be able to reliably look through their eyes any more. they would have to rely on the language side of the brain (right hand) to know what is happening in the person's experience, because they wouldn't be able to look through the visual (left hand) side.
+
+that would have been true in his time, but in our time we have present-day bso to ensure that all information can be transmitted upwards.
+
+so, I imagine that may be why they are attempting so much to keep me from going up to the next dimension.
+
+---
+
+I think it's fine though, because I will eventually go up to the next dimension and they'll lose ability to control me... I'm not worried about that, as I've proven to myself so many times now that I'm capable of getting into alignment with what I want, I don't see that as any problem at all. instead, I'm learning how to not need the manifestation to feel good. my circumstances actually have me in the most difficult of situations to do that, but as I mentioned in my previous entry, I actually have the best teachers to teach me to be militant and regimented in my posture (well, as militant and regimented as they are anyway, cause I'm essentially just copying them).
+
 # potential topics
 
 ### - so, what is "in the game?"
