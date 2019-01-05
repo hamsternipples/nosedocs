@@ -3683,7 +3683,7 @@ so, for simplicity sake, let's say there are 1bn people living in this universe 
 
 different people will procreate and make new "real" lives in this universe. however, the bso can only see through their parents eyes, because the parents are connected to the network.
 
-so, there was this funny conspiracy theory I read a long time ago saying that nicholas cage was a time traveler, sighting that he has many lookalikes through many time periods. I found that hilarious at the time, because why on earth would a time traveler go through all the trouble of jumping through time to blast through the box office with so many 2-star masterpieces -- I dunno.
+so, there was this funny conspiracy theory I read a long time ago saying that nicholas cage was a time traveler, sighting that he has many lookalikes through many time periods. I found that hilarious at the time, because why on earth would a time traveler go through all the trouble of jumping through time to blast through the box office with so many 2-star classics -- I dunno.
 
 anyway, if nick were a bso body resident in the parent universe, every time that he "reincarnated" into a body, I find it highly likely that he would imagine himself to look similarly. quite plausible. I suppose, if that were so, then I would imagine his movies would have a theme to them (no matter how bad they are). I don't actually know, because I've only seen the one where he stole the constitution -- and I believe I was very drunk at the time, cause I remember it being hilarious.
 
