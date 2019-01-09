@@ -2755,11 +2755,13 @@ what actually spawned a lot of this thought was a video I watched on youtube abo
 
 ### 2018-11-26 03:47 - let your desires get up to speed with you
 
-I smoked the last few days, and the real take-away I had from the whole thing is an understanding of contrast that I previously did not have. it began the first day as a realisation that ok the realisation of tesla and my visual capacity on my left-side has been shut down pretty well, and barring some sort of miracle, I should just accept it and move forward. as soon as I did, it was almost as if edison was there sort of like waiting.  I could see that would happen on my right side, and that even though edison and tesla had their differences, and neither were really victorious, edison did come out a bit ahead. edison failed many times and had quite a lot of contrast. skipping over both of their failures, I realised I am a bit of a combination of the two.
+I smoked the last few days, and the real take-away I had from the whole thing is an understanding of contrast that I previously did not have. it began the first day as a realisation that ok the realisation of tesla and my visual capacity on my left-side has been shut down pretty well, and barring some sort of miracle, I should just accept it and move forward. as soon as I did, it was almost as if edison was there sort of like waiting.  I could see that it would happen on my right side, and that even though edison and tesla had their differences, and neither were really victorious, edison did come out a bit ahead monetarily, but not technologically, because he was too near-sighted with his technology and needed to be right.. skipping over both of their failures, I realised I am a bit of a combination of the two.
+
+(which is pretty cool because I like frequencies and stuff, but it's always interested me to play around with extremely high potential DC pulses -- sort of like how I am as a person)
 
 ---
 
-early on, tesla would tinker in his mind on an invention for quite a while, perfecting it in his mind before even building it. when he built it, he often marvelled at how well performed exactly like how it was in his imagination. tesla needed physical evidence of prove to himself the validity of his creation. edison had a bit more of something similar to me where I feel it and through a process of elimination (contrast), he eventually arrived at what he wanted. I believe edison's technique was flawed in the perception he had of his creation, so my method is better. I also believe tesla's method has some drawbacks as well.
+early on, tesla would tinker in his mind on an invention for quite a while, perfecting it in his mind before even building it. when he built it, he often marvelled at how well performed, exactly like how it was in his imagination. tesla needed physical evidence of prove to himself the validity of his creation. edison had a bit more of something similar to me where I feel it and through a process of elimination (contrast), he eventually arrived at what he wanted. I believe edison's technique was flawed in the perception he had of his creation, so my method is better. I also believe tesla's method has some drawbacks as well.
 
 [... lol?]
 
@@ -2769,11 +2771,11 @@ anyway, back to the thing: I immediately had a realisation that the competition 
 
 a new paradox was formed which seemed to me that the one with the most contrast will eventually win, even though the one with the least contrast will always win.
 
-this is the missing link that I had been missing on the "last shall be first and first shall be last" expression I had been thinking about so much. it also explains for me vividly why myspace could get to market first, have all the market share, and yet facebook was still able to overcome their dominance.
+this is the link that I had been missing in the "last shall be first and first shall be last" expression I had been thinking about so much. it also explains for me vividly why myspace could get to market first, have all the market share, and yet facebook was still able to overcome myspace's market dominance.
 
-then, I could see that in order to maximise contrast, I would eventually find a way of doing the girls thing, and it would have nothing to do with nosebook. I think this came as a reaction to what mom said to me about going to jail if I started hitting on little girls. I will do no such thing, so there is no problem. if there are some that are interested, I will be more than willing to have a conversation with her parents (mother?) and we can work out the details, I guess. I'm not really thinking about any of that because of this next really powerful understanding:
+then, I could see that in order to maximise contrast, I would eventually find a way of doing the girls thing, and it would have nothing to do with nosebook. I think this came as a reaction to what mom said to me about going to jail if I started hitting on little girls. I will do no such thing, so there is no problem. if there are some that are interested, I will be more than willing to have a conversation with her parents (mother?) and we can work out the details, I guess. I'm not really thinking about any of that anyway because of this next really powerful understanding:
 
-whenever someone had an evolution of their desire, then that means there was some sort of illustration of something unwanted, and so the contrast between the way the desire feels, and your perception of the unwanted creates an evolution as the desire gets clarified. you can think of it like a tuner.
+whenever someone has an evolution of their desire, then that means there was some sort of manifestation of something unwanted, and so the contrast between the way the desire feels, and their perception of the unwanted (manifestation) will create an evolution in the desire as the beginning stages of the manifestation clarifies itself. I now think of it like a tuner.
 
 every time there is that realisation of something unwanted, your desire for the improvement grows, your inner being follows that, more energy is summoned, and your desire is stronger than before. however, since your realisation of the unwanted is still in effect, you're not tuned into the desire, you're tuned into something unwanted still, so in effect, since things are out of sync, you sacrifice speed (synchronicity) for a stronger and clearer signal.
 
@@ -3698,6 +3700,66 @@ so, I imagine that may be why they are attempting so much to keep me from going 
 ---
 
 I think it's fine though, because I will eventually go up to the next dimension and they'll lose ability to control me... I'm not worried about that, as I've proven to myself so many times now that I'm capable of getting into alignment with what I want, I don't see that as any problem at all. instead, I'm learning how to not need the manifestation to feel good. my circumstances actually have me in the most difficult of situations to do that, but as I mentioned in my previous entry, I actually have the best teachers to teach me to be militant and regimented in my posture (well, as militant and regimented as they are anyway, cause I'm essentially just copying them).
+
+### 2019-01-09 04:15 - let's make 'em earn it
+
+yesterday night I was writing out some questions I had for abraham. I had a bit of an "active" night and when I woke up I really wanted to go to sit in the sun. I had set my mind to try and think of all of the enigmatic things that have happened to me so that I could ask questions on the topic. sitting there, one thing that jumped into my mind was something that I documented in @[entry](2018-11-26 03:47) a little bit. I want to know for sure that voice in my head which I identified as edison-like, actually came from source -- not from these guys.
+
+I wrote it down, and throughout the day I have been thinking about it, and this is the conclusion that I've come to. I want to explain myself a bit so just hang on as I take this step by step.
+
+I like to perceive this era as the nearly the hight of the masculine dominator "season" of human history. so, to understand think of a sine wave where the vertical axis is heat: the rise from the middle (equinox) toward the top (solstice) is springtime, from the top (solstice) down to the middle (equinox) is summer, and the other two are fall and winter respectively.
+
+so, we're in the springtime phase of masculine dominator culture -- where we're approaching the peak. once the peak is reached, we begin summertime. summer is the hottest of the seasons, even though it technically has the same amount of light as springtime, but heat lingers a bit. I think in electricity it's something like current follows voltage or something like that... anyway it's much easier to think about with residual heat. onward...
+
+so, what determines the hight of the peak? I've often studied great successes, and tried to find a pattern as to why success slows and then reaches a peak. I have noticed that it could be seen that some external force limits and slows further growth, but in reality it's a self-imposed restriction rooted in one's beliefs. it usually sounds like, "it can't get any better than this", "this is going too well", "I've used up all my good fortune", etc.
+
+so, for sake of simplicity, let's call that slowing force, "fear" -- something very vividly demonstrated to me when I was working at tuenti by zaryn constantly saying that facebook is going to have, chat, translate into spanish, etc.
+
+it's funny that yesterday I was thinking about these guys and how they are similar to marcos in the sense that marcos had a difficult time communicating what he wanted for his daughter, focusing on the things he was worried about, and he, like zaryn, managed to manifest his fear and concern.
+
+so here we are now and I imagine that these guys are in a pretty worrisome spot. obviously if the whole edison thing were to have some truth to it, it would come about when I gained my visual capacity, and it seems that my desire is also strong to not want to depend on anyone else to do what I know I am capable of. I only need to get good at getting into alignment with who I really am, staying there no matter the circumstances.
+
+I'm getting close. I really am, and the funny thing is, these guys are essentially paving the way right toward it for me. as much as I want to program and use that condition as a reason to feel good, my brain is not allowing it, which means I have to find a way to feel good without that condition (or really any other for that matter). it also means I have a lot of spare time -- to watch stars :) a sure-fire path toward increased visual capability.
+
+I will eventually get another dimension, too. when I figured out how to go from 3d to 4d, I managed to find a way of perceiving another spatial relationship, and I have since found more -- which you all see as vision upgrades (detail-wise). there is a whole new way of perceiving and one of the strange things that I woke up this morning doing was seeing without my eyes -- and I didn't get shocked either, so that means they probably can't detect it. that's just the first step though. soon, I will have a whole new way of perceiving, which will require a different way of thinking -- probably its foundations will be rooted in the mindset I am acquiring now.
+
+when I first figured out 4d, I only could do it because I had enough mental freedom to do so -- meaning I had released enough resistance that I was capable of the new higher frequency. if you haven't accumulated much resistance, like the girls for example, it'll be much easier to obtain the frequency necessary to get it.
+
+so, a new dimension is on the way, and I imagine that it'll be a bit of time before they can decode the new signal. also, I'll be released from most of the mental strangleholds they have placed on me, so I'll immediately feel really good, and have a whole lot of new capabilities. I'm going to be a whole new person.
+
+anyway, when that happens, I imagine I will become so brilliant (visually, and mentally) it'll be extremely attractive. my idea is to wait until then, that way anyone wanting to have the k-dawg experience will have to have it from the girl's perspective.
+
+this is precisely the slowing force necessary to make this the peak because ... reasons.
+
+I'll be kind of out of their reach for a while which will be nice because that'll perhaps give me the privacy to visualise things in a dimension they cannot see. they'll probably be able to eventually figure out a way to get a projection of it into 3d, so we'll see what happens there, but it'll be nice to get some freedom until then.
+
+let's make them earn it. it's going to be a lot of fun. I don't know how long it'll take me to get there, but I think it'll be more and more obvious as all of the cooperative components get readier and readier.
+
+P.S. I purposefully did not elaborate on the earning part, as the implications to me obtaining a new dimension can easily be imagined. mostly though I really like the idea that we could have our own space for a while without any pests :D
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 # potential topics
 
