@@ -3762,7 +3762,49 @@ you know what would be really trippy? imagine there was another earth-like plane
 
 you could imagine then, over there something similar where I would be a little boy that got an early start of life like andrea did here... another interesting thought experiment I enjoyed.
 
+### 2019-01-10 09:06 - the cosmic nosedive
 
+so, in my quest to try and figure out what's going on, this is my latest theory:
+
+when fwh said I had until 2038, I think that was the current record for longest nosedive (continual contrast).
+
+the reason why I think that is so is because my life has never been about the manifestation. one of the most common things I got said about tuenti was people telling me how successful they were at hooking up with the site. I always told them I'm glad it's working for them. what I'm trying to say is that I have never had a "success" in my life where the success was what I was looking for. I have always found what I was looking for inside of me.
+
+I have also noticed my life energy increasing over the years and especially in multiples of 11, and 2038 is when I turn 55.
+
+so, last night I mentioned that likely when I turn 36 there will be another increase in energy and the previous entry @[entry](2019-01-09 04:15) was to make sure they were prepared enough to keep me from the manifestation.
+
+so, here's why I think it's important to keep me from the manifestation: I think I'm so high energy now (post 33) that whenever a manifestation happens now it's sort of hard for me to be contained. things probably get too extreme too quickly, cause what I'm really looking for is to come into alignment with myself.
+
+in fact, I think I'm so high energy that it probably takes a bit for me to get up to speed with who I really am. I have to get a pretty serious running start in order to not have things get way out of control when the energy hits. it seems that this sort of energy has numerous other energies that precede it in time, kind of like to begin preparing the path for its arrival.
+
+so, just for round numbers, let's imagine that 100 years is the time limit I would have to fully get into alignment with myself. every 11 years, the energy takes a big step up and I have to be ready for that.
+
+here's where the nosedive comes into play: like I mentioned in a previous entry, constant contrast will be an exponentially accelerating acceleration, so the duration of time I'm on this planet I've got to maintain contrast (nosedive) for as long as possible without a manifestation. that way, when I die, and the energetic effect I had on the planet is taken away, the planet also plunges into the dark ages and does its own nosedive.
+
+the recession of energy and the following nosedive creates such strong desire for my return so that light can be restored. what I can't figure out is why it would be that people would want me to return so that light can be restored, but probably it's the best way to create that strong desire.
+
+each time, I fight with the rulers of the earth, making them stronger each time, because eventually they will be able to provide such downward force (contrast) that when I finally come into alignment with who I really am, I'm actually ready and things don't get super crazy.
+
+so, it's probably true that my time here will only increase the male dominator energy as I fight against it -- and one day perhaps they'll be able to actually contain me long enough for me to actually come into alignment with who I really am here in the physical.
+
+---
+
+so, I think this message is positive because it helps me to understand why I feel that it's good that they're keeping me from the manifestation, yet at the same time I feel the need to continue to try and move toward what it is I want (coming into alignment with myself) at all cost.
+
+the great thing is, now that I'm conscious of what is happening, so I can fight them constantly to keep up the contrast and make sure they're constantly improving their capability to limit me, so they don't drop the ball and some sort of manifestation happens.
+
+so, I know now that I have to push hard so they keep pushing back, but not too hard that I get a manifestation, but not too soft that they lighten up and a manifestation happens, either.
+
+it's good because now I know what to do, and I can have fun with it... we've yet to find the peak of the male dominator energy :)
+
+---
+
+so, I'm sorry you guys are on this voyage with me. if you don't like it, you know, you create your own reality, so really any manifestation that you want is available to you. I personally will never see it from my perspective, and that's because I'm in the process of creating my own reality (coming into alignment with who I am) which isn't a determining factor in any reality you create.
+
+so prepare for the most. epic. nosedive. ever. :D hopefully I can last the the entire time without a manifestation as this human body gets faster and faster energy in preparation for coming into alignment with who I really am. that may be a bit of a long-shot, so for now I'll just set the goal of a new record of 33 or 44 years (2049 or 2070).
+
+imagine my other theory about the parent universe bso and them running this universe inside of my head in the parent universe... obviously, they don't want me to get the manifestation either, so they want to ensure present day bso maintains control and keeps me from the manifestation. we all want the same thing, in the end.
 
 
 
