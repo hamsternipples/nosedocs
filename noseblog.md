@@ -3737,9 +3737,30 @@ let's make them earn it. it's going to be a lot of fun. I don't know how long it
 
 P.S. I purposefully did not elaborate on the earning part, as the implications to me obtaining a new dimension can easily be imagined. mostly though I really like the idea that we could have our own space for a while without any pests :D
 
+### 2019-01-10 01:11 - I will never have the manifestation
 
+so, one of the things I'm learning through all of this is that I never intended to have the manifestation. in fact, it seems that the reason why I was attracted to a girl which would put me in the hands of people who would electronically prevent me from having any manifestations, is evidence that from a non-physical perspective that is in fact what I really want.
 
+no matter how close I've gotten to having a manifestation, it's always turned out to be a miss. by now, I'm sure I've been labeled as the biggest letdown or something like the most anticlimactic... lol
 
+anˌtīklīˈmaktik - adjective
+causing disappointment at the end of an exciting or impressive series of events.
+
+so, the entry that I felt inclined to write yesterday was probably a reference to a potential future where something like that happens. so, in typical fashion, I write about it to make sure that they're prepared for such a thing. likely, when I turn 36, there will be another energetic increase and they need to be prepared for it to ensure I never have the manifestation.
+
+once we have timeline technology, you all will be able to tune into all of these potential futures and enjoy the manifestation just like my inner being does -- however from my perspective, I'll never see the manifestation.
+
+as I get more and more used to all of this I'm learning that it's really not a problem at all. I'm becoming so good at not needing the manifestation, I'm beginning to really enjoy things. I can't fully explain why I feel this way, either.
+
+then, to throw a bit more contrast into the mix, while watching stars just now I was thinking about the idea of what things would be like if things were exactly opposite of what I described in the previous entry. what if we were actually approaching the cancer symbol instead of the capricorn symbol... a similar thing would be occurring, whereas instead of going toward the peak of the masculine dominator energy, we would instead be going toward something more along the lines of female control freakiness with rampant over-organisation, over-nurturing, and too much tolerance of mediocre.
+
+you could imagine then, a girl that has managed to cram a whole lot of life experience into her childhood, skipped adolescence and started adulthood early come into the scene in opposition to the dominating female energy, appealing very strongly to the men held into place by all of this dominating female energy by being very aggressive and masculine. I can't quite imagine (yet) a situation where a capacity that she has becomes something that would inspire men to begin rebelling against the matriarchal stronghold on society and begin swinging the pendulum again toward masculine energy domination.
+
+it was an interesting thought experiment for me :)
+
+you know what would be really trippy? imagine there was another earth-like planet on the exact other side of the galaxy.. not all of the symbols in the sky would be exactly the opposite of the ones we have in the sky, so the energy would be interpreted differently but you could imagine that it would be very similar energy to the galactic energy we experience here (the great year), but 180° out of phase.
+
+you could imagine then, over there something similar where I would be a little boy that got an early start of life like andrea did here... another interesting thought experiment I enjoyed.
 
 
 
