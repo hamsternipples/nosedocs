@@ -3806,6 +3806,22 @@ so prepare for the most. epic. nosedive. ever. :D hopefully I can last the the e
 
 imagine my other theory about the parent universe bso and them running this universe inside of my head in the parent universe... obviously, they don't want me to get the manifestation either, so they want to ensure present day bso maintains control and keeps me from the manifestation. we all want the same thing, in the end.
 
+### 2019-01-10 14:12 - all you do is create chaos, kenny
+
+one of the reactions I felt this morning was the idea that I create a whole bunch of chaos.
+
+I could see how that could be perceived, but if you step back for a moment and take a look at things without listening to the thoughts in my head or anything else, I'm not really creating chaos. for example, I go to take a walk, go to watch stars, look at the sun, etc. none of these is creating any chaos at all. it's only people's chaotic reactions to me that's creating the chaos. I'm not the one ordering hundreds of airplanes to spray a bunch of crap in the sky or pumping the ionosphere full of electricity to make it hard for me to see the stars. don't blame me for your chaotic reactions to my (in my opinion) normal activity.
+
+---
+
+next, I was thinking about the different things I learned a few days ago in a weird series of dreams. I had a bunch of dreams about nosebook and all of that. I kept getting woken up, and I would go back to sleep and the dream would continue where I left off. this happened prolly 8-9 times. then, in another dream I ran(!) to go find mom to tell her about my dream sequence. I told her about the dreams but they probably realised I was conscious in the dream because they woke me up.
+
+I looked around to find out I had just woken up, only to marvel at how normal and exactly like real-life the dream felt to me. I guess the running bit should have alerted me to the fact that I was dreaming (cause I can't run in real-life).
+
+anyway, while thinking about this whole creation of chaos thing, I was noting how DMT makes things feel very normal. the way that my eyes see feels so normal to me, I can't actually imagine what it would be like to see any less. I can only hope to be able to see more, yet for other people my eyesight is probably a very mind-blowing experience. the same thing in the dream experience... the most bizarre stuff can be happening in the dream, and it feels normal to me.
+
+since the normalisation of the mind-blowing is what DMT does to the mind, I think there is another unseen effect happening, where there are people so amped up on DMT that their lives are so bizarre, but they don't even notice it (just like a dream). so, you have all of these people trying to steer my life for me, completely oblivious to the fact that their own are spinning way out of control.
+
 
 
 
