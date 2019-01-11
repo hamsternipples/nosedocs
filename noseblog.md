@@ -3840,7 +3840,19 @@ I suppose it may seem like a bad idea now, I just was thinking this morning that
 
 additionally, regarding the fear that when I die that energy will go away... I mean I don't have anything to back this idea up, but I imagine that children produce a lot of energy too. the same mechanism could be used to siphon off their energy to keep the dinosaurs alive. I mean you're already neck deep in freeloading off of others to do what you don't feel/want to do yourself -- so why not just double down on it. same thing for the kids... like me, they'll just find ways of making more energy.
 
+### 2019-01-11 13:31 - earth's twin and dominance hierarchies
 
+so, I've been playing around with that thought experiment with another earth-like planet on the other side of the galaxy quite a bit, and I'll be writing more about it because as I reverse the symbols and let the thing play out, I notice what emerges is very much the same thing: the realisation of the individual.
+
+whether it's the hight of female dominator energy or masculine dominator energy, what ends up emerging is an individual that says, you guys go prove your dominance to those who care; I'm going to do my own thing.
+
+> dominance - an imposed external recognition of one's own value
+
+I actually want to kind of write a bigger thing (more than just a blurb like this) about how I perceive this opposite earth, because I really find the scenes that play out in my mind to be quite illuminating.
+
+I might even make it into a full kind of "production" in the sense that there are characters, a storyline, and interactions that kind of illustrate the idea it in a more visual way. it would be mostly symbolic, a kind of like homer's illiad.
+
+I'll play with the idea a bit more
 
 
 
