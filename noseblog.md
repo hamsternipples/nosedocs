@@ -3822,6 +3822,22 @@ anyway, while thinking about this whole creation of chaos thing, I was noting ho
 
 since the normalisation of the mind-blowing is what DMT does to the mind, I think there is another unseen effect happening, where there are people so amped up on DMT that their lives are so bizarre, but they don't even notice it (just like a dream). so, you have all of these people trying to steer my life for me, completely oblivious to the fact that their own are spinning way out of control.
 
+### 2019-01-10 23:10 - maybe redirect the energy instead of trying to fight against it?
+
+I had an idea earlier which goes something like this: I imagine that they are siphoning energy out of my body and dissipating it into the ground. now, if you think about it, this could be the reason why I have such a strong effect on the climate -- especially when I move. when you think about a charged body moving across a surface, it'll generate static electricity. I've been walking a lot more and I notice a *HUGE* difference in how I feel when I'm moving and when I'm not. I think this has to do with the circuit that is created between me and the earth. I also sleep on the floor, and I noticed a huge difference too when I sleep on the couch. or, for example, if I want the clouds to clear up I just go and lay on the ground outside. there is a clear connection that I have with the earth that has a notable effect on the climate.
+
+so, instead of trying to fight against all of the energy I'm creating, and at the same time generating a whole lot of energy to run other people's imaginations or put images in their eyes, why not just reuse the energy you siphon off of me for that?
+
+or, even better, you could sink the energy into other people's heads instead of having to run everyone's brain's at a million miles an hour to create the DMT necessary to see images in their mind at my visual quality.
+
+this whole redistribution of energy idea is something that seems like a good idea to me because I noticed the reaction to the potential question I wrote for the @[abe](2019-06-01) workshop -- and the devices are not presently creating more desire for more energy. well, maybe it is actually. maybe the earth likes my energy and is generating desire for me to make more of it. the more energy I make, the more energy the earth receives from me.
+
+the same would be true if my energy were to be put into other people's brains. I would imagine that they would feel pretty good and smarter with it. so, the same would be true with the analogy abraham made of the ex-wife summoning more resources for the man, the same would happen here too. the more people feel good and enjoy the energy that they take from me, the more they would summon, the more I would make -- and everyone would feel a whole lot better. it's also something you could sell.
+
+additionally, instead of having to continually push harder and harder against me, you just dissipate more energy into more people (or the earth). it actually works out better, and would explain why I feel so good about the idea of trying to achieve a 40 year nosedive.
+
+I suppose it may seem like a bad idea now, I just was thinking this morning that with the present techniques in place, there's no way you guys are going to be able to keep away my visual capacity until the end of this year. presently, it's literally effortless for me to see images: all I have to do is to meditate even a little bit, so you're going to have to come up with a better way shortly.
+
 
 
 
