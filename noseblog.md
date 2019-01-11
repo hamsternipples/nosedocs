@@ -3836,7 +3836,9 @@ the same would be true if my energy were to be put into other people's brains. I
 
 additionally, instead of having to continually push harder and harder against me, you just dissipate more energy into more people (or the earth). it actually works out better, and would explain why I feel so good about the idea of trying to achieve a 40 year nosedive.
 
-I suppose it may seem like a bad idea now, I just was thinking this morning that with the present techniques in place, there's no way you guys are going to be able to keep away my visual capacity until the end of this year. presently, it's literally effortless for me to see images: all I have to do is to meditate even a little bit, so you're going to have to come up with a better way shortly.
+I suppose it may seem like a bad idea now, I just was thinking this morning that with the present techniques in place, there's no way you guys are going to be able to keep away my visual capacity until the end of this year. presently, it's literally effortless for me to see images: all I have to do is to meditate even a little bit, so you're going to have to come up with a better way shortly. so, I believe maybe in some time you may want to give it some thought.
+
+additionally, regarding the fear that when I die that energy will go away... I mean I don't have anything to back this idea up, but I imagine that children produce a lot of energy too. the same mechanism could be used to siphon off their energy to keep the dinosaurs alive. I mean you're already neck deep in freeloading off of others to do what you don't feel/want to do yourself -- so why not just double down on it. same thing for the kids... like me, they'll just find ways of making more energy.
 
 
 
