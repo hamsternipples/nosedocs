@@ -3854,9 +3854,21 @@ I might even make it into a full kind of "production" in the sense that there ar
 
 I'll play with the idea a bit more
 
+### 2019-01-11 18:43 - triangle of control
 
+the other day I was playing with this idea of self-control, and depending on the perspective, the common aspect is that I/he is uncontrollable. I thought this was interesting because no one would ever say I want to be out of control or I want him to be out of control -- or, I want to lose control, or I want him to lose control. here are some transformations on the idea.
 
+[imperative / desire]
+I want to be controlled        <-> I want to control him.
+I want to follow his commands  <-> I want him to follow my commands
+I want to be controlled        <-> I want him to be controlled
 
+[observation / conclusion]
+I have self-control            <->  I have to control him
+I have to follow my own orders <->  he's out of control
+I have to be uncontrollable    <->  he's uncontrollable
+
+if you look at the last line in both, it sticks out as something different from the rest. I'd like to revisit this topic more in the future, because I think the key to my understanding this concept lies in that that last line. also, I believe they may be better visualised as tetrahedrons instead of triangles. I need another transformation to add the extra dimension.
 
 
 
