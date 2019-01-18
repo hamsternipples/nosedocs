@@ -3914,7 +3914,9 @@ I may have liked her, but in the end I just wanted to prove my strength and grea
 
 just watch: I'm going to make lucifer's nosedive look like child's play :D
 
+### 2019-01-18 07:26 - of course I'm settin' myself up for failure...
 
+pretty good setup, right?
 
 
 
