@@ -3870,6 +3870,50 @@ I have to be uncontrollable    <->  he's uncontrollable
 
 if you look at the last line in both, it sticks out as something different from the rest. I'd like to revisit this topic more in the future, because I think the key to my understanding this concept lies in that that last line. also, I believe they may be better visualised as tetrahedrons instead of triangles. I need another transformation to add the extra dimension.
 
+### 2019-01-18 00:48 - going a tope
+
+I had an interesting conversation with gary today about getting paid. he wants me to be on payroll and not pay me cash. it's obvious that this is a directive coming from the guys manipulating things. it feels to me like maybe they want me to not have weed during the eclipse and and trying to delay the whole thing. or, maybe they want to force me to "do everything by the books".
+
+either way, it doesn't feel good to me. it feels like it'll make me get stuck. I was mulling it over on the walk home and the best reason I can come up with is I'm content right now just making this thing. I do not really consider myself to me a person that enjoys spreadsheet programming. in fact, I probably would really like to be creating something really "amazing" or maybe even something that interests me. I don't really have a whole lot of interests right now, so accomplishing things in spreadsheet programming is... something. it's kind of a lame excuse I'm using right now to feel good.
+
+so, in a sense the "payment" I'm receiving from the work is the sense of accomplishment and the good feeling I get from actually making something (even if it's a boring spreadsheet). therefore, if I were to receive money for it, I'm now no longer doing it just cause I want to do it. that good feeling is gone and it's a job now; now, I'm getting some sort of compensation for my work in the form of money which I now have to turn into a good feeling.
+
+---
+
+I cannot think of anything that I would want to purchase right now if I had money, other than drugs. the reason for this is, money doesn't make me feel independent. no matter how much of it I have nosebook is still going to be making my sleep awful. if I have a car, the only thing I would do is use it to try and and outrun the clouds so I can watch stars.
+
+money does nothing for me. drugs are where it's at for me because the thing that I want more than anything is unlimited access *TO MY OWN MIND*. I want to see the images, hear the voices, make the music, meet the strangers in my head, and discover new limits to human consciousness.
+
+so, forget weed man. I'm just going to focus real hard, keep powering up with the stars cause it forces me to utilise the power of my focus and direction of energy, instead of trying to utilise physical means to discover what is actually on the inside of me.
+
+I don't really want to drive a car, because I'll just try to escape the clouds to watch stars instead of improving my focus and affecting the climate with my mind. I'd also much rather fly. so pffft, not gonna do that.
+
+also, instead of slowing myself down with weed (I've been wanting to take a break for quite a while now), I'm just going to increase my focus to thn point where I'm actually in control of my energy in a way that I can instead jump right toward ketamine, shrooms, and mdma.
+
+---
+
+I'm just going to keep working on this for the fun of making something. he has no choice but to not pay me. it's what I want, it keeps my away from "drugs" for now, and he won't pay me in cash either, so I guess yeah... no break, increase focus and achieve all those things instead with the power of my focus :)
+
+peace out, chumps
+
+### 2019-01-18 01:12 - clocks and the egoista
+
+today I felt to make a comment about how I really liked how raquel, first thing she did without consulting me or anything was to just take all the clocks down from the wall. I particularly disliked their sound, but since no one I have ever met gets annoyed by the ticking of a clock, I just have learned to put up with it. after reaching some point of frustration I probably would have took them down, but she did that right away and I thought that was really cool.
+
+anyway, immediately following that comment, I had a newish thought (I think it popped up once before) about a theory that in a another timeline raquel and I did quite well together, and I find it very probable that we/I would have discovered star watching on the terrace roof, because that was my favourite thing about the roof. I was just far to drunk every night to ever see the stars in any clear capacity.
+
+anyway, it seems to me that there is mounting evidence that every single relationship that could have formed had a sudden plot twist that seemed to change the course of the relationship.
+
+---
+
+raquel always called me egoista much before I became conscious of it. I just thought that was normal and you were supposed to have a really positive self-image. so, it seemed that I really liked raquel, and at the same time she stuck me in a network where I would find myself in the most difficult of a situation to remain an egoista.
+
+I had some trouble getting to this point, yet now, I find it invigorating that *literally* the entire world is working against my strong desire of self-realisation. so, just watch me as I power up and gain strength, because it's gonna feel so good to show everyone the most extreme definition of egoista humankind has ever seen.
+
+I may have liked her, but in the end I just wanted to prove my strength and greatness to the entire world, and she was the was the fastest way for me to attract that kind of situation.
+
+just watch: I'm going to make lucifer's nosedive look like child's play :D
+
 
 
 
