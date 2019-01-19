@@ -3962,15 +3962,34 @@ that emphasis on capability is very important, I think, because capability comes
 
 capability is so much easier to obtain, but it may be possible that you will convinced you need to pay something to get it. don't believe it. believe in yourself.
 
+### 2019-01-19 13:33 - money and value as a simile to (???) and capability
+
+most of this thought was brought about as an extension of my attempts to explain to gary why I did not want to be paid. I had to think and reason about how we value things. so, to explain a little better what I was meaning involving capability becoming the new currency in the economy of superiority, think of money as the metric by which we value things.
+
+just like capability, one's own value is found within. every person is inherently valuable in their own perception (that's why you remain living), and so what we have done is create a monetary system by which we can measure and exchange valuable things.
+
+so in my example to gary yesterday, if you have three identical things and they are all offered to you by different people: one of them is a gift: it's free. the other he asks $1 in exchange for the object, and the last asks $100. let's say the item's value at the store is $120, so you would automatically think to yourself that the $100 is new quality. the $1 must be defective, and you may not put a value on the free item, because it was free. the free item has more "meaningful" value associated with it, and the other's quality/value is derived from the measurement of the requested dollar amount.
+
+there are in fact infinite different scenarios to which you can imagine the perceived value of identical things. this process of making something to have more perceived value is marketing and advertising.
+
+well, the same thing I think is going to begin happening in this coming era where capability becomes the new currency. one's own value is something that is self-realised. so, to control this new valuation of the person, we were disempowered with original sin, hell, and other misinterpretations to believe that we are not valuable to begin with, and your value is something that must be measured, earned, accumulated, and exchanged with a monetary system.
+
+I find it likely that a similar thing will happen, where some new metric will be made to which you can redeem your incapability, and earn or pay to have your inherent capability.
+
+I think this is where I was trying to get to when I was talking to mom the other day when I was saying that I really did not like the whole death of jesus bit. and now, I'm realising that the part that bothers me is that we're taught that he *paid the price* for our sins by dying on the cross. and so, because of his death, now (and only since then) can we can begin to believe own own inherent value, no longer needing to pay the church to erase your *debts*, and let them be forgiven.
 
 
 
 
+# the end
 
+## stuff
 
+novelty <> capability <> adaptability
 
+LOA will convince you of your capability -- so, you just need to start noticing it
 
-# potential topics
+## potential topics
 
 ### - so, what is "in the game?"
 ### - the bso, LOA and regulation (part three)
