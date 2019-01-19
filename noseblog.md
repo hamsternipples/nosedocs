@@ -3918,7 +3918,39 @@ just watch: I'm going to make lucifer's nosedive look like child's play :D
 
 pretty good setup, right?
 
+### 2019-01-19 05:46 - table flipping jesus
 
+I have, on more than one occasion criticised jesus overturning the tables in the temple, saying that I thought it was a lousy publicity stunt to make him more favourable in the non-religious people's eyes.
+
+well, when I was watching stars tonight, I felt like one of the reactions was a sort of question like what will he do when he gets access to his inner universe. how will he react to what he finds, and that's when I was reminded of this overturning the tables scenario.
+
+you see, every particle of the universe and every quantifiable thing has both wanted and unwanted. it's impossible to separate the two because the definition of "wanted" is in the eye of the beholder of it.
+
+the reaction you will get from me will likely be one more in the line of over-analysis. I observe and over-analyse everything. I'll probably interpret them as a visual realisation of your desires and try to figure out what sorts of desire would cause such visualisations to exist.
+
+I don't believe that I would necessarily reject it and try to throw it out of the temple, in that sense, because like I said, it's not possible to separate the unwanted from the wanted... that's where I would come to the analysis of how it came to be and why it's considered something wanted.
+
+being a sensitive person living in a society with a lot of different things going on, I've acquired a pretty good handle on tuning into only the things that interest me. that's why I don't really watch tv, and when I do, I'm more often perplexed as to why what I'm seeing is interesting to people -- same with facebook.
+
+---
+
+so, that inspired thought about what could be my potential downfall: what could I make the mistake of doing which garners me more favourability in the eyes of the public. I think I'm generally in a pretty good spot though because I'm so self-absorbed. I'm not really trying to get anyone's approval.
+
+the one thing that I'm very keen on, is giving anyone who wants it, access to knowledge and the tools one would want to expand their own mind.. this may be the "publicity stunt" which is my "downfall" -- as it's something that I want, and I know it's not necessarily what everyone else wants. maybe it's similar to having root access on your mobile device, and giving the entire world root access to their mobile devices (or brain) is not ideal. I don't know. though, it could also be like how the catholic church prevented people from reading religious texts and studying the human body.
+
+---
+
+I just had an idea: in the religious form of controlling perception, you are made to believe that you are broken to begin with (original sin) and headed toward damnation if you didn't get your sins pardoned. money was the form with which you could do that, and the church set out to become the most economically endowed organisation.
+
+we are heading toward abundance though, so economic control will no longer be feasible, so I think the new economics is superiority. they will need to erect different systems which train the person to believe they are inferior to begin with, and then some sort of measurement will be created to allow a bunch of people who are taught to believe they are inferior, have a method by which they can reverse their inferiority by gaining superiority.
+
+in order to have such a system, the person must be denied access to their own superiority. on a mobile device, only those who can obtain root access can perform any operation. I think this is the model that will be used for our brains now, where you become a limited capability user of your body and brain. those with superiority are superior because they can access more of the capabilities of their body / brain.
+
+I'll have to think about it more, but I believe that most people do not actually want full capability of their body / brain. it likely really bothers these guys with the superiority complex that I can see better than they can, and there's no easy way for them to see at that quality, that while holding those they believe to be inferior at a lower visual quality (so they can feel superior).
+
+eg. it's likely that the reason why they ensure my vision is so blurry, is only because they can't handle the thought that mine is superior to theirs, and they cannot pay enough money or force enough things into place to make that different.
+
+this needs more thought... I suppose.
 
 
 
