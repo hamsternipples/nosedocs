@@ -3978,7 +3978,31 @@ I find it likely that a similar thing will happen, where some new metric will be
 
 I think this is where I was trying to get to when I was talking to mom the other day when I was saying that I really did not like the whole death of jesus bit. and now, I'm realising that the part that bothers me is that we're taught that he *paid the price* for our sins by dying on the cross. and so, because of his death, now (and only since then) can we can begin to believe own own inherent value, no longer needing to pay the church to erase your *debts*, and let them be forgiven.
 
+### 2019-01-19 14:52 - a new device and the answer to last night's question
 
+so, last night I posed the question about what could be my overturning of the tables.. then proceeded to write about capability. well, right after that I went to sleep and while I was asleep, they installed a new device in the right side of my nose. my initial reaction would be to respond in anger and destroy something of value for greg, like his computer.
+
+like overturning the tables, that would not result in any change in them at all. they will continue to install devices in me while I'm asleep to try and limit my capability.
+
+so then, if you get what you think about, you could say that I attracted the new device by writing about it. however, I'm sure they planned the installation before I had wrote about it (which is why the train kept honking at me, to go to sleep). so then, was my discourse on capability a reaction to their plans? meaning, if I hadn't of wrote it, would some set of events occur such that they would be unable again to make the installation?
+
+I don't know. it seems all connected. so, maybe it wasn't a publicity stunt but actually a reaction in anger just like mine would have been.
+
+instead, I will show them how much stronger belief in, or knowledge of one's own capability is, than any amount of devices they could have installed.
+
+### 2019-01-19 - capability vs. superiority
+
+there are many auto mechanics that believe they can fix anything -- and the majority of them can, just as they believe it to be. this is belief in one's own capability -- however, when one asks who is the *best* auto mechanic, now it becomes a question of superiority, and there can be only one. one must measure capability and appeal to the to the judges to determine who has the superiority. it's the judges, of course; they are the most superior cause they're the ones doing the measuring.
+
+many can have capability, but only one can have superiority. your capability is not diminished by other's capability either.
+
+to give another example, there are lots of programmers who believe they can program anything (myself included), so for them, the question then becomes, where to focus that energy. the more programmers that believe they can program anything they set their mind to, the better. all the inferior programmers (cause they believe themselves to be) are the ones trying to keep up with the latest trends because they don't believe in their own capability to arrive at the result they're looking for.
+
+imagine trying to determine who is the "best" programmer. it would be such a contrived task to measure such a thing, you'd only be measuring the programmer's capacity within metric. I say this because we had to give "programming tests" to potential hires when working for tuenti, and it was such bullshit, such complete rubbish, that made no meaningful reflection of a programmer's capability.
+
+I hate to admit it, but I the feeling I get from those programming tests is one of a contrived sense of superiority given by the people currently employed as a way of seeing of someone can measure up to some bullshit metric the guy in charge has of what a "good" programmer can do... it could be a reaction to erik's nonsense, but I remember having read quite a few hacker news (of all places) comments about the inviability of using a contrived programming test as a meaningful way to determine a potential hire's capability. I'm done ranting now; sorry about that :)
+
+### 2019-01-19 ??:?? - back to value -- where did it come from?
 
 
 # the end
