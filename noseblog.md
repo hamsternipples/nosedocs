@@ -3952,6 +3952,8 @@ eg. it's likely that the reason why they ensure my vision is so blurry, is only 
 
 this needs more thought... I suppose.
 
+(the way that I arrived to the superiority idea is both noticing the way the guys in charge react to things -- the way they need to maintain control/superiority over everyone -- and how much it pisses them off, that I'm so egoista. they want so badly to make me feel inferior to them... and, because they need to prove their superiority, just shows they do not actually believe their own superiority, perceiving themselves to be inferior (to me)... so, just as all chains of command or power work, it is necessary to accumulate others less power to feel superior to them)
+
 
 
 
