@@ -3956,6 +3956,12 @@ this needs more thought... I suppose.
 
 is superiority is the new economics and capability is the new currency?
 
+I have been put in the most inferior position, yet it's helped me to acquire a self-image of extreme capability (not superiority).
+
+that emphasis on capability is very important, I think, because capability comes from self, and superiority requires others. additionally, you only have to want capability and then convince yourself that you have it, to be able to get it. conversely, you will need to convince a whole lot of people, jump through enough hoops, or maybe have a noticeable physical advantage to acquire your superiority.
+
+capability is so much easier to obtain, but it may be possible that you will convinced you need to pay something to get it. don't believe it. believe in yourself.
+
 
 
 
