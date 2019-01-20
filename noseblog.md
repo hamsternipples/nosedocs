@@ -4002,7 +4002,48 @@ imagine trying to determine who is the "best" programmer. it would be such a con
 
 I hate to admit it, but I the feeling I get from those programming tests is one of a contrived sense of superiority given by the people currently employed as a way of seeing of someone can measure up to some bullshit metric the guy in charge has of what a "good" programmer can do... it could be a reaction to erik's nonsense, but I remember having read quite a few hacker news (of all places) comments about the inviability of using a contrived programming test as a meaningful way to determine a potential hire's capability. I'm done ranting now; sorry about that :)
 
-### 2019-01-19 ??:?? - back to value -- where did it come from?
+### 2019-01-20 00:03 - back to value -- where did it come from?
+
+while in the shower earier today I was thinking about the past symbols leading up to the monetary system of value we have today.
+
+obviously, before pieces of precious metals were used as an intermediate token of value, only barter was made. if you wanted sheeps and you have goats, you hope the guy with extra sheeps wants goats in exchange for his sheeps. this didn't work very well. the concept of currency as a token of value makes exchange of goods a much more streamlined process, so it's quite obvious why it was adopted.
+
+before money though, if you wanted to show that you had abundance, you would throw one of your best sheep on an altar and light it on fire -- kind of like a way of showing you don't give a fuck because you have more than enough. nowadays, you could blow a few grand in a disco buying bottles to show the same thing.
+
+---
+
+I believe the moon was more aligned with the earth before venus came into contact with the earth (something you can read about in velakovski's worlds in collision) throwing off the nar perfect alignment and making our year 365 (instead of 360) days. so, for example right now we are between an eclipse pair. the second one will be tomorrow. this means that the moon is more aligned with the sun than normal (otherwise if the moon were exactly perfectly aligned, we would have an eclipse twice a month, every new and full moon). I can clearly feel that in moments of greater alignmnt like these or during the equinoxes (when the earth's tilt most closely aligns with the poles of the sun), there is more energy moving and LOA seems to stronger.
+
+so, I postulate that in times previous to venus' interaction with the earth, LOA was in fact quite a bit stronger because of the extra solar and lunar energy. in an energetically heightened environment like that, you would get a whole lot more of what you think about.
+
+to the primitive person, this may seem like there is some sort of strong external force acting on things. many gods were created to explain this craziness, and instead of making the connection that lackful thinking or focus on limitation was actually the reason why their crops were not growing, they thought it was external and had something to do with the gods... however, somehow someone figured out that burning livestock like it doesn't matter to you, somehow seemed to make you have more abundance. the gods must love burnt sheep they figured, and that must be how to appease them.
+
+this, I think is the original meaning of the word "sacrifice".
+
+---
+
+now, have a look at moses in the exodus (when venus interacted with the earth), where the sacrificial lamb was placed over the door so that the angel of death knew to skip that house. again, I think this is an action that was given to the isrealites by moses so that they could believe in some sort of miracle. they had not yet realised that you get what you think about, and if you look out and see all the chaos venus is creating with its close approach to earth, you attract more chaos and destruction. however, if you do something extraordinary which allows you to believe that this chaos will not affect you, now you're thinking that the chaos will pass you by, and so that is what happens.
+
+I haven't quite fit everything all together here, but I think that what elijah changed in the era of sacrifice (aries), is the notion that the animal does not make the difference, but your belief that makes all the difference. you'll notice that elijah's altar did not have an animal, and was covered in water. he was proving that it is your belief that makes the difference, not the action.
+
+in next age of value (pisces), gutenburg / luther made a similar change in the structure of value by allowing people to begin discovering their own value through reading. this was the beginning of the spread of information, and opened the channels of communication.
+
+I believe that just like communication cycles between hot and cold (as illustrated by mcluhan), the eras begin in the imagination and then gradually move toward communication. so for example, previous to elijah, the understanding of how LOA worked, was based entirely in the imagination of these imaginary gods that needed to be appeased. after elijah, the prophets began to change this process toward something which could be communicated: and so the prophets began to write and make prophecies, which people then believed -- so they came to pass.
+
+similarly the church held back all of the knowledge externalising it from the person. (something that jesus was always saying that you have it within ... so no need to look externally). so, when the gutenburg press and martin luther (the protestant movement) began to take this value and put it into the hands of the people by allowing information and thought to expand because of rapid spread and diversification of new ideas. for further development on this concept, see "understanding media" by mcluhan.
+
+---
+
+back to the sacrifice. unfortunately, I'm pretty sure jesus believed that some sort of sacrifice would need to be made to allow for the abundance of people to begin believing in their own value. so, when he sees trinkets being sold as a gimmick to allow someone to believe something, he sees it as a step in the wrong direction, going back toward moses, and undoing the progress made by elijah.
+
+I think that's why he often said something similar to (not an exact quote), "oh ye of little faith! why must you need symbols and signs to believe" -- all you have you do is to believe! you alone are valuable enough to allow it to come to pass; you don't need all of these symbols, signs, trinkets, and other crap to be able to believe. you are capable.
+
+this entry is dedicated to aaron. he helped me connect a lot of these ideas together. word up :)
+
+### 2019-01-20 01:33 - our backward perception of the utility of communication and imagination
+
+I find it interesting the backwardedness of our understanding of communication and imagination: most people use their imaginations as a means of understanding and rerealising the external, physical things. also, communication is thought to be a means by which we can control the external, when really communication is to allow for the spread of ideas, something which enriches the internal. I perceive both of these as a means of enriching the internal, yet it seems that the way things have progressed, there has been significant effort to try and control and keep people's communication and imagination externally focused.
+
 
 
 # the end
