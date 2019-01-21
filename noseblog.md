@@ -4060,11 +4060,21 @@ I think these guys are used to doing things they don't want to do, and expect me
 
 instead of trying to do something that I don't want to do, I simply won't. I see no reason to take action when it doesn't feel good. in fact, all of my life, I have been rewarded if I don't take action on something that doesn't feel good. the times that I have forced myself to do something that didn't feel good, *never* (let me repeat that..) *never* turned out well.
 
-so, I don't do things when I don't feel well or when the thing doesn't feel good either. good luck trying to figure out how to force me to do something I don't want to do and have it not look like slavery :P 
+so, I don't do things when I don't feel well or when the thing doesn't feel good either. good luck trying to figure out how to force me to do something I don't want to do and have it not look like slavery :P
 
----
+### 2019-01-21 07:59 - some responses to reactions to my last entry
 
-I suppose it'll be interesting
+1. we've seen you not want to do something, then you were able to do it.
+
+I didn't force myself to do it; that would have been disastrous. instead, I found a way of wanting to do it.
+
+2. we all have to do things we don't want to do.
+
+maybe *you* believe that you do, but I create my own reality. so, I focus on the things that I *want* to do, they come to me, and I have fun doing them. maybe *you* might look at some of the things I do, (like for example wake up early and sit out in the cold staring at a star) and say that is not something you would want to do. you may even think that I might not want to do it either, and I'm forcing myself to do it. this is not, however, the case. I really want to have my visual capacity, and I really want to see clearly -- more than I want to be warm or to be sleeping. it's a question of stronger desire. there are many times I say forget it to the stars because I want more to sleep or whatever.
+
+3. no kenny, you can not do any thing that you want. we create your reality by determining what we want for you and steering you toward that.
+
+sounds good bro. I suppose it'll be interesting to see how that works out for you. if you want my advice, stick to creating your own reality.
 
 
 
