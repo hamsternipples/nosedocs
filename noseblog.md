@@ -4086,6 +4086,28 @@ a little bit ago I lied on purpose to mom cause she asked me what I was thinking
 
 always path of least resistance for me. which makes me wonder what sorts of awful questions they're asking me in my dream state which lying is less resistant path... lol
 
+### 2019-01-21 09:50 - the reason why things look taller...
+
+after a vision upgrade, I have often noted that things look taller to me. well, today when I figured out the diamond pattern, I understood that it was a fix to the previous thing I experienced which was after the vision upgrade things would look smaller to me, then when they put in their processed image, things looked increasingly closer to me. this is because the eye sees in a parabolic shape, and every vision upgrade the distance between pixels decreases, but not evenly from upgrade to upgrade. so, as time goes on, if they keep increasing the number of pixels at a constant rate, then put that image into my eyes, the objects look increasingly closer and closer, like a convex mirror (the bubble ones that allow you to see around corners).
+
+the solution to that is to project a diamond pattern into my eyes, and adjust the image until the lines are straight. this will give the proper spacing between the pixels (cause you have more pixels toward the center of the eye than on the edges). this also likely has something to do with why I have almost zero peripheral vision while they are projecting the image into my eye and then the few times the device has shut off, the most notable change is I regain peripheral vision (and some other things).
+
+anyway, back to why things look taller... so, the obvious reason now why things look taller to me after a vision upgrade is because I see in 3d, and in 3d, things closer to me appear taller than things further away. the diamond pattern will give them the correct spacing of the pixels on a 2d plane, but in 3d, it smooshes everything flat.
+
+in order to solve this, their machines will need to understand the space between the things: if you think of what you see, your eye looks out in a cone shape, and all light coming into your eye is a straight line. eg. you cannot see behind something.
+
+however, my eyes perceive the light, not the surface, in that I can also see from where the light came from too (the bounce of the bounce). this allows me to see the "space inbetween" two things.
+
+---
+
+you can extrapolate this concept out a little further and know that the more bounces my eyes become capable of seeing, the more of the scene I can become conscious of. additionally, our bodies radiate light, and a good example of this is a person that just had sex: they seem more radiant. combine the light the person emits, with the capability of seeing more than 3-4 bounces, and that person would become capable of perceiving theirself as along with everything else around them. (the space between)
+
+coming soon... :)
+
+for now though, it looks like their machines are not capable of this yet, so likely you'll only be able to see that when directly connecting to me, and not looking back in a saved experience. it also seems that they prefer me to *not* see the space inbetween, so I'm driven to continually go for more and more visual upgrades. I imagine they're going to get a whole lot easier now that I know what I'm looking for.
+
+P.S. greg and mitch: look up a few entries where I spoke about the unresisted state. I want to add another thing to that, which is, for a person who has all of their thoughts broadcasted, saying my goals is not the path of least resistance. instead, it's the path of least allowing. for me, the path of most allowance is to state my goals upfront, and let these guys push against them. I'll let you guys figure out how the path of most resistance for me is actually the path of most allowance :) (hence why I stated the extrapolation of the space inbetween -- precisely so these guys will push against it)
+
 # the end
 
 ## stuff
