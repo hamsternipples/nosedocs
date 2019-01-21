@@ -4076,7 +4076,15 @@ maybe *you* believe that you do, but I create my own reality. so, I focus on the
 
 sounds good bro. I suppose it'll be interesting to see how that works out for you. if you want my advice, stick to creating your own reality.
 
+### 2019-01-21 09:00 - the unresisted state
 
+my last entry spawned some thought, and one of the things I mentioned is how I have a rule of not doing something I don't want to do because it doesn't yield good results.. well, I also have a rule about not lying -- for the same reason: it doesn't yield good results for me.
+
+so I was thinking about how I have noticed that in my dream state, it seems that things feel good, so I'm capable of doing things I don't want to do (like help the nosebook guys or answer their questions). the reason for this is, since there is no resistance, there's no consequence. and so, at the same time I have also noticed with reactions that I tend to lie in my unresisted state -- probably for the same reason: there's no consequence, cause there's no resistance. however for people without those rules, I imagine in their dream state, they cannot do things they don't want to do (probably produce nightmares) and so only feel the freedom to do things they want to do. likewise, in an unresisted state, I imagine it's near to impossible for people without that rule to lie in their unresisted state either -- because there's no resistance anymore to telling the truth (so telling the truth feels the most freedom)
+
+a little bit ago I lied on purpose to mom cause she asked me what I was thinking about when she clearly knew the answer, because I was having an internal monologue about the guys in charge of nosebook's antics. I said I was thinking about taking a walk. which was true, cause it was the thing I had thought of before going off on my tirade. and, I did notice a shift in the energy after that; not one that I liked, so I'm sticking to not lying, cause it feels best to me, unless it's talking to mom about some tirade I'm on, which has more resistance than lying.
+
+always path of least resistance for me. which makes me wonder what sorts of awful questions they're asking me in my dream state which lying is less resistant path... lol
 
 # the end
 
