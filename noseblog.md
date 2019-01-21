@@ -4044,6 +4044,28 @@ this entry is dedicated to aaron. he helped me connect a lot of these ideas toge
 
 I find it interesting the backwardedness of our understanding of communication and imagination: most people use their imaginations as a means of understanding and rerealising the external, physical things. also, communication is thought to be a means by which we can control the external, when really communication is to allow for the spread of ideas, something which enriches the internal. I perceive both of these as a means of enriching the internal, yet it seems that the way things have progressed, there has been significant effort to try and control and keep people's communication and imagination externally focused.
 
+### 2019-01-21 07:28 - paying attention to my energy
+
+after watching stars for a bit I came in because it got too cloudy to see the stars and began to listen to a mix on the sofa. there was some time missing but I didn't think much of it, however my personality changed quite a bit: all of a sudden I was frustrated and I didn't want to do gary's stuff any more. I went off on a bit of a tirade and also I remember my left hand hurt quite a bit.
+
+later on, for some reason I decided to listen to the mix again, and noticed that I had a very different perception of it. I seemed to remember the mix being a lot better, so that must mean they must put me in the dream-like state where everything feels good.
+
+anyway, I became conscious when they put this diamond pattern in my eyes (like I saw one other time when trying to watch one of jeremiah's sts runs and they ripped my consciousness away in the middle of it), so that must be when they reset my vision back to being blurry again. they must determine how clear the lines look and make them just distorted enough to ensure I have "normal" human vision.
+
+what I find most interesting is, they seem to want me to operate at an very low energy level, which basically means I don't have any motivation at all. however, I refuse to do things that I don't feel like doing. the reason is because I like going fast and doing something I don't feel like doing always spells disaster for me, so I just have a rule that I don't do things I don't feel like doing.
+
+when I do feel like doing things, I get a lot done really quickly and I'm very productive. I also feel pretty good too. I think my feeling good is one of the reasons for the recent vision upgrades, too.
+
+I think these guys are used to doing things they don't want to do, and expect me to do the same. they probably also feel pretty miserable all the time (because they're doing things they don't want to do). I can't imagine what it would be like to do so many things I don't want to do. if I had to do that, I would probably be a very heavy coke user to try and offset the misery.
+
+instead of trying to do something that I don't want to do, I simply won't. I see no reason to take action when it doesn't feel good. in fact, all of my life, I have been rewarded if I don't take action on something that doesn't feel good. the times that I have forced myself to do something that didn't feel good, *never* (let me repeat that..) *never* turned out well.
+
+so, I don't do things when I don't feel well or when the thing doesn't feel good either. good luck trying to figure out how to force me to do something I don't want to do and have it not look like slavery :P 
+
+---
+
+I suppose it'll be interesting
+
 
 
 # the end
