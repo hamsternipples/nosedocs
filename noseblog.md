@@ -2125,7 +2125,7 @@ I woke up this morning with the realisation that I now operate with four primary
  - something is not important to what I want
  - physical evidence does not show it, but it feels like I am moving the right way
 
-when I was young, I was either really happy, or horribly depressed. black and white; no inbetween. this was because I only had the ability to realise the first two of those states. I imagine that newborn childs are like this. they are either happy or not happy.
+when I was young, I was either really happy, or horribly depressed. black and white; no in-between. this was because I only had the ability to realise the first two of those states. I imagine that newborn childs are like this. they are either happy or not happy.
 
 I think plants perhaps are only the first state. I remember when I was in 2nd grade, the teacher put a plant in a closet as an experiment. the plant grew much much taller than the normal next-to-the-window plants. I remember it grew to be much taller, like say twice the height of the other plants, but it looked very sickly. this horrified me. I remember it quite clearly, as I was overtaken by the height of the plant. there were many questions I had, but the main one was, "how could a plant with less sunlight (less nutrition), grow taller than the ones with the nutrition they needed?"
 
@@ -2852,7 +2852,7 @@ I think I remember there being more reasons, but I cannot remember them now. tha
 
 in the hospital after my brain haemorrhage, I distinctly remember being visited by a someone I could identify as jesus. after agreeing to some things he entered my body. afterward, I thought it quite preposterous to think that jesus himself would enter my body, but as time went on, I didn't think so much of it, rationalising by saying that everyone who is a christian accepts jesus into their heart, and my experience was just more tangible and vivid because of all of the morphine.
 
-in the years following, I found matthew to be my favourite book, and read that over and over, excluding the crucifixion and the resurrection. they made me feel bad so I skipped them. later I just went through the different teaching sections and skipped the story inbetween. david buckle helped me to realise why I liked matthew so much. the other authors tend to interweave jusus' teachings into the story, however matthew goes to great lengths to ensure all of the parables and teachings are grouped together. there are about 5-6 of them if I remember right, each about 1-3 chapters.
+in the years following, I found matthew to be my favourite book, and read that over and over, excluding the crucifixion and the resurrection. they made me feel bad so I skipped them. later I just went through the different teaching sections and skipped the story in-between. david buckle helped me to realise why I liked matthew so much. the other authors tend to interweave jusus' teachings into the story, however matthew goes to great lengths to ensure all of the parables and teachings are grouped together. there are about 5-6 of them if I remember right, each about 1-3 chapters.
 
 david also had a saying that really captured me when he would say something to the effect of, "whether it was jesus' actual words or the author of matthew who made them up, something genius has been recorded here." -- that statement inspired me to find out what was really behind the parables. we know that the gospels were written in aramaic, yet the only records we have left are in greek, so it's already an english translation of an ancient language, which is translation of an extinct language, which is likely cobbled together memory fragments of something spoken years ago. I would not consider this in any way "accurate" -- so I set about trying to find the underlying meaning which jesus was trying to convey (the thrust of the message).
 
@@ -4096,7 +4096,7 @@ anyway, back to why things look taller... so, the obvious reason now why things 
 
 in order to solve this, their machines will need to understand the space between the things: if you think of what you see, your eye looks out in a cone shape, and all light coming into your eye is a straight line. eg. you cannot see behind something.
 
-however, my eyes perceive the light, not the surface, in that I can also see from where the light came from too (the bounce of the bounce). this allows me to see the "space inbetween" two things.
+however, my eyes perceive the light, not the surface, in that I can also see from where the light came from too (the bounce of the bounce). this allows me to see the "space in-between" two things.
 
 ---
 
@@ -4104,9 +4104,10 @@ you can extrapolate this concept out a little further and know that the more bou
 
 coming soon... :)
 
-for now though, it looks like their machines are not capable of this yet, so likely you'll only be able to see that when directly connecting to me, and not looking back in a saved experience. it also seems that they prefer me to *not* see the space inbetween, so I'm driven to continually go for more and more visual upgrades. I imagine they're going to get a whole lot easier now that I know what I'm looking for.
+for now though, it looks like their machines are not capable of this yet, so likely you'll only be able to see that when directly connecting to me, and not looking back in a saved experience. it also seems that they prefer me to *not* see the space in-between, so I'm driven to continually go for more and more visual upgrades. I imagine they're going to get a whole lot easier now that I know what I'm looking for.
 
-P.S. greg and mitch: look up a few entries where I spoke about the unresisted state. I want to add another thing to that, which is, for a person who has all of their thoughts broadcasted, saying my goals is not the path of least resistance. instead, it's the path of least allowing. for me, the path of most allowance is to state my goals upfront, and let these guys push against them. I'll let you guys figure out how the path of most resistance for me is actually the path of most allowance :) (hence why I stated the extrapolation of the space inbetween -- precisely so these guys will push against it)
+P.S. greg and mitch: look up a few entries where I spoke about the unresisted state. I want to add another thing to that, which is, for a person who has all of their thoughts broadcasted, saying my goals is not the path of least resistance. instead, it's the path of least allowing. for me, the path of most allowance is to state my goals upfront, and let these guys push against them. I'll let you guys figure out how the path of most resistance for me is actually the path of most allowance :) (hence why I stated the extrapolation of the space in-between -- precisely so these guys will push against it)
+
 
 # the end
 
