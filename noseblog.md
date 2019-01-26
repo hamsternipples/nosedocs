@@ -4108,6 +4108,35 @@ for now though, it looks like their machines are not capable of this yet, so lik
 
 P.S. greg and mitch: look up a few entries where I spoke about the unresisted state. I want to add another thing to that, which is, for a person who has all of their thoughts broadcasted, saying my goals is not the path of least resistance. instead, it's the path of least allowing. for me, the path of most allowance is to state my goals upfront, and let these guys push against them. I'll let you guys figure out how the path of most resistance for me is actually the path of most allowance :) (hence why I stated the extrapolation of the space in-between -- precisely so these guys will push against it)
 
+### 2019-01-25 22:19 - everything seems hard to me right now.
+
+I'm really having a difficult time in the sense that no matter what, I can't really seem to find any motivation to do anything, most everything feels overwhelming to me right now, and I'm really reeling quite insecure about my mental capability. although I can grasp and follow along with really complicated ideas (as expressed in the recent entry about the transition toward capability), I find myself struggling with really simple things like multiplication and arithmetic.
+
+I seem to be capable of releasing resistance still quite easily, as it seems to be getting easier and easier for me to gain visual upgrades from the stars. in the past when I reach a stuck place like this, I just smoke weed and I'm back on track.
+
+however, this time though, I don't have strong desire to smoke. it seems like it's the thing I should be doing, I really really don't want to get stuck in a rut where I'm just doing the minimal amount of work just to buy the weed, because then I'm sort of just wasting time or something not productive and I want to be productive I want to be moving and going. so, I know that weed isn't what I want to do right now, but I don't really know what it is I want to do, either.
+
+I had this moment when I first started up with gary where I noticed that not only was the writing of the program to do the thing he wanted going to be easy, but also it seemed like a pretty easy thing to sell carports, and potentially a lot of commission that could be earned. I was feeling good about the whole thing because it seemed like for once things began to get easy again, and for me everything I've failed at was hard, and all things I've had success at were easy. and, even though I always put in long hours for those easy, the work seemed to be just a steady continuous transition from one thing to another.
+
+now though, when I look at gary's work, it doesn't interest me at all. the easy bit was only the thing that got me thinking it was the right way -- however, now I am only realising that I don't want to have anything to do with money. I don't want to be involved in any of this sales or business stuff whatsoever.
+
+I don't even want to work on electronics either, and I cannot find any desire in me to program any more either. just two weeks ago I was content writing a spreadsheet application, and I could feel good about my accomplishment there, but now I don't even have that any more. it would be typical of me to blame nosebook, because it does seem that since the eclipse, I have not been able to find any desire any more, and if they had anything to do with it, is actually irrelevant because I don't feel bad really at all, and I'm continuing to see improvement in my vision too so I'm still releasing resistance without a problem, so there's no real problem.
+
+that's the problem: there's no identifiable problem. yet, physically for example, I'm noticing increasing difficulty to pee (much more than normal), so it seems there is a problem. a physical manifestation like that is always evidence of an emotional disturbance. I can't find the emotional problem at it's root.
+
+as I'm writing this, I'm feeling around kind of trying to figure it out for myself. the only thing that came to my mind though is that perhaps I've gotten so used to not relaxing. since the eclipse I've slept a very large amount, yet I'm still tired.
+
+I also feel like I'm getting a more serious case of a split personality, because on one hand, it feels like I'm going to be doing the world's most epic nosedive, which is fine for me, and on the other hand, it have more confidence than ever that this whole situation was attracted by me in the first place as a by-product of my giant sense of self-worth and capability, that there's no way for to not get my visual capacity. sometimes I even feel like I have this second sadistic second nature to me that could overcome my present circumstances without very much effort at all, but is also self-limiting (just like my anti-desire to go for an easy solution of smoking or girls or whatever) and is actually stringing the nosebook guys along like a cat does to a mouse before eating it. I can't figure out who is me and why am I helping them along.
+
+additionally, I have a growing sense that all of this latent frustration and "hardening of my heart" is actually rooted in many long frustrating interrogations in dream-state where I have steadily shed my child-like innocence and and really took them for quite a ride. the inner hatred and frustration is only beginning to bubble to the surface much like a happens to a child as it begins to enter puberty.
+
+however, it doesn't seem to be "reactionary" like a child does. it feels pre-meditated, because I'm beginning to make a transition where I'm doing less and less thinking inside of my brain. I don't exist, so much like I used to inside of my body. *we* exist as a frequencial response. it feels like a long series of chain reactions, and similar such reactions that have existed in the past, too. I don't want to admit it, but it sounds like that thing I always make fun of -- the inequities of the fathers and the forefathers and generations backward.
+
+this is clearly a "sober" thought of mine, as I'm not capable of that kind of thought while I'm stoned; I think that stuff is hilarious. I think it's so hilarious that it makes people serious about it very uncomfortable. maybe, it feels like I've snapped again, almost as if to say, ok, you wanna take this stuff seriously? we're gonna take this really really seriously and then we'll see.
+
+I can't quite conceptualise it. that's just what it feels like.
+
+peace
 
 # the end
 
