@@ -4138,6 +4138,26 @@ I can't quite conceptualise it. that's just what it feels like.
 
 peace
 
+### 2019-01-27 18:51 - the firstborn
+
+earlier I was passing over my previous experience out at loaf n' jug with frank. anyway, when I came back I explained to mom how the part where he was being an asshole to the gas station attendant (john) was something I didn't enjoy. I mentioned that whenever zaryn gets around his friends he seems to need to prove how important, and how big of a deal he is, to them.
+
+I was wondering why that is, and noah seems to me more similar to bill and zaryn seems very different from both of them. I've never met penny, so I'm missing a piece to that puzzle, but then I was reminded that I have often said that I am the realisation of what my mom would have been if she were a boy.
+
+I thought about it a little more and perhaps this something that goes two ways... I don't really know any firstborn girls and their fathers, too. the closest thing I have is marcos and [marcos' oldest daughter can't remember her name]. I did notice quite a bit of similarity between the two.
+
+I am going to propose the following theory for now:
+
+> firstborn boys seem to be what the mom would be like if she were a boy.
+> firstborn girls seem to be what the dad would be like if he were a girl.
+
+the other day too, greg mentioned that he thinks of me as a firstborn prophet. so now I will generalise the theory and say:
+
+> firstborn +vibrations seem to be what the originating -vibration would be it it were +
+> firstborn -vibrations seem to be what the originating +vibration would be it it were -
+
+so what is the vibrational opposite direction of a prophet? I don't know right now. it's certainly something worth thinking about.
+
 # the end
 
 ## stuff
@@ -4145,6 +4165,10 @@ peace
 novelty <> capability <> adaptability
 
 LOA will convince you of your capability -- so, you just need to start noticing it
+
+go take a walk tomorrow and think about the idea of writing a game in some sort of made up language, then build the interpreter.
+
+indefinite holdout on stars
 
 ## potential topics
 
