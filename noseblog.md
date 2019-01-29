@@ -4158,6 +4158,38 @@ the other day too, greg mentioned that he thinks of me as a firstborn prophet. s
 
 so what is the vibrational opposite direction of a prophet? I don't know right now. it's certainly something worth thinking about.
 
+### 2019-01-28 22:22 - who is more better?
+
+sometimes I have these crazy ideas pass through my head. anyway, when I woke up this afternoon, I had this sense that there were some ideas put in my head that I should try and find some different girls to chill with, and they can make my life more ... better? or maybe I should work on some of that idea about the twin earth on the other side of the galaxy as a method of attracting that sort of thing to happen to me in this reality.
+
+well, I strongly disagree in the sense that I feel very much that I want to do this myself. I don't want to depend on other things or other people to be doing it. if I wanted to depend on people, I'd just do the gary's employee thing and smoke weed until I was absolutely so sick of sitting around that I *had* to do something. that is a valid plan which I'm considering because I've learned since my last experience that weed isn't a bad thing for me -- actually, quite good. instead, I'm convinced it was the drinking that was the source of my lethargy. so realistically, I believe that there would be no problem if I just did the gary thing and smoked weed for a while.
+
+in a previous entry, I said that maybe it's best to not have a break and to instead focus harder. I've been doing exactly that and have made quite some progress visually and also emotionally. so, I would say that focusing harder is actually working well, and I'm making significant improvement, however things like today happen when mom wants to force me to give her guardianship. which tells me that some people in charge feel that they are losing power over me and need to have someone they control (mom) gain power (guardianship) over me.
+
+I dunno man, and then to complicate matters, for example tonight I went out of my way to grab mom's plate and put it in the dishwasher. then, I went out of my way to tell her about it too... I noted how strange this felt to me, because it would not have been my typical behaviour (I don't think).
+
+so, who's putting these ideas in my head? where did the idea come from when I woke up about going to live with girls? where did the one about the plate come from?
+
+I would like to "blame" my future self for the thoughts, but what if it's actually a few of the tech guys at the bso? what if they have some sort of interest in me doing... here's the idea: perhaps they have gone out of their way to program other triggers into the system to put ideas into my head (which I'm not resistant to), to make me more "well mannered".
+
+in every situation I've been in, the most enlightening form of understanding is to trace interest. to whom does it interest that I have these thoughts? for example with the ones I had while waking up, it feels like tho common desperation that they're trying yet another angle to try and get me to depend on someone else to achieve something. obviously, it's never going to work because I have strong desire never to rely on someone else to do something for me which I feel I am *incapable* of achieving for myself.
+
+---
+
+I will be achieving my own visual capacity and coming into alignment with who I really am. I imagine it likely that the only way to do it will be to go up another dimension -- and once I do that, then I'm sure that I will be more than willing to engage in a lot more things than I currently am doing now. they will have to wait until then.
+
+---
+
+so then, after realising that there was this idea that these guys will, in their attempt to monetise the women, get their best hotshots to try and make this whole little girls thing happen. you can imagine that it is a common girl's dream to be able snag an attractive and notable man early on (maybe even important). so, that means that all they need to do is to find a way of making someone look attractive to these girls. LOA says it must be so: a girl that's looking to snag an attractive man early on because she's insecure or whatever, is on the same vibration as a guy who's looking to boost his attractiveness using some gimmick (like dream manipulation and thought triggers) to achieve something he didn't originally feel himself capable of achieving.
+
+the source of this idea was actually taken from all my time reading the pua newsgroups back when pick-up artistry had not yet been destroyed yet by "the game" -- and in one very notable posting one of the main hotshots replied to a noob about the big picture. he essentially said that he figured out every way to manipulate any girl he wanted to sleep with him (he lived in LA), and that after conquering the whole thing he didn't find himself any more fulfilled. one of the tips is to not spend all of your time thinking and focusing on girls, but instead find a hobby or something that you enjoy and focus your time there, and it'll drive the women crazy that you have something more important than them. so, he continues on saying that in the end what he was actually looking for was that: something he really enjoys doing. you could pick up anyone you desired, but find something that makes you happy and do that -- dealing with a bunch of hot girl's bullshit to get some sweet hookups is not as fulfilling as you may think.
+
+back on track here... so, now we're going to begin realising the real-life implementation to peak of male dominator energy as mentioned in @[entry](2019-01-09 04:15). you can imagine that this whole harvesting little girl's sexual energy by convincing them of something or boosting your attractiveness is just a big show, and at some point, the game will be understood. additionally, you can also imagine that adding that amount of extra energy to a person dependant on someone else for their pleasure, is a whole lot of extra energy -- and, there have been numerous individual cases (mostly rock-stars) where heightened amounts pleasure leads a person down a destructive road. you can read about this happening to an entire society in the "decline and fall of the roman empire" and see that kind of "hedonism" in action.
+
+I think it's ok though because like I said earlier about the wanting someone to do something for you which you do not feel *capable* of realising yourself, goes both ways. additionally, any relationship based on a system of control is bound to eventually fail.
+
+I must maintain my direction of achieving the things I'm looking for, without depending on someone or something else to do it.
+
 # the end
 
 ## stuff
