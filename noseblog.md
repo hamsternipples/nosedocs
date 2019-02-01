@@ -4228,9 +4228,13 @@ you can see how typically the male is more self oriented and the female is more 
 
 and so, before you go off on some tirade about gender roles and stuff, I'm generalising on purpose (clearly I'm speaking about majorities), and merely by recognising these kinds of energetic transitions, we can gain control over it, and make it whatever we want. it is my intention to make a very definite plot twist on this whole male/female dominance cycles, because I don't see why both of them couldn't exist at the same time, alternating back and fourth between setting and breaking the meta. additionally, I've also been giving some thought to try and figure out a way to make it three phase, as if you know anything about AC electricity, three-phase is very efficient. we would need a third "gender" though.
 
-### - waiting for things to be controllable
+### 2019-02-01 04:43 - a depressing realisation
 
-...
+this morning I'm a bit depressed because I realise that no matter what happens, they will constantly try to control the situation, meaning that, much like what happened with gary, something that felt good will turn into a poop. I think it may be this way indefinitely, actually -- with the only goal being that some of my ideas will actually see the light of day as I continue to get better and better at managing how I feel.
+
+meaning, if the goal is for me to become completely unaffected by their attempts to control, then it seems obvious that this will continue on as long as they can affect me.
+
+I have confidence though that I will gain the capacity. it just may take a while.. a lot longer than desired, I suppose.
 
 # the end
 
@@ -4244,6 +4248,7 @@ go take a walk tomorrow and think about the idea of writing a game in some sort 
 
 ## potential topics
 
+### - waiting for things to be controllable
 ### - so, what is "in the game?"
 ### - the bso, LOA and regulation (part three)
 #### resulting sects (subsets) of christianity
