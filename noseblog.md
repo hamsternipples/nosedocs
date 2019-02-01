@@ -4190,6 +4190,48 @@ I think it's ok though because like I said earlier about the wanting someone to 
 
 I must maintain my direction of achieving the things I'm looking for, without depending on someone or something else to do it.
 
+### 2019-01-31 21:27 - not letting anything outside of you that you cannot control negatively affect the way you feel
+
+I woke up from dream this afternoon where someone asked how to release resistance. I began in the dream to say that you just need to practice it and it takes a while and is considerably difficult. I felt the dissatisfaction that I had with the answer and woke myself up. in that dream state like that I can't consciously give a profound answer to a question. instead, you will get only short answers which are a function of my "programming" (or perception) and the result will not give any real explanation.
+
+it's funny because almost all of the really impactful dreams, such as the one where I gave my ideas on how I would run the nosebook technical team, I was either partially conscious, or mostly conscious...
+
+anyway, I wanted to give a better answer so I woke up still answering the question. I remember there was a knock on the pipes to try and dissuade me from continuing to answer but I felt it was important. as I regained consciousness, I settled on the answer that after all the practice or whatever, I needed to simply make a rule saying that anything outside of me which I could not control, I couldn't let it negatively affect the way I feel.
+
+I went on to explain that none of my present situation is in any way justified, but unfortunately there's literally nothing I can do to change it. I can only find a way of feeling good no matter what. while writing this, I would like to add additionally, that no form of action (or reaction) has made any positive change in any way. it has only made things worse. instead, I've begun to really know the understanding that action doesn't make the change; it's the feeling. I had previously thought on occasion that it's the action that makes the change, but the action only changed the feelin. the feeling made the change. kinda convoluted... sorry bout that..
+
+anyway, since my situation is what it is, there's nothing to do. I am where I am, so I've just got to figure out how to find a way of feeling better. I have distracted myself with limited success, but the real game changer is when I can find a way to make myself believe differently about something. for example, I hate to sleep because I always wake up with worse eyesight, and other random ailments. so, instead, if I can convince myself that the energy applied to my body is actually making it more likely to have a vision upgrade, I can realign my hatred toward sleep. or, if I can convince myself that the processed image of what my eyes see is actually making it more likely to continue to get vision upgrades, then I can achieve more of those too.
+
+in the end, redefinition of (abraham says "soothing") the problem is actually the most effective. there are so many injustices in the world, and I can control or affect virtually zero of them. the only thing I can control is me and that's where it's really at. this concept (redefining any negative effect of anything outside of me to something easier to understand) is actually the origin of my egoism.
+
+what I just said there is huge. I want to be in control of everything I feel. if it doesn't feel good, I have to find a way to talk it down and minimise its effect. I suppose the only thing that could possibly be more egoista than that is to want me to be the only source for everything I feel (not just in control of it, but also its origin -- lol). I guess I have my new goal for sometime in the future (cause I have no idea how that could even be possible).
+
+for me it has been a pleasure to release this resistance, because each time I do, I feel light and lighter. it's likely the source of the immense amount of freedom I feel, where flight doesn't seem like such a big jump. it literally is emotional weightlessness.
+
+---
+
+ok, so this is now getting into where I left off in my @[entry](2019-01-11 18:43) entry. the idea is, this can be simplified into two groups: those wanting self-control and those wanting to control others.
+
+ok so, going back to my symbolism ideas where we are in the final stretch toward the peak of male dominating energy when we reach capricorn. if you think about a sine wave's four quadrants as the four seasons, and then overlap it with the zodiac, you get three symbols per quadrant. if summer is male dominating energy and winter is female dominating energy, then aries, pisces, and aquarius are "springtime", capricorn, saggitarious, and scorpio are "summertime", and following that, libra, virgo, and leo are "fall", cancer, gemini and torus are "winter".
+
+(these are the symbols in reverse, following the "procession of the equinox" -- or, our relationship to the galactic center)
+
+I don't fully understand what seems evident to me here, because capricorn and cancer seem like solstices of this energy to me, yet at the same time, they feel like the equinoxes, where things are most in balance. I'll revisit this, when I understand why that is, however, for now we're going to go with the idea that this is the 3rd trimester in the springtime phase, where things are slowing down as they reach their maximum height.
+
+as mentioned in @[entry](2019-01-09 04:15), you have to imagine this slowing process can actually be perceived as the opposite energy beginning to overcome the momentum of the present energy, slowing it to a halt, and then beginning its own acceleration in the opposite direction at the solstice.
+
+so, let's for sake of ease, look at these two extremes of self-control, and other-control, instead as individual and group thinking -- or perhaps personality and society -- or perhaps, expression and conformance. none of these fully illustrate the concept, but to understand maybe have a look at the difference between strong societal or family expectations vs. personal expectations.
+
+you can see how typically the male is more self oriented and the female is more group oriented. I think this is where the tides are beginning to change, where at the end of aquarius we are at the peak of this male dominating energy, which is when the men attempting to control the society's expectations will become more group oriented trying to control the group. so, likewise it'll be in leo where women make the transition back to group oriented, right before the peak of female dominating energy.
+
+---
+
+and so, before you go off on some tirade about gender roles and stuff, I'm generalising on purpose (clearly I'm speaking about majorities), and merely by recognising these kinds of energetic transitions, we can gain control over it, and make it whatever we want. it is my intention to make a very definite plot twist on this whole male/female dominance cycles, because I don't see why both of them couldn't exist at the same time, alternating back and fourth between setting and breaking the meta. additionally, I've also been giving some thought to try and figure out a way to make it three phase, as if you know anything about AC electricity, three-phase is very efficient. we would need a third "gender" though.
+
+### - waiting for things to be controllable
+
+...
+
 # the end
 
 ## stuff
@@ -4200,8 +4242,6 @@ LOA will convince you of your capability -- so, you just need to start noticing 
 
 go take a walk tomorrow and think about the idea of writing a game in some sort of made up language, then build the interpreter.
 
-indefinite holdout on stars
-
 ## potential topics
 
 ### - so, what is "in the game?"
@@ -4210,11 +4250,8 @@ indefinite holdout on stars
 ### - conditional living and physicality
 ### - changes happening around the equinox
 ### - future bso pointing present bso toward taking advantage of our desire to express unconditional love, and to further instigate more desire in all of us for self-control
-
-### - the uncontrollable visual capacity
-### - getting ready to be ready (take 2)
+### - the uncontrollable visual capacityz
 ### - thought based memory vs. feeling based memory (continued)
-### - monogamy within the the relationship unit
 ### - vision deviod of meaning
 ### - what could be a reason why women seem to like less than optimal men?
 ### - physicality that challenge ideas
