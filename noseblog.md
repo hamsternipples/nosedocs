@@ -4236,6 +4236,42 @@ meaning, if the goal is for me to become completely unaffected by their attempts
 
 I have confidence though that I will gain the capacity. it just may take a while.. a lot longer than desired, I suppose.
 
+### 2019-02-02 01:59  - your mission, should you choose to accept it...
+
+a bit of background first...
+
+it seems to me that there is strong desire for me not to go up another dimension. although maybe it seems like a good idea, I think I am actually really warming up to this whole 2038 is the record nosedive thing, where my goal is to try and see if I can surpass it.
+
+remember a while ago when I spoke of the "backbone" of the timeline, where essentially things are so tightly controlled, that person's experience (the backbone) can be used to optimise the timeline? well, in the same manner that is true, you could also see the timeline as a bit of a competition, where velocity is the metric. ok, that's one part.
+
+the next bit is to think about the peak of male dominance energy, where you could perceive it as the height of the energy, or you could think about it as an equalisation of the energies. think of both as being connected and pulling on one another. abraham illustrated this for us with the train analogy, where you have two engines facing opposite directions...
+
+so, consider them to be in this example the left and right trains. as the left train gains more power, it will slow the right train down, until their power is equal. when their powers are equal, the train will be stopped. the left train will continue to gain power and pull the right train to the left. it'll continue to do this until the right train gains more power than the left train and begins to pull the left train to the right. there is no loss of power, only more. more power keeps getting added as each side realises its "loss" of position and desires the return to the other side more.
+
+so, then imagining the pendulum of enegries slowing, not as one of decay but of strengthening of the opposite -- one could then see that equal "amounts" of that energies is actually the approach toward zero, and the stronger each side gets, the more rapidly the train passes through the "middle" of the track. expansion (needing to add more track on each end) happens as a result of both of these sides playing off of each other. essentially, the expansion is greater every time each side overreacts to the realisation of their new position (overreaction just means stronger desire). ok, so that's the second part.
+
+finally, it may be beneficial actually for the entire homan race to pass into the fifth dimension at once.
+
+---
+
+so here's the plan: nosebook needs to ensure that nobody gains the capability to get to the fourth dimension. you must limit everyone's capability just like you are doing mine right now.
+
+here's the crazy bit: let's see if we can keep everyone limited for 6000 years, so that the rising sun on the equinox is actually opposite of aries, at the beginning of libra.
+
+as I continue on in attempt to beat the 2038 record, I'll push your guys capabilities to the limits. you think things are detailed now? lol, I have to set the limit to detail before entering into the fifth dimension long enough for it to keep you guys busy 6000 years.
+
+probably what will happen is at some time after 2038 I'll enter into the fifth dimension, and some sort of time split will occur. then, just like the one we're presently in, the earth that continued on without the death or whatever happened on the opposite side of the time split will eventually splice ourselves back into the timeline. this may be a reoccurring event, actually as I'm beginning to understand it better, but the goal is to get the entire planet moving at a very fast velocity.
+
+there's no better way to have an insanely fast moving planet, than to have millions and millions of people actually being held away from their capability and not allowed to move into the next dimension (just like me). we'll all do it together and it'll probably be the most epic evolution ever realised.
+
+---
+
+I'll probably begin sleeping more and stuff to make sure you guys are all set up and have the technical capability to limit everyone's capacity for such a long time. a lot of improvements need to be made, because although I'm alive and living, I could be living a lot more functionally.
+
+I'll write more about this subject again, but it seems to me that this is perhaps the bigger picture goal, and explains a lot of strange things.
+
+anyway, I also want to mention that I never understood the progression of the symbols in the zodiac until I began this exercise and started reading them in reverse. it makes so much more sense backwards.
+
 # the end
 
 ## stuff
