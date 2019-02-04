@@ -4272,6 +4272,48 @@ I'll write more about this subject again, but it seems to me that this is perhap
 
 anyway, I also want to mention that I never understood the progression of the symbols in the zodiac until I began this exercise and started reading them in reverse. it makes so much more sense backwards.
 
+### 2019-02-03 19:06 - why do I want them to limit your capacities, also?
+
+no real good reason, actually... the idea behind it is pretty difficult to explain, as there are a lot of variables that I don't know, but the main thing is really the question of whether I can create in your experiences. can my desire for them to limit your capacities become a reality?
+
+the whole concept around the timeline split is around incompatible desires. if I desire for them to limit your capacities, and you have equally strong desire for freedom to use your capacities, then I am 100% sure that two separate timelines would take place, one where I see the result of my desire, and one where you see the result of your desire. they both must be able to exist simultaneously, right?
+
+or, is it true that nobody else can desire for you? that also seems true, but not as much true, because then how does a parent reconcile their desire for their child's well-being?
+
+then to further complicate the whole thing, how do the guys at nosebook take it... let's assume they will do it (given that they can justify it somehow). will they find my telling them to limit people's capacities something no longer want to do, just because it's my idea? you know, I've seen them shoot down 100% of my ideas so far; what about this one? finally, let's say they determine that they must limit people's capacities to maintain their superiority, now they have an excuse. they can just said that I said to do it and they were just following orders(?)
+
+no matter which way you look at it, it works out ok. if others cannot create in your experience, there's no problem.
+
+---
+
+the other way of looking at this is the following: imagine a bottle of coke and some mentos. you put the mentos in the bottle and it builds up pressure until the pressure is great enough to sent the cap flying up into the air.
+
+we all know that example, but the mechanism is easy to understand. the mentos causes a reaction which causes an expansion at some rate. if the expansion is contained (by the cap), then it'll build up pressure until the pressure behind the cap is greater than the threads holding it place.
+
+if the pressure does not rise enough to overcome the container, it'll slowly leak its pressure over time and do nothing. this is why you have to leave the cap a little unscrewed often times.
+
+since the mentos is causing an expansion at a constant rate, that constant rate is relatively slow, so for the cap to go flying, pressure needs to build. if pressure built infinitely, and for some reason the cap is unable leave the bottle, eventually the bottle would no longer contain the pressure and explode itself. ok.
+
+so, if you think of nosebook's limitation of capacity as the tightness the cap is screwed on, then the tighter it's screwed on, the more pressure is needed for the cap to go flying.
+
+so, at one point in time, you can imagine that enough pressure will build such that I finally am released from their grip, and go flying (achieve the fifth dimension). along the way, I continue to release resistance and get more and more visual upgrades, so the longer they're able to provide a downward force, the longer I stay in their grip and the more pressure will build.
+
+whenever I finally am released from their grip they will have a long list of visual upgrades that I passed through along the way to the 5th. in reality, I could have probably achieved the 5th much earlier had it have not been for their limitation. however, it will be perceived that is the distance one must travel before going up another dimension. really, enjoy the journey, right?
+
+I hadn't thought of this until now, but I suppose it would be possible for someone without limitation (like someone working at nosebook) to get the fifth a little easier -- but, actually maybe not because I've found that my visual capacity is a reflection of my frequency (faster = more detailed) -- or stated another way, the inverse reflection of my resistance (more resistance = worse vision).
+
+to go up a dimension though, I believe requires a change in perception. for me, I achieved it when I started to perceive the world differently. for example, for 4d I perceived it from "inside" of me, instead of like I was watching a screen.
+
+they may be able to boost their frequency artificially to achieve whatever, but that's kind of crawling over the finish line. what this really illustrates is that those who need to feel superior by limiting others is the greatest self-deception you could make, because if they didn't have the machine to limit me, they would have to face their self-incapability.
+
+so, let those who need to feel superior limit others capabilities in the short-term, but in the long-term, they're only making us more capable, and making the realisation of their own incapability greater. I'm learning to ignore their short-sighted attempts to maintain superiority, and appreciate it for the massive payoff that will happen, *eventually*.
+
+
+
+### - what happens when I die?
+
+### - what am I going to do when I'm finally alone?
+
 # the end
 
 ## stuff
@@ -4284,6 +4326,8 @@ go take a walk tomorrow and think about the idea of writing a game in some sort 
 
 ## potential topics
 
+### - consciousness, backbones and the 2038 guarantee
+### - we all have to earn it (no easy way)
 ### - waiting for things to be controllable
 ### - so, what is "in the game?"
 ### - the bso, LOA and regulation (part three)
