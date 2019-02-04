@@ -4308,9 +4308,39 @@ they may be able to boost their frequency artificially to achieve whatever, but 
 
 so, let those who need to feel superior limit others capabilities in the short-term, but in the long-term, they're only making us more capable, and making the realisation of their own incapability greater. I'm learning to ignore their short-sighted attempts to maintain superiority, and appreciate it for the massive payoff that will happen, *eventually*.
 
+### 2019-02-04 08:55 - what happens when I die?
 
+for this entry, I will assume the following ideas to be reality: the soliton of improbability, strong conflicting desire which both must are believed to be reality will create a split in the timeline, jesus was one of the manifestations of that soliton, and that I have also acquired such a soliton. finally, the purpose of the soliton is to go so fast that it reaches faster than escape velocity of this universe and creates a new one.
 
-### - what happens when I die?
+still with me? lol, ok here we go... my theory is that I have reached "escape velocity" of death, already.. this, I feel is evidenced by the extreme stress the guys at nosebook are putting on my body to make sure I don't have a visual capacity. probably anyone else would die under the same circumstances -- yet, not only do I seem to be getting stronger, my physical abilities seem to be improving, eyesight improving, mental capability improving.. everything improving. I don't ahve numbers, but I would say that probably I generate more than 100 times more energy than I did in 2013 before the vallecas incident.
+
+in my opinion, I do not believe myself capable of death for a very long time, if ever. I believe that jesus had the same sort of thing going on, yet at the same time, I believe (and abraham even mentioned in a workshop) that jesus grew up believing that he would be a "sacrifice". I believe that had he of not had that belief, he would not have been able to be killed (eg. it was his own belief that got him killed) -- in one timeline. in another timeline he did not die, and in fact they're still going strong, on their way to becomming a new universe.
+
+I believe they gained timeline technology, by studying people's dreams (much like nosebook is doing now), and figured out how to tune into the parallel timeline where he died (the one we're in now). the gospels record that immediately following his death, the whole world went dark. there are numerous references to him being the light of the world, and as terence recalls it, after his death, we plunged head-first into the dark-ages, with all of the "beady-eyed priests".
+
+---
+
+this time is a bit different, because I believe there is very strong desire that I stay alive. my theory is, and I'm basing this off of a few different things people have said (and my own intuition), but the most obvious is when I was at nancy's conference in missouri, and one of the ladies (during a visualisation exercise with maryln), said something like, "I don't know how we did this before... (inferring the nosebook thing)"
+
+so, what I think happened is, they found out about my inner universe, and then found out that there is infinite space inside of it (just like a universe). so, they got everyone hooked up to the nosebook and mapped each person's imagination to a unique spot in my inner universe (right hemisphere). I also imagine they do their meetings simply my mapping more than one person's imagination to the same spot, and people can interact and conjure ideas in the same space.
+
+so, basically if I were to die, all of their super secrets, would be gone and everyone would revert back to their imagination as it was before.
+
+---
+
+there is so much desire that I do not die, and since neither do I believe I am capable, it's likely that the timeline split will *not* incur my death, and no plunging into the dark ages.
+
+well, then what would happen? [I haven't got here yet as it's the subject for a future entry, but I'll speak about it as if I already have] well, since my consciousness will be on the timeline where I'm realising my desire, the peoole that are realising nosebook's desire for will will actually be interacting with an unconscious kenny. like jesus, you may notice that he just sort of gives up there at the end and lets things just sort of play out; no fight whatsoever.
+
+so, since a person that is not conscious just does creation by default, you would just see me become completely passive or reactionary within the framework with which I've trained myself. it wouldn't take very long at all for the nosebook guys to gain control of me, without me consciously reorienting myself all the time toward what I want. so, in a sense, you would gain what you want (sex?) from me, but I'm no longer me in the same way... I'm now a controlled yes-man.
+
+---
+
+then, just like the jesus scenario where they're actively affecting this timeline remotely and have tuned into this one to create the "planet hope" scenario, that one also created another timeline split where we are living the one where planet hope (andrea) did not occur. each time the split occurs, some time passes and likely my inner universe is utilised to create a new universe. the timeline where nosebook turns me into the new universe is how the "demiurge" gets created, where the bso is still meddling with the inhabitants remotely as if they were God.
+
+so, just the same, from my perspective I'll realise my desires and then we'll tune into the parallel timeline and then using LOA, I'll splice myself into another body just as fwh has done to mine and who I really am (the original me + the soliton + others) will continue to exist and grow bigger and more crazy.
+
+I've already given some thought to how I will make the rules to the new universe, and only my inner being really knows what they'll really be, but I'm sure they'll fit right in with the symbols of the zodiac as I have mentioned previously (or not; you never know... you'll have to find it out and interpret them yourself)
 
 ### - what am I going to do when I'm finally alone?
 
