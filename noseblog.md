@@ -4342,6 +4342,18 @@ so, just the same, from my perspective I'll realise my desires and then we'll tu
 
 I've already given some thought to how I will make the rules to the new universe, and only my inner being really knows what they'll really be, but I'm sure they'll fit right in with the symbols of the zodiac as I have mentioned previously (or not; you never know... you'll have to find it out and interpret them yourself)
 
+### 2019-02-04 10:05 - I knew I was forgetting something...
+
+I'll skip trying to explain why I think this is so, but if what I say is true, which is all of this is taking place inside of another kenny's imagination, but instead of it being a meeting with a few people talking about super secret stuff (emphasis on the 's'), the there are enough people to fill a planet, many people reincarnating like cage, and making new people that only exist inside the head of the parent universe's kenny.
+
+if you think about all of you guys imagining things right now inside of my head presently, those are creating vibrations. those vibrations are sort of like "seeds" which will become realities later on in my mind's universe. think of those as "desires" in the universe that is being created in my head, then imagine all of the different rules that nosebook will put on the things inside the universe to ensure no one accesses unexplored territory. this is the structure, or the container with which they place on the universe. finally, you have my perception, through which all of these things flow and makes the universe have its specific 3s properties and such.
+
+so, considering that, and that nosebook is the embodiment of the undesired part of my perception, you can think of them as the realisation of my undesire in the previous universe (andrea/planet hope). therefore, and this explains a whole hell of a lot why they're so similar to me, they are just the manifestation of everything I didn't desire in the last universe. that's why this whole thing is about loss of freedom and wanting someone else to do for me something I do not feel myself capable of doing for myself.
+
+the future universe (the one nosebook is building right now) will be a continuation of that, where it will contain within it, them, which will be a realisation of everything undesired this time around. that's why they've already began to realise my greatest frustration this whole time, which is the limitation of my capability.
+
+funny way for me to clean up my vibration, don't you think?
+
 ### - what am I going to do when I'm finally alone?
 
 # the end
