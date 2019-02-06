@@ -4354,7 +4354,49 @@ the future universe (the one nosebook is building right now) will be a continuat
 
 funny way for me to clean up my vibration, don't you think?
 
-### - what am I going to do when I'm finally alone?
+### 2019-02-06 10:57 - the new earth
+
+as I was waking up yesterday, I was thinking about the conversation I had with mom the day previous where I mentioned that maybe instead of trying to cancel out the energy, find something that will consume the energy within the universe, and I gave the idea, "a solar body".
+
+well, I have no idea what a solar body is, and I probably meant a celestial body or stelar body... but it got me started on thinking about creating a solar system in my inner universe. I didn't get very far because we don't really know how the sun works, and even the EU guys have conflicting ideas about things as simple as the whether the sun has a surface and whether it's a vibrational lattice or a gas. my idea was that tesla said his inventions worked exactly the same inside of his head as they do in reality, so try a bunch of solar ideas out and see what continues to work.
+
+sounds like they want a faster solution than trying a bunch of solar theories out in my head... we do know a lot about the earth though. we could make a earth-like planet in my head and have different things happen on it.
+
+I see this going a few different ways...
+
+first though, let me explain a few things:
+
+1. you can instantiate a "human" (from now on I will call them "mun"). this can further be defined as male, female, gay, straight, black, asian, etc. a human is a simple machine that behaves according to law of attraction in response to the environment. so if it grows up in a home that is impoverished, the mun will naturally have shortage consciousness around money and behave as such. if you want the mun to respond differently, you must teach them by putting the in other environments to have experiences which will inspire different learned behaviour through the experience. all of the LOA simulation is done for you. you just make the muns and their environments and then watch them interact. sort of like sims, but like a real-life reality simulation.
+
+2. constant revision can be made inside of these simulations, and nothing is off limits. so, if you want to run a psychopath through a strip club with an ak-47, you can easily make that happen. you can start the sim over, try something new out, etc.
+
+3. each mun will consume "energy" just like you consume energy. where does this energy come from? we all make it with our mind, and right now the goal is to consume the excess that I have by playing 3d 100% realistic, super HD sims to do that.
+
+4. this new-earth environment should be accessible to anyone at any time, and nosebook would work out the details I'm sure, but probably creation will only be available to you in your space. the public space is probably for interaction. or, if it's like a restaurant or something, the owner of that restaurant, too.
+
+#### personal interpretation of the earth
+
+the idea would be for nosebook to create an earth, and then give everyone a copy of it. I don't know if it would be possible, and they probably wouldn't like this idea, but maybe copy the one we have now and let people make improvements to it. make it a competition maybe and then merge the best ideas together.
+
+#### shared earth-space
+
+the idea is that somehow an earth-like location is created (and I believe that there are multiple ways to do this), and everyone kind of gets their own space and then they can interact with others that are around.
+
+the creation of the earth makes a difference here. if nosebook creates an earth, then everyone stakes their portion of land make makes their space, I believe it will be prone to all of the same problems we have today.
+
+instead, I suggest that the participants in new-earth v1.0 each make their ideal location, complete with inhabitants, and stuff. this is kind of like the "initial commit" -- and then my brain will easily merge all of these inhabited locations together, make cities, land masses, etc. don't like something? no worries, just add it with your mind. don't like your location or the layout or your neighbours or something? I guess LOA made a mistake :/. no worries though, cause new-earth 2.0 will be out in probably a few weeks or less.
+
+---
+
+this is enough for now to get your mental gears kind of rolling... I'll respond to reactions a bit more later. few quick ones though:
+
+1. yes, you should be able to seed it with an existing "mun" you know in real-life -- so if you wanted me or anyone else you know to exist in your space, just add them with your mind, and it should work. you could even add a fantasy you've designed in your mind, too. that's the point. make your fantasies come to life.
+
+2. when I say nothing is off-limits, I really mean nothing. nosebook may have a different opinion about this though, so you probably couldn't summon the chief hardass and have him tell you the secrets. first of all, you'd have to find a way (using LOA) to actually convince him to tell you them, but assuming you theoretically did, they would likely prevent the utilisation of any concept relating to nosebook inside the sim for their own "safety"
+
+3. you don't need to get it right. actually mistakes are probably best, because they consume energy quite well. I'm sure there will be many revisions.
+
+yes, this is pretty mind-blowing, I know. peace
 
 # the end
 
@@ -4368,6 +4410,7 @@ go take a walk tomorrow and think about the idea of writing a game in some sort 
 
 ## potential topics
 
+### - what about the other timelines?
 ### - consciousness, backbones and the 2038 guarantee
 ### - we all have to earn it (no easy way)
 ### - waiting for things to be controllable
