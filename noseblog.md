@@ -4400,11 +4400,37 @@ this is enough for now to get your mental gears kind of rolling... I'll respond 
 
 I have also given considerable thought to allowing kids to use this reality simulation capability in 3d space like tesla did with his motors. like I mentioned in the sidebar, forcing the idea to conform to believable 3d space makes the difference for conjuring a fantasy in your imagination, because it conforms to reality so it's more real. so naturally, I jumped when I heard joe rogan talking about a 1000 teslas in his interview with elon... all you need to do is to give them the capability and let them fly. though kids making inventions was the main thought, and me using my brain to make the sims and run simulations in there was my main goal, it does make more sense presently to let kids play sims in my brain.
 
-5. I don't see any reason why you couldn't view the simulation inside the perspective of one of the muns or externally as well. both should be possible, yes.
+5. I don't see any reason why you couldn't view the simulation from inside the perspective of one of the muns or externally; both should be possible, yes.
 
 ---
 
 yes, this is pretty mind-blowing, I know. peace
+
+### 2019-02-09 12:36 - so I think I've made sense of this whole guardiannship thing
+
+when julia asked me on the phone what sorts of things I wanted to be doing, I gave her a short list of things that I used to think were exciting, but now are no longer because of the difficulty I have attempting to do anything tecnical.
+
+I also mentioned to her that I would like to sue.. really, thinking about the intentions behind that a bit later, it was evident that I would be using any money I had to live on my own so that others couldn't tell me what to do. I felt tremendous resistance to that idea, and it was clear that the *last* thing they want is to let me be on my own where they cannot control me. obviously they want to try and control me through mom.
+
+after that I went off on a tirade about how I'd rather them just control me directly instead of hiding behind mom, and again I felt tremendous resistance. when I woke up this morning I continued right where I left off but this time I had this strange question in my mind why I want to protect isn't the right word, but not obligate mom to be in the middle of my trying to obtain my freedom, and their attempts to control.
+
+later, upstairs I realised that I should just give her the full guardianship experience, but I had to figure out why I felt that way. downstairs, I realised that mom has been giving a lot of attention to the idea that she is at a place in her life where she is not where she wants to be. she's taking care of a bunch of boys and her business isn't working either ... clearly, she doesn't believe she doesn't believe in her own capability to do her business yet, because she still needs these real-estate conference pump-ups to to feel like she can do it. unless of course the real-estate conferences are actually nosebook meetings, which makes what I'm about to say next make a whole lot more sense.
+
+if I imagine asking mom what she *wants* to be doing, I imagine she'd say something like being successful with her business (which we just established she doesn't believe she's capable of doing). but then she'd give excuses like she doesn't have enough time like she has to take care of boys, or because she doesn't actually make any progress because of nosebook meetings. so, if you think about what she's saying is that instead of going in the direction of what will make me feel good, she has these other people who *need* her to do things.
+
+LOA doesn't lie, so that means she thinks she wants these other things, but really she wants to be needed.
+
+this whole guardianship thing is about her being in a place where she can be needed, and have the power to do what they *need* for her to do.
+
+she says that this guardianship thing is only temporary, but as I felt last night watching stars, the last thing these guys want is for me to be on my own. they need a way to try and control me, and right now mom is that person. combine this with my intention of going for a 20+ year nosedive, this actually fits perfectly into the big scheme of things.
+
+let the guardianship games begin. she's really going to feel more needed than ever. they'll need her to do so many things, she'll be such a valueable asset to them she'll be an *invaluable asset*.
+
+no need for me to fight any more, the resistance I felt originally came from my experience with eduardo and augusto, but I now see that the resistance I felt was only in my perception (or understanding) of what was really going on.
+
+this song is dedicated to this entry: CXNTRAST - Phase Of Space
+
+@[youtube](XxJPCHq2YO0)
 
 # the end
 
