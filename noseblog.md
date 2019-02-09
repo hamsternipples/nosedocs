@@ -4432,6 +4432,40 @@ this song is dedicated to this entry: CXNTRAST - Phase Of Space
 
 @[youtube](XxJPCHq2YO0)
 
+### 2019-02-09 15:55 - what do I see myself doing
+
+julia asked me to begin thinking about what sorts of stuff I have in mind for where I see myself in some time.
+
+the simple answer is, I don't know. you see, my life had a certain amount of excitement associated with it. I would attract these things and then mind-blowingly amazing things would happen. this made me an attractive person. additionally, I have a lot of mental freedom. I can talk about anything, understand anything, and I don't perceive many limitations. this makes me very attractive because people love to see that kind of freedom.
+
+however, it doesn't work very well with these guys plan, because they want to control. they don't like that I can just have a very unplanned exciting thing happen to me. they want to make sure they are in control of anything, so they control everyone around me, and limit all conversation so that all of that attractiveness that I had is no longer an everyday experience.
+
+so, to answer her question, where I see myself in the future is being forced to conform to some sort of thing they feel will get things back under control. nothing controlled is very fun, so I'm constantly readjusting my direction to go in a way that's more enjoyable.
+
+however, they do not want me to feel good about anything that I'm doing. for example, they want me to look successful to people by putting me in circumstances which they control and appear successful. which is fine, however, the moment I begin *feeling* successful I start having visual capability, so they must make me feel bad again.
+
+they just want me to look like I feel good, without actually feeling good.
+
+---
+
+so, knowing that now you can imagine that I cannot project anything in the future, because I enjoy the excitement of attracting something unexpected. additionally, I cannot project anything I want to be doing because the minute I want to do it, it now becomes something that makes me feel good, and so therefore the source of visual capability, and so it needs to be neutralised.
+
+when they neutralise the things that make me feel good, they basically send the opposite signal into my head, so that by destructive interference, the signal is neutralised and no longer activates any organ in my body which will feel good. a good example of this is my stomach. apparently most of your serotonin exists in the stomach. to ensure I don't feel good, they're constantly neutralising it, and this is evidenced by insane amounts of gas and burping that I experience, especially around times of watching stars or a nice walk -- or anytime that you would imagine that I would feel good, instead I get bad gas.
+
+---
+
+instead, what I can say is say is what I will be doing which is what I'm doing now. I'm going to continue to work on feeling better and better learning more and more techniques to manage and direct my energy toward things that feel good to me.
+
+this means that, in their perspective they will have less and less control over how good I feel, and therefore less and less control over my visual capability. essentially, the more improvement I have and the better I get, the more they will try to get me back under their control.
+
+---
+
+so, I guess to answer her question, I will probably still be living at home, playing games poorly because my mind isn't clear enough to do anything useful, and watching stars to practice my energy management.
+
+really, the same thing I'm doing now already... I want to be doing something useful with my time, but I have no real way forward (that I can see) to do that.
+
+I'm SOOOOO BORED. I really want to do something with my time, and have given this subject quite some thought, and the only answer I can come up with is to take no action until I can feel good about whatever it is. then, when the action goes to feeling meh to bad, quit the action, regroup and try again.
+
 # the end
 
 ## stuff
