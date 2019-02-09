@@ -4424,7 +4424,7 @@ this whole guardianship thing is about her being in a place where she can be nee
 
 she says that this guardianship thing is only temporary, but as I felt last night watching stars, the last thing these guys want is for me to be on my own. they need a way to try and control me, and right now mom is that person. combine this with my intention of going for a 20+ year nosedive, this actually fits perfectly into the big scheme of things.
 
-let the guardianship games begin. she's really going to feel more needed than ever. they'll need her to do so many things, she'll be such a valueable asset to them she'll be an *invaluable asset*.
+let the guardianship games begin. she's really going to feel more needed than ever. she'll be such a valuable asset to them, she'll be an *invaluable asset*.
 
 no need for me to fight any more, the resistance I felt originally came from my experience with eduardo and augusto, but I now see that the resistance I felt was only in my perception (or understanding) of what was really going on.
 
