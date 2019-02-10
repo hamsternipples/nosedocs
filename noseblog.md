@@ -4466,6 +4466,41 @@ really, the same thing I'm doing now already... I want to be doing something use
 
 I'm SOOOOO BORED. I really want to do something with my time, and have given this subject quite some thought, and the only answer I can come up with is to take no action until I can feel good about whatever it is. then, when the action goes to feeling meh to bad, quit the action, regroup and try again.
 
+### 2019-02-09 18:02 - so what's in it for future bso?
+
+imagine that abraham is correct and that nobody can hold anyone away from their desire... well, then you would imagine that in every timeline where there is not something catastrophic like me killing myself or something, you could imagine that I do eventually go up a dimension and they are unable to pester me like they are now.
+
+so, now imagine that one of the girls scenarios happened, and note that likely I would have achieved the 5th dimension and there would have been nothing they could do about it. their entire plans to continue using my visual capacity were wrecked. I'm now free to think about what I want to think about and I begin creating things. since one of the things that has interested me so much is time, you could imagine that I would be able figure this out. you also could imagine that in this timeline the bso couldn't maintain the secret and they certainly couldn't continually try to limit my capacity. they wouldn't be able to even see through my eyes, so they would likely try to befriend me to try and extract as much information out of me as they could.
+
+this situation or some other similar would create strong desire in them to learn how it works for their benefit instead of controlling something someone else has for their benefit -- so it's *very* likely that fwh and all the other future people out there manipulating this timeline are somewhat friends.
+
+so what is the goal? if the realisation of my desire is absolutely guaranteed, then they are wanting to extend out the time they can utilise my capacity for their benefit.
+
+now let's reframe the present circumstances: if the goal is to extend the amount of time they can use my capacity for as long as possible, they you now can see that this is a very careful walking the edge.
+
+- if they are allowed to control my visual capacity so much that no movement can be made toward my desire, the more resistance will build as the gap widens, and the worse I will feel. too much of this and a catastrophe happens.
+- if I get too big of a jump forward where they cannot control it, such as the girls or too much progress with the stars, then I would get jump up to the next dimension,
+
+this perfectly explains why I (and abraham) are constantly giving them the answers they're looking for. it also perfectly explains why I'm constantly on the brink of catastrophe. finally it explains my desire to have such a long nosedive.
+
+combine all of this, and it seems all of this that is happening, is actually the easiest way for them to utilise my capacity for as long as possible.
+
+it's kind of funny, but in the more I understand all of this that's happening, they're doing all of it themselves. they are making all of their own problems and fighting against theirselves.
+
+---
+
+in relation to my previous entry where I spoke about my life being exciting, I think this is the most exhilarating part of everything. I am a voracious observer, because well I don't know actually, but it's almost as if I watch others to see how is the "expected" way for something, so that when my life produces something similar, it's the unexpected way. it always is.
+
+in fact, I've been watching my results playing auto chess and whenever I have an idea of what I want, it seems it's the last piece to show up. however, trump says to let the draft speak to him, and savjz just buys everything, constantly changing and adapting his plan as he goes along.
+
+it seems to me that planning or wanting so bad for the game (or people) to give me what I want, makes the realisation of that the slowest in coming -- however, when I just go with the flow and work with what's given to me, it seems to work the best.
+
+as a contrast, I've also been studying these guy's over this whole guardianship thing, and they have identified the problem (probably that I don't look like I'm doing anything), and they determined that the solution is to make me begin doing things by pushing me out of the nest and making me do things I don't want to do.
+
+however, as this has played out, they're beginning to realise that the guardianship thing my not solve their problems -- and actually potentially exacerbate them. like me, they decided what the draft should give them.
+
+let me explain: ... I'm having trouble coming up with a good way to illustrate it right now. I'll come back to it.
+
 # the end
 
 ## stuff
