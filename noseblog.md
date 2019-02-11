@@ -4501,6 +4501,74 @@ however, as this has played out, they're beginning to realise that the guardians
 
 let me explain: ... I'm having trouble coming up with a good way to illustrate it right now. I'll come back to it.
 
+### 2019-02-11 12:39 - what about the other timelines?
+
+one of the interesting reactions I had to the previous entry was that somehow people made it think that I am somehow unavailable. since then, I've given it a lot of thought, and I want to remind you that you create your own reality, and as I've been saying before, when there is conflicting desire, timelines get split as both become a manifest reality. I am so sure this is the case now, that I'm stating it now as fact. unless I'm missing something, everyone has the ability to create *anything* in their reality. it has nothing to do with anyone else -- and it's only your perception of them that has anything to do with anything.
+
+so, from my perspective, I will never see the manifestation, however anyone else who wants to see a manifestation will be able to do it. there could be millions of people who end up having a manifestation with me, and I will never know about it. my objective is to continue to go as fast and as far as I possibly can without having a manifestation. I'm just here squeezing the last drops of contrast out of the die-hards for as long as they can hold on.
+
+this has a few implications, which is what I have been thinking about, and then the implications have implications too. so, here we go...
+
+if you think about how every time there is an evolution of desire, the desire and therefore the manifestation gets bigger. so, if you are someone like me and my objective is to nosedive for a while, that means the manifestation will get pretty big. so big in fact, that I can imagine whatever it is has its own ruleset to it.
+
+for simplification, I'm just going to assume that the manifestation is a new universe inside of my head. you can take the ideas and apply them to the creation of a new child, a new planet, or a new galaxy as well; it's all the same process of creation (and potentially one of the reason why first-born or children conceived as a result of adverse circumstances tend to begin life with more momentum).
+
+let's start by painting a picture. imagine someone wants to have a relationship with me. at first it seems impossible. let's say they're so impossible, even nosebook has ordered everyone wanting a relationship with me to keep away, or I don't know.. they give you a stern talking-to or something really bad like that. doesn't matter to the person, they feel strong desire that they want to have the relationship, anyway. so, what they would do is to begin by «ignore the details; instead, focus on how it feels».
+
+much like any reality that you couldn't wait to have happen, eventually came to pass. notice how there's a feeling like it's getting closer, and wow, this really is happening as it begins to feel more and more to you like it's becoming a reality?
+
+let's take for example my current situation with mom being forced to become my guardian. I'm sure she probably fought it for quite some time because she didn't really want to do it. then, as it begins to take shape by constructing the petition and serving it to me, as that happens it begins to feel more and more real to her. much like watching a gang force someone to kill their first person, they must force her into the reality my convincing her that it's really happening. she kept saying, "this is really happening" -- as if to convince herself of this reality she does not want becoming manifest.
+
+well, that was kind of a dark example, but it perfectly illustrates the process of going from an idea into a reality. as steps are taken, it feels more and more like reality. the nosebook guys are really good at creating reality -- just think about how well they convinced all of you guys that so many different things were happening, when I would repeatedly say that they don't feel good to me, not going to do it, etc. then, they would temporarily make me feel like it, before reverting back to my default state a few days later.
+
+it took me a while to be able to control the way I feel (and perhaps I still have some to go), but reality is made manifest first by the way it feels. so, you would just have to find the feeling place of what you want (you are the creator of your reality), and begin to feel it more and more as it starts to take shape.
+
+I'm pretty resistance free now, so perhaps even a gay man could make something happen with me, but I want to now mention a concept that I have repeated quite a few times, which is for a woman to control her sexual/creative energy energy. so I will speak from the female perspective instead of the male perspective.
+
+you (the girl) want to make something become a reality, so often times you will begin to imagine this situation playing out in your mind. I can often detect this is happening because I feel the energy activating sexual excitement in me. this isn't what you want to do until the very final moment. I believe this energy comes from the stomach, and it can go down to the genitals, or up to the heart. when it goes down, it'll activate all sorts of imaginations in your head (ask nosebook: they control my ability to use my imagination by extracting energy from my genitals).
+
+I can feel a very big difference between the way energy feels when it goes down to my genitals, or up to my heart. think about how you feel when you feel so good and accomplished, and your chest expands and you feel your heart racing. or imagine how you feel when you really feel a strong sense of connection to someone with desire -- your heart has a very tangible feeling of desire inside of it. kids do this much more than results. if you want an example of what it feels like, you can go to many of the times I would feel that in relation to andrea.
+
+anyway, your goal is to bring that energy up toward your heart, or keep it in your stomach as long as you can. as soon as it gets down to your genitals, the manifestation is happening. like I said, I can feel it (manifestation), and you're seeing it in your imagination (manifestation). instead of going for the quick mental manifestation like that, wait for it to feel like it's becoming more and more of a reality.
+
+you don't need to use words to convince yourself that something is really happening, because your use of words is only making you more aware of the difference between how things are, and things should feel if they really were happening.
+
+words are also a manifestation, which is why this whole thing is being kept such a secret, and also why my writing here has had tremendous effect aborting manifestations. my goal is not to have manifestations.
+
+also, the next thing I would do is to turn off the news on the device. those news things will hold you in current reality, not the one you're trying to manifest (the one you feel is coming). *this is super important!*
+
+---
+
+so, let's say you figured out how to make what you feel you want become more and more real. perfect. somewhere along the way your desire grew (and your alignment/feeling with it) to be such that it happened. perfect!
+
+you and anyone else who was believing right along with you are now in your own personalised reality. everyone else who would not or could not be in alignment with your reality is not conscious in your reality, so they're not really big players any more. enjoy your reality, and as always contrast will inspire you to continually improving on it.
+
+---
+
+so, what I imagine would happen after someone managed to make a relationship with me happen. well, it's quite probable that I will go up a dimension. that means that nosebook can no longer control me like they can right now, so the person(s) with which I am in the relationship with will now become nosebook's objects of control -- for two reasons: 1. you getting to the 5th soon thereafter will be likely and 2. they will see that I am low resistance and go with the flow of my partner, so it'll naturally lend them to believe that if they can control you, they can control me by proxy.
+
+this would launch my partner into a similar situation that I am now in as well, and nosebook's pressure would force them to release resistance. so, a good thing :)
+
+you could imagine this creating many thousands (maybe more) of conscious realities which are very different than the one that my consciousness is continuing to perceive.
+
+---
+
+here's the last piece, which isn't clear to me. it seems that the thrust here is in the direction of using all of these different realities as the "ruleset" for the big manifestation that I'm working on.
+
+let's take one such way this could be possible. imagine that nosebook figures out timeline technology and they realise they're losing consciousness on this timeline (meaning more and more people are conscious on different timelines). they determine that (because misery loves company) they are going to try and hijack these realities by somehow moving these realities inside of my head, so as to try and regain control over them that way.
+
+well joke's on them, because it must be pretty disappointing to find out that 99.9999% of all realities are an improvement on the current one they are trying to control, and they don't have control over those. so they move them over to a place they do control (my head), thinking they've conquered the situation, but in reality they have not.
+
+the rules of a thing (structure, person, planet, solar system, galaxy, universe) are more like habits than hard and fast unchanging things [^1]. so, actually all of these 5th dimensional kennys out there and his partners are actually practicing the rules of the new creation that has yet to become manifest.
+
+to put it more simply, it looks like I provide the hardware (computer, graphics card, etc.), nosebook does the sales and marketing, source provides the electricity, and kenny's partners are the programmers for this new reality.
+
+this is good for now... a good mental exercise would be to take this from the opposite side, and see how something similar happening to a girl with capacities similar to mine, and her over-controlling over-mothering matriarch experience could produce something similar to the situation we're living in now [^2].
+
+[1]: see rupert sheldrake's material on morphogenetics for an introduction on this. questions about his work (but never explicitly named) have also shown up periodically in abraham workshops.
+
+[2]: it has been said to me that I don't tell a woman she's beautiful. I have resistance to the idea, and I don't know why. I believe she should already know this, and if I were to tell her, she would believe that I'm trying to butter her up to get something out of her. I do not see the point in trying to validate something she already should be well aware of with my words. so, imagine this woman in opposite earth attracted partners who were aggressive in their pursuit, and willing to validate her phsicality for her.
+
 # the end
 
 ## stuff
@@ -4513,7 +4581,6 @@ go take a walk tomorrow and think about the idea of writing a game in some sort 
 
 ## potential topics
 
-### - what about the other timelines?
 ### - consciousness, backbones and the 2038 guarantee
 ### - we all have to earn it (no easy way)
 ### - waiting for things to be controllable
