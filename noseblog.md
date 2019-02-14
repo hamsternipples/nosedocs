@@ -4581,7 +4581,7 @@ you might say that is a contradiction, but a contradiction is where one is true 
 
 @[youtube](8oEO8bZo)
 
-"you're working at innatech because that question is bullshit to begin with. if everyone listened to her there would be no janitors because no one would clean shit up if they had a million dollars" -michael bolton
+"you're working at initech because that question is bullshit to begin with. if everyone listened to her there would be no janitors because no one would clean shit up if they had a million dollars" -michael bolton
 
 ---
 
@@ -4591,7 +4591,7 @@ I think that the question is bullshit to begin with, and a lousy way to anticipa
 
 so, you say, who then would clean all the shit up? well, I think we're a ways from the realisation that every human does what he or she wants to be doing, and by that time, I assure you technology will be in place so that shit is automatically cleaned up.
 
-during my time here talking about the potentiality of nosebook and its technology, I have come to believe that technology is a reflection of the human psyche. the technology which nosebook is built on can be utilised for quite a few very beneficial things, yet people instead believe that it should be utilised exclusively by the self-proclaimed "authorities" to limit and control human capability, to realise their own superiority.
+during my time here talking about the potentiality of nosebook and its technology, I have come to believe that technology is a reflection of the human psyche. the technology which nosebook is built on can be utilised for quite a few very beneficial things, yet people instead believe that it should be utilised exclusively by the self-proclaimed "authorities" to limit and control human capability, realising their own superiority over us.
 
 ---
 
@@ -4603,11 +4603,13 @@ as it stands, they will still continue to do whatever they're doing without my c
 
 what I mean by that is, people must be aware of what is going on in some way. clearly they are selling my capabilities while at the same time holding me in limitation. I estimate this has to be pretty well realised by quite a few people by now, and so I imagine that no matter how hard I try to fight anything, I'll be met with a wall of whatever they say to say. meaning, the lawyer is going to give the argument they want given, the judge will give the judgment they want given, and if not they'll find someone who will. they have money printers, and everyone has a price -- so even in the worst case scenario, where there is a rogue free-thinker, they can just be bought out.
 
-there's no point in me attempting to fight anything, cause people are very likely already aware of what is happening, and are going along with the whole thing.
+there's no point in me attempting to fight anything, cause people are very likely already aware of what is happening, and are going along with the whole thing. they actually believe that by forcing the guardianship thing, and then having my guardian sign away my rights, it somehow becomes consensual [^1].
 
 so, that means I just have to drop it. I have to give up the fight. I have to do something I don't want to do.
 
 maybe one day we can focus on the things we do want to do, rather than being "forced" to do the things we don't want to do...
+
+[1]: when their whole monetisation strategy is selling (illegal) underage sex because it's consensual, the irony is not lost on me that, to feel justified in their actions, they must force legality to justify something that remains unconsensual.
 
 ---
 
@@ -4619,7 +4621,17 @@ I even did that a bit (a lot) in this entry, so I'll attempt to tone it down a b
 
 I'm going to try and put a more positive focus from now on, but I suppose if you guys really want me to continue to identify the problem, I can oblige, I'm sure.
 
-as I said in the previous entry, attract from me what it is you want from me, not the way they are, in the news, defining me to be. 
+as I said in the previous entry, attract from me what it is you want from me, not the way they are, in the news, defining me to be.
+
+---
+
+lastly, on the issue of consent: when it comes to people using my imagination, I would give away the capability to all (for free). however, I believe they are probably not giving it to people for free. there are likely pricing tiers and other sales BS, and it's probably pretty limited.
+
+one of the stranger reactions I got to my entry on the new earth: @[entry](2019-02-06 10:57) was the idea that I wanted to give away and let people use all of that capability *FOR FREEE??!?!?!*
+
+yo man, I don't make the rules or even get to use my own capability myself, but I imagine that allowing people to try out unlimited possibilities in my inner universe could be **very lucrative**.
+
+wtf man...
 
 ### 2019-02-14 ??:?? - legalise it
 
