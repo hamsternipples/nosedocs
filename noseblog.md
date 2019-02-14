@@ -4398,7 +4398,7 @@ this is enough for now to get your mental gears kind of rolling... I'll respond 
 
 4. yes, this is precisely what I would be doing in my head if I had access to the inner-universe. in fact, this idea is quite old. back when I was doing mdma at augusto's house, the whole idea was an open space where you could design your own tuff and have it interact with others. I wanted it to be something like facebook meets the sims (where you were the sims), and the spaces were connected virtually, and not contiguously (so you were "neighbours" to many hundreds at a time). I also alluded to it in @[abe](2018-06-09-portland) sidebar on 3d creativity, and the sirian guide to human development mentions that if you wanted to see an interaction, you just conjured it with your mind in 3d space and watched it (similar to tesla's inventions, but with interactions)
 
-I have also given considerable thought to allowing kids to use this reality simulation capability in 3d space like tesla did with his motors. like I mentioned in the sidebar, forcing the idea to conform to believable 3d space makes the difference for conjuring a fantasy in your imagination, because it conforms to reality so it's more real. so naturally, I jumped when I heard joe rogan talking about a 1000 teslas in his interview with elon... all you need to do is to give them the capability and let them fly. though kids making inventions was the main thought, and me using my brain to make the sims and run simulations in there was my main goal, it does make more sense presently to let kids play sims in my brain.
+    I have also given considerable thought to allowing kids to use this reality simulation capability in 3d space like tesla did with his motors. like I mentioned in the sidebar, forcing the idea to conform to believable 3d space makes the difference for conjuring a fantasy in your imagination, because it conforms to reality so it's more real. so naturally, I jumped when I heard joe rogan talking about a 1000 teslas in his interview with elon... all you need to do is to give them the capability and let them fly. though kids making inventions was the main thought, and me using my brain to make the sims and run simulations in there was my main goal, it does make more sense presently to let kids play sims in my brain.
 
 5. I don't see any reason why you couldn't view the simulation from inside the perspective of one of the muns or externally; both should be possible, yes.
 
@@ -4565,9 +4565,22 @@ to put it more simply, it looks like I provide the hardware (computer, graphics 
 
 this is good for now... a good mental exercise would be to take this from the opposite side, and see how something similar happening to a girl with capacities similar to mine, and her over-controlling over-mothering matriarch experience could produce something similar to the situation we're living in now [^2].
 
-[1]: see rupert sheldrake's material on morphogenetics for an introduction on this. questions about his work (but never explicitly named) have also shown up periodically in abraham workshops.
+[1]: see rupert sheldrake's material on morphogenetic field for an introduction on this. questions about his work (but never explicitly named) have also shown up periodically in abraham workshops.
 
-[2]: it has been said to me that I don't tell a woman she's beautiful. I have resistance to the idea, and I don't know why. I believe she should already know this, and if I were to tell her, she would believe that I'm trying to butter her up to get something out of her. I do not see the point in trying to validate something she already should be well aware of with my words. so, imagine this woman in opposite earth attracted partners who were aggressive in their pursuit, and willing to validate her phsicality for her.
+[2]: it has been said to me that I don't tell a woman she's beautiful. I have resistance to the idea, and I don't know why. I believe she should already know this, and if I were to tell her, she would believe that I'm trying to butter her up to get something out of her. I do not see the point in trying to validate something she already should be well aware of with my words. so, imagine this woman in opposite earth attracted partners who were aggressive in their pursuit, and willing to validate her physicality for her.
+
+### 2019-02-14 10:14 - paradox vs. contradiction
+
+their definition is not who I am. I am umch more than that. turn off their definition of who I am based on what they are attracting from me, and attract what you want from me.
+
+I am everyone's, and at the same time I am no one's. you are watching the person that is no one's because that is where my consciousness has to be -- so everyone that stops tuning into that definition of me and starts tuning into the definition they want of me, gets me that way. I must remain a paradox unto myself.
+
+you might say that is a contradiction, but a contradiction is where one is true and the other is false. a paradox is where they are both true. I don't have exclusivity to paradox. try some mushrooms and marvel at how regular I look in comparison -- and you too can turn your contradictions into paradox.
+
+### 2019-02-14 ??:?? - PC Load Letter; what the fuck is that!
+### 2019-02-14 ??:?? - legalise it
+
+
 
 # the end
 
@@ -4581,6 +4594,7 @@ go take a walk tomorrow and think about the idea of writing a game in some sort 
 
 ## potential topics
 
+### 2019-02-12 ??:?? - what about the other timelines? (part two)
 ### - consciousness, backbones and the 2038 guarantee
 ### - we all have to earn it (no easy way)
 ### - waiting for things to be controllable
