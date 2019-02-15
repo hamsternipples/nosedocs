@@ -4707,15 +4707,49 @@ I also want to take a moment to note that previously when I first began to watch
 
 I think I've figured it out because of the similarity to its previous feelings of pleasure, but I believe this will begin to work in all situations going forward.
 
-it's kind of amazing to see the poetic justice in all of this. when I learn to feel pleasure instead of anger I will have accomplished what the coke-addicts do without coke, realised the reaction that I'm a high-functioning psychopath, and redeemed the original attractiveness of star-watching, and made me unstoppable.
+it's kind of amazing to see the poetic justice in all of this. when I learn to feel pleasure instead of anger I will have accomplished what the coke-fiends do, but without coke. then, I will make reality the reaction that I'm a high-functioning psychopath, and redeemed the original attractiveness of star-watching -- making me unstoppable.
+
+furthermore, it redeems the thing that started this whole thing off in the first place: the vallecas incident, where something like that can only happen when rage and pleasure get mixed in the mind of someone very coked out.
 
 ---
 
-additionally, when it comes to the new universe, since the universe is realised through my perception, in the new universe *everyone* will experience pleasure in their anger and anger in their pleasure. I find that to be a very very interesting next-step for munkind :)
+also, when it comes to the new universe, since the universe is realised through my perception, in the new universe *everyone* will experience pleasure in their anger and anger in their pleasure. I find that to be a very very interesting next-step for munkind :)
 
-imagine having sex and coming away from it feeling angry (and pleasure). imagine having to constantly choose between these feelings -- where even the simple pleasure of eating food makes you angry too.
+imagine having sex and coming away from it feeling angry (and pleasure). imagine having to constantly choose between these feelings -- where even the simple pleasure of eating food can make you angry.
 
 it's going to be a totally new experience for us all. I wonder if this will take immediate effect on my imagination? (the one everyone's using)
+
+### 2019-02-15 12:07 - anger and pleasure together how does it work?
+
+well, for me what I experienced and seen experienced by others is that pleasure and rage or aggression come both at the same time. meaning you will feel both.
+
+so, let's take the example of eating food, you would feel the pleasure of the food, but also anger would be mixed in there. since food eating is normally pleasureful, you're likely to feel pleasure -- unless someone you don't want to talk to calls you while you're eating, or the chef has prepared the food in a particularly angry mood, then you're more likely to feel the anger.
+
+essentially, since it comes in a pair like that any activity which is pleasureful will have a much higher possibility of a dramatic switch into rage.
+
+---
+
+so, in my case since I feel such strong rage, I will have that energy also activate the pleasure part of my brain. so every time I would normally feel anger, I will feel anger and an equal amount of pleasure along with it. then, I choose what I want to feel.
+
+obviously, I'll pick pleasure. I don't like the way anger feels. it make take me a bit of time to get it down. it is sort of like playing with fire a bit, and realising a new version of me where I essentially am a reformed coke-fiend is a bit of a new way of doing things.
+
+it's weird how this entire process has been becoming the problem that got me into the situation then finding a way out of it by transforming the energy.
+
+I'm very confident in this capability now that I've written these two things on it. give me a few tries and you'll see stunning results in a very short period. I've got this :)
+
+### 2019-02-15 12:20 - not everyone experiences coke rage
+
+true. I was thinking about this, too. for example I didn't. there's another dynamic of the brain that coke seems to excite as well, which is the importance/meaning part of the brain.
+
+when I was programming these stupid javascropt panels that could refresh in real-time (ask gonzalo), I was so convinced of how important and game changing they were. I also have noticed other people (*cough* zaryn -- but probably most of the people at nosebook too) seem to feel themselves to be ***VERY IMPORTANT***. they're so convinced of how big of a deal they are, and how meaningful the mundane thing is that they're doing.
+
+I think this was originally acquired into the drug's frequency from the people working hard labour in the jungle chewing on coco leaves. in order to give meaning to their clearly very mundane and trivial labour, the added pleasure allowed them to concoct a fantasy reality in their mind of how important the work they were doing was to make it tolerable.
+
+---
+
+I've not given this much thought, but it seems that importance is to meaning as pleasure is to happiness. I'll see how I can begin to redefine this one too.
+
+ironically, because my life has become so mundane: I eat, sleep, watch stars and watch youtube. that's about it right now. my life has no meaning, and it's not important at all, so perhaps I could leverage my current situation to the redefinition (emotional rexperession) of this concept.
 
 ### 2019-02-14 ??:?? - legalise it
 
