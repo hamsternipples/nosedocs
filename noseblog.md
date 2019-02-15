@@ -4593,6 +4593,8 @@ so, you say, who then would clean all the shit up? well, I think we're a ways fr
 
 during my time here talking about the potentiality of nosebook and its technology, I have come to believe that technology is a reflection of the human psyche. the technology which nosebook is built on can be utilised for quite a few very beneficial things, yet people instead believe that it should be utilised exclusively by the self-proclaimed "authorities" to limit and control human capability, realising their own superiority over us.
 
+(if you haven't seen the movie, watch it, but I want to remind you that this is the prequel to peter's next bold move to begin doing what he wants)
+
 ---
 
 this idea also brought up some other things which I would like to add to the discussion as well.
