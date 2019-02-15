@@ -4641,13 +4641,15 @@ last year nosebook ran a thing (apparently) comparing different people's valenti
 
 I find this humorous in a few ways because it seems that we've come quite a ways since then.
 
-also, just recently I watched @[youtube](t8xL7w1POZ0), noting a few of the different patterns revolving around bondage as romance. look for some similar patterns to come up in the months to come. since their entire gig is focused around utilising my capabilities, that means that they are subject to continue to play a game with me where they must fight against me. in this sense, now that I'm learning to play the game effectively, they must play along, or else their secrets are revealed.
+also, just recently I watched @[youtube](t8xL7w1POZ0), noting a few of the different patterns revolving around bondage as romance. look for some similar patterns to come up in the months to come. since their entire gig is focused around utilising my capabilities, that means that they are subject to continue to play a game with me where they must fight against me. in this sense, now that I'm learning to play the game effectively, they must play along, or else their secrets are revealed. so, in effect they are held in bondage by me.
 
-maybe actually now that I think about it, it's less bondage as romance and more like co-dependence. as I learn to farm their energetic output for my own expansion, I become dependant on them to continue to increase the resistance.
+maybe now that I think about it, it's less bondage as romance and more like co-dependence. as I learn to farm their energetic output for my own expansion, I become dependant on them to continue to increase the resistance.
+
+as they increase the resistance, think of it like physics. so, in order to prevent me from having my visual capabilities, they *must* push against it with equal force. if I generate 100V, they have to generate -100V. then, I learn to utilise that -100V as if it were a positive by rearranging my perception of it, and now I have nearly 200V to work with, so I get a vision upgrade and you get an imagination upgrade :)
 
 so, until next year, happy valentine's day!
 
-(man, it feels to me like maybe 3-4 years have passed since then. I think it's the trump effect)
+(man, it feels to me like maybe 3-4 years have passed over the last year. I think it's the trump effect)
 
 ### 2019-02-14 ??:?? - legalise it
 
