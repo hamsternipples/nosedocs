@@ -4651,6 +4651,72 @@ so, until next year, happy valentine's day!
 
 (man, it feels to me like maybe 3-4 years have passed over the last year. I think it's the trump effect)
 
+### 2019-02-15 10:43 - converting anger into pleasure
+
+so I had an interesting event happen this morning where I woke up at 4am, noticed the sky was clear so I went to go watch stars. by the time I had walked there (10 mins to dress and 5 to walk there), half the sky was already cloudy. I decided not to walk the full ways out and just begin where I was. as I started, I noticed myself getting progressively more and more angry.
+
+as I jumped up to find a rock to break more windshields, I noticed that the moment I stood up I felt better. I also noticed that I had a very difficult time finding a rock, so I just stood there and looked at jupiter.
+
+as I looked at jupiter the entire sky around me had cleared up. I went forward and watched stars some more on the ground, but then I noticed clouds forming quickly so I stood up again with the idea of seeing if that was what was causing it. again, the clouds cleared up rapidly as I looked at jupiter. also of note, it started to rain as the clouds vaporised and continued to rain even with a clear sky above.
+
+finally venus was quite visible and high enough in the sky that I decided to lay down and watch the sunrise. I got all situated and began watching venus with only my left eye when I noticed after a few minutes that the entire sky was fully covered in clouds. I jumped up and tried to see if I could slow it down, but it was too late.
+
+so, a couple of take-aways here...
+
+1. laying on the ground seems to make me feel anger much stronger
+2. standing up and watching stars seems to clear the sky much more effectively than anything else.
+3. planets seem to be more effective at making (venus laying on the ground) and taking away clouds (jupiter standing up)
+
+further experiments will be made, of course. there is definitely something to do with the circuit that is made when I am touching the ground, because I also have noticed here at home that sitting in the chair is many times more effective at cloud removal than laying down.
+
+I think at this point in the game where they really want to prevent more visual levels, I'll get quite some practice out of it. things to try obviously are standing bare-footed, and trying to find the difference between the stars and planets.
+
+---
+
+so then, as I came home I began to become aware of different reactions to whatever news was posted in response, and some (not so) crazy things like fully-functional psychopath, he has no remorse, etc.
+
+well, I believe one of the mechanisms that allows my visual capacity to work is strong emotion. when I was younger I had strong emotion and I shut it down. it also shut down my visual capacity. when I feel something, I feel it so strongly, it has to become manifest in some way. that was is usually visually or audibly.
+
+so, while some people may say, "oh well, when you feel anger, just stop it." -- and I would say, good luck trying to stop those sorts of feelings. they are, in my opinion, nearly unstoppable. instead, what I have to do is to redirect them. I often times do this by redefining the situation or some other way of redirecting that energy through a different circuit in my head.
+
+---
+
+so, what makes me feel anger in the first place? I began to figure this out the other day when I was going to look into the sun. I had been doing just fine for quite some time (days) without an emotional outbreak, however when I went to look into the sun, I suddenly transformed into a very angry person. this startled me a bit.
+
+there are numerous circumstances where this pattern has happened when I have gone in seconds from happy to filled with rage. this even occurs when I go outside to enjoy the sun, and for example the one time I wanted to kill the neighbour's dog with a knife because I felt so bad, I have begun to make a connection between these sorts of events.
+
+the connection isn't good because I've watched stars laying on the ground numerous times, and sat in the sun numerous more times, so I can't really go from that. however, apart from the very first times I stared into the sun back in front of marcos' house in torrelodones, I have noticed a strong reaction to me looking into the sun -- with it lately becoming the worst with feelings of anger now when I do it.
+
+it feels to me quite evident that their system or the people running it have found that putting energy into that section of my brain does not make me feel good, and prevents me from getting visual upgrades.
+
+---
+
+lately though I have had quite a bit of success getting visual upgrades because I have been able to recognise and calm those feelings by doing stuff to distract me like listen to the song or focus on my breathing, so I was able to in-a-sense, meditate the anger away into a feeling of serenity.
+
+this morning though, I did not have music, because it's far enough away from stuff that I can pretty much ignore their silly train horn sounds easily. so, I didn't have an easy way to distract myself from the feeling. this is good because now I know how to get the anger feeling easily because I have a plan.
+
+---
+
+thinking about the idea that someone put in my head of trying to stop the anger made me realise that perhaps I can redirect it easier than I thought.
+
+one of the reasons why I do not like the feeling of pleasure very much is because it's similar to the way that pain feels, and very similar to the way that aggression and anger feels. also, I remembered that back when I used to "use" cocaine, anger and rage felt pleasureful to me. there is a strong connection between coke, sex, anger, and aggression.
+
+so here's my idea: I'm going to purposefully put myself in these situations that they push the anger button (because normally I feel so good that part of my brain is never activated). then, when they energise the part of my head that makes me feel angry, I'm going to begin to redefine my reality and redirect that energy through the pleasure center.
+
+I also want to take a moment to note that previously when I first began to watch stars (and vera can verify this), gazing into the star will make cause you feel immense amounts of pleasure. so, in a way I'm sort of redeeming what their machine is doing to neutralise those pleasure feelings.
+
+I think I've figured it out because of the similarity to its previous feelings of pleasure, but I believe this will begin to work in all situations going forward.
+
+it's kind of amazing to see the poetic justice in all of this. when I learn to feel pleasure instead of anger I will have accomplished what the coke-addicts do without coke, realised the reaction that I'm a high-functioning psychopath, and redeemed the original attractiveness of star-watching, and made me unstoppable.
+
+---
+
+additionally, when it comes to the new universe, since the universe is realised through my perception, in the new universe *everyone* will experience pleasure in their anger and anger in their pleasure. I find that to be a very very interesting next-step for munkind :)
+
+imagine having sex and coming away from it feeling angry (and pleasure). imagine having to constantly choose between these feelings -- where even the simple pleasure of eating food makes you angry too.
+
+it's going to be a totally new experience for us all. I wonder if this will take immediate effect on my imagination? (the one everyone's using)
+
 ### 2019-02-14 ??:?? - legalise it
 
 
