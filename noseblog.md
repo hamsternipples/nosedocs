@@ -4633,6 +4633,20 @@ yo man, I don't make the rules or even get to use my own capability myself, but 
 
 wtf man...
 
+### 2019-02-14 19:08 - saint valentine's check-in
+
+last year nosebook ran a thing (apparently) comparing different people's valentine's day experiences. I learned about this later in an abe workshop where they advised the woman asking the question to tell the story they want to experience.
+
+I find this humorous in a few ways because it seems that we've come quite a ways since then.
+
+also, just recently I watched @[youtube](t8xL7w1POZ0), noting a few of the different patterns revolving around bondage as romance. look for some similar patterns to come up in the months to come. since their entire gig is focused around utilising my capabilities, that means that they are subject to continue to play a game with me where they must fight against me. in this sense, now that I'm learning to play the game effectively, they must play along, or else their secrets are revealed.
+
+maybe actually now that I think about it, it's less bondage as romance and more like co-dependence. as I learn to farm their energetic output for my own expansion, I become dependant on them to continue to increase the resistance.
+
+so, until next year, happy valentine's day!
+
+(man, it feels to me like maybe 3-4 years have passed since then. I think it's the trump effect)
+
 ### 2019-02-14 ??:?? - legalise it
 
 
