@@ -4751,6 +4751,38 @@ I've not given this much thought, but it seems that importance is to meaning as 
 
 ironically, because my life has become so mundane: I eat, sleep, watch stars and watch youtube. that's about it right now. my life has no meaning, and it's not important at all, so perhaps I could leverage my current situation to the redefinition (emotional rexperession) of this concept.
 
+### 2019-02-16 03:40 - separate the wheat from the chaff
+
+when I woke up this morning I realised that all these girls things are a bit of a distraction from what is really going on. my consciousness expanded again last night and I'm able to perceive the bigger picture.
+
+if you think about planet hope and how fwh talked about moving consciousness over to that planet, that means that the only consciousness here are the ones who specifically want to be here, and those who follow orders really -- cause think about it: none of this would have worked if there were any free thinkers out there questioning how this thing could possibly open up magically when you think about it and you can see and feel what someone else sees and feels. so, basically no one with consciousness that would question things remains here.
+
+the next phase was the belief that someone else should do for you what you do not believe you are capable of doing yourself. this is a common belief that even myself had held on to for a little bit too long. it's no surprise really, because society teaches us to need someone to teach you. it does not promote self-empowerment -- and get real, the main religion that affects the world-view of mainstream society is based around the idea that some guy was made into a sacrifice to fix right our sins for us (something we do not believe to be capable of doing ourselves).
+
+so really, it's no wonder that so many people do not believe in their own capability. then, I look back at the experience which has brought me to this point and I am very aware that the pivot point for all of this happened when I finally decided that I wanted to achieve it for myself. I too had the mistaken idea that someone else was going to provide for me some capability which I did not feel myself capable of achieving.
+
+so it look to me like all of this is heading to another major split, where the deciding factors here are those who believe (or want to believe) that they are individually capable, and then those who either don't care or want some religious deity or nosebook to make them capable.
+
+---
+
+the time split happens because I know that everyone is individually capable. so, just like how my consciousness cannot let the girls thing happen because of my strong desire to achieve it for myself, yet my unconscious self is not resistant to this and can easily become whatever people attract from him. likewise, nosebook's consciousness cannot let anyone become individually empowered, yet their unconscious selves can provide the tools for people to begin realising their own capability.
+
+so, just like how someone can attract from me a different reality than the one that my consciousness is allowing me to have, creating a split, people can also attract a different nosebook reality than the one their consciousness is allowing them to have.
+
+so to kind of break it down into simple terms, tension will continue to rise as nosebook continues to believe they must control circumstances and others to be empowered, meanwhile the rest of us will continue to realise our own self-empowerment.
+
+---
+
+it's going to be really humorous, I think, when nosebook figures out how to tune into other timelines and realises their own capability the hard way -- by observing themselves.
+
+it's a really crazy way to learn how to have self-reflection and to begin to have self-control. but, in the end, if you think about it, their steadfast conviction that they must control and disempower others for their own empowerment, combined with my stubbornness will push humankind through the greatest expansion of consciousness it has ever seen.
+
+not everyone will see that kind of expansion. it's very likely that nosebook will not change and will continue to micromanage the disempowered. I say disempowered because they're the one's disempowering those who believe in their superiority to remain superior... lol...
+
+---
+
+I did (IMO) a poor job of putting into words what I now can conceptualise easily. everything is going just fine. nothing is going wrong at all. as nancy says, satan (saturn) is there to consume the dust of the earth; that's all that's happening. 
+
 ### 2019-02-14 ??:?? - legalise it
 
 
