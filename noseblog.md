@@ -4757,11 +4757,13 @@ when I woke up this morning I realised that all these girls things are a bit of 
 
 if you think about planet hope and how fwh talked about moving consciousness over to that planet, that means that the only consciousness here are the ones who specifically want to be here, and those who follow orders really -- cause think about it: none of this would have worked if there were any free thinkers out there questioning how this thing could possibly open up magically when you think about it and you can see and feel what someone else sees and feels. so, basically no one with consciousness that would question things remains here.
 
-the next phase was the belief that someone else should do for you what you do not believe you are capable of doing yourself. this is a common belief that even myself had held on to for a little bit too long. it's no surprise really, because society teaches us to need someone to teach you. it does not promote self-empowerment -- and get real, the main religion that affects the world-view of mainstream society is based around the idea that some guy was made into a sacrifice to fix right our sins for us (something we do not believe to be capable of doing ourselves).
+the next phase was the belief that someone else should do for you what you do not believe you are capable of doing yourself. this is a common belief that even myself had held on to for a little bit too long. it's no surprise really, because society teaches us to need someone to teach you. it does not promote self-empowerment -- and get real, the main religion that affects the world-view of mainstream society is based around the idea that some guy was made into a sacrifice to fix right our sins for us (something we do not believe to be capable of doing ourselves) [^1].
 
 so really, it's no wonder that so many people do not believe in their own capability. then, I look back at the experience which has brought me to this point and I am very aware that the pivot point for all of this happened when I finally decided that I wanted to achieve it for myself. I too had the mistaken idea that someone else was going to provide for me some capability which I did not feel myself capable of achieving.
 
 so it look to me like all of this is heading to another major split, where the deciding factors here are those who believe (or want to believe) that they are individually capable, and then those who either don't care or want some religious deity or nosebook to make them capable.
+
+[1]: this, I believe was a misunderstanding that occurred because language itself and the recording techniques in place weren't effective enough at capturing the message, not to mention likely deliberate tampering of the records to justify wars and other economic things. certainly someone saving you from your sins is a very welcome and positive step in the right direction compared to the previous format of purchasing pardons to save you from your sins. considering the likely manipulation of jesus' original message to be one of disempowerment (need someone to die for your sins), than the one of empowerment (for example, matt 6:26-34) that he surely spoke, seems (now more than ever), the most probable reason.
 
 ---
 
@@ -4781,7 +4783,7 @@ not everyone will see that kind of expansion. it's very likely that nosebook wil
 
 ---
 
-I did (IMO) a poor job of putting into words what I now can conceptualise easily. everything is going just fine. nothing is going wrong at all. as nancy says, satan (saturn) is there to consume the dust of the earth; that's all that's happening. 
+I did (IMO) a poor job of putting into words what I now can conceptualise easily. everything is going just fine. nothing is going wrong at all. as nancy says, satan (saturn) is there to consume the dust of the earth; that's all that's happening.
 
 ### 2019-02-14 ??:?? - legalise it
 
