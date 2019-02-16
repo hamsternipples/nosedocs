@@ -4763,7 +4763,9 @@ so really, it's no wonder that so many people do not believe in their own capabi
 
 so it look to me like all of this is heading to another major split, where the deciding factors here are those who believe (or want to believe) that they are individually capable, and then those who either don't care or want some religious deity or nosebook to make them capable.
 
-[1]: this, I believe was a misunderstanding that occurred because language itself and the recording techniques in place weren't effective enough at capturing the message, not to mention likely deliberate tampering of the records to justify wars and other economic things. certainly someone saving you from your sins is a very welcome and positive step in the right direction compared to the previous format of purchasing pardons to save you from your sins. considering the likely manipulation of jesus' original message to be one of disempowerment (need someone to die for your sins), than the one of empowerment (for example, matt 6:26-34) that he surely spoke, seems (now more than ever), the most probable reason.
+[1]: this, I believe was a misunderstanding that occurred because language itself and the recording techniques in place at that time weren't effective enough at capturing the message, not to mention likely deliberate tampering of the records to justify wars and other economic things. certainly someone saving you from your sins is a very welcome and positive step in the right direction compared to the previous format of purchasing pardons to save you from your sins.
+
+    also, considering the likely manipulation of jesus' original message to be one of disempowerment (need someone to die for your sins), than the one of empowerment (for example, matt 6:26-34) that he surely spoke, seems (now more than ever), the most probable reason.
 
 ---
 
