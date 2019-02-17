@@ -4787,6 +4787,25 @@ not everyone will see that kind of expansion. it's very likely that nosebook wil
 
 I did (IMO) a poor job of putting into words what I now can conceptualise easily. everything is going just fine. nothing is going wrong at all. as nancy says, satan (saturn) is there to consume the dust of the earth; that's all that's happening.
 
+### 2019-02-17 12:39 - original justification
+
+this morning, I began thinking the concept of "original justification". the idea is that children being born will grow up to find out that their imagination works because of a guy named kenny, and we're supposed to keep it a secret that we're using his inner universe for our imagination.
+
+ok so, that concept taught to children will be to nosebook, whht original sin is to christianity. (it is true that just the same as not all children will grow up knowing that they need to keep their imagination a seceret, not all children are told from the beginning they were born a sinner)
+
+so, then I was thinking a bit further: if the atonement for original sin was the "sacrifice" of jesus dying on the cross, and paying the debt accumulated by your sins, for you.
+
+in order to atone for this new original justification (the one where my situation is justified), there would need to be some sort of saviour or sacrifice... this got me thinking a bit.
+
+I only wrote this for posterity on the origin of the idea, because I decided I wanted to start showing people how I use symbols in my haed to arrive at conclusions. last night was an amazing night for me because watching lindsey ellis' videos on youtube I began to gain an insight into how people's minds work and what sort of things they expect from a good story. the conclusion to this is probably going to head in the direction of the sacrifice for greater good, or something... hard to explain what I captured last night.
+
+(to be continued)
+
+### 2019-02-17 ??:?? - what about this idea?
+
+### 2019-02-16 ??:?? - the structure of the thing is the thing
+### 2019-02-16 ??:?? - blowing your load doesn't release resistance -- it releases desire
+
 ### 2019-02-14 ??:?? - legalise it
 
 
