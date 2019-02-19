@@ -4857,6 +4857,132 @@ peace :D I'm really looking forward to being able to go at my own speed
 
 [2]: my experience with these planes is, likely it was not a real plane, but one of the drones that paint cloud lines in the sky. my experience is that they do not make much sound, unless someone wants them to make a sound and there is a sound making device which makes an airplane flying overhaed sound. I believe they're electric engines powered wirelessly so they can fly for days without refueling. I have often experienced different intensities of sound frome these airplanes at times when they wanted to distract me from my thoughts. just think about how much those planes sound in the times they make a sound, then pay attention randomly throughout the day, and note how many of them are in the sky and wonder to yourself why it doesn't always sound like 1-4 jets are constantly overhead.
 
+### 2019-02-16 16:00 - hercules: rocky vh. superman
+
+@[youtube](KznZcK7ksf4)
+
+this vireo had a strange attraction to it, and when I watched it, I didn't really understand what was so captivating about it. today however, I seem to understand it much clearer.
+
+you see, I think if you were to look at the story structure of my life, as seen from nosebook's narrative of it, I have a similar story to that of hercules. on one hand you have the superman christ symbolism and on the other you have the rocky symbolism with neither working out too well.
+
+there was also honuorable mention for her (lindsay's) mention of the whole sports star, with the endorsements and promotions that coming along with it, and fame, fortune, and selfishness.
+
+let's go through this wihh some quotes from her video essay and I will attempt to illustrate (without ever havig seen the nosebook production myself) why I think there is a lit of similarities.
+
+additionally, I would also like to give a special mention of the similarity in appearance and mannerisms hades has to marcos, if marcos were a cartoon character.
+
+---
+
+```@[yt-quote](KznZcK7ksf4|2:20-2:40)
+(lindsay): these guys had to create the most commercially viable thing you can imagine -- aggressively tailored to appeal to as wide of a demographic as possible, referencing as many popular [...] things [...] as possible and combining such dissonant tones and styles that audiences across the land would [shrug and say], 'ehh, it was ok, I guess'.
+```
+
+```@[yt-quote](KznZcK7ksf4|10:06-10:20)
+(zeus): if you can prove yourself a true heron on earth, your godhood will be restored
+(lindsay): I can't just *make* you a god [you gatta earn it]. is that a hard and fast rule? any true hero attains godhood, or does it only apply to ex-gods who drank hades mortality juice
+```
+
+```@[yt-quote](KznZcK7ksf4|10:20-11:02)
+(hades): first you gatta turn that little *sun-spot* -- mortal' [...]
+(woman prophet): in the a18 years precisely, the planets will align
+```
+
+```@[yt-quote](KznZcK7ksf4|18:11-18:45)
+(lindsay): sports movies typically end with a big match at the end, and superhero movies tend to have the hero's motivation derived from some sense of duty to serve and protect the masses
+(uncle ben meme): with great power comes great responsibility
+(lindsay): as a sports movie, there is no big match that hercules is training for, and as a superhero movie, the hero part is just a means to an end
+(phil, the minion talking to hercules): you'll get your chance; you just need some kind of catastrophe
+(lindsay): meg at one point even calls hercules out on how he doesn't really care about the people he portends he wants to save
+(hercules): kids? trapped? phil, I'm saved! this is great!
+(meg): you're really choked up about this
+```
+
+```@[yt-quote](KznZcK7ksf4|19:02-19:15)
+(lindsay): rocky's story and superman's story are non-complementary. so, by combining them, you have a rocky movie where rocky doesn't know what he's training for -- and a superman movie where superman feels no sense of duty to the people and is only a hero to them because he's told that doing so will get him what he wants
+```
+
+```@[yt-quote](KznZcK7ksf4|21:24-22:31)
+(lindsay): here's thi thing, hercules doesn't set out like, "I'm going to go to go be a hero and that will net me fame and fortune, yay." fame and fortune just kind of happened to him incidentally, so there wwas never a point where he sought out wealth and fortune and then learned the error of his ways. he never tries to win meg over with his fame and fortune; it's just kinda there.
+(lindsay): and this would have worked if hercules had a more arrogant starting point or maybe had equated fame and fortune with personal worth, you know, like alladin did.
+(alladin); if jasmine found out I was some kind of crummy -- street rat, she'd laugh at me.
+(lindsay): and spiderman did
+(peter parker): cool car
+(lindsay): this points to why kuzco is a more compelling character. he was genuinely flawed and arrogant, and eventually he learns the error of his ways.
+(lindsay): I'm not saying hurcules needed to be like kuzco, but for weath and fame to be framed as not the point of being a true hero, he kind of needed to want it.
+(lindsay): he never cared about any of that. [it] isn't a character flaw; it doesn't corrupt him at all; it doesn't make him egotistical, or lose sight of what it means to be a hero.
+```
+
+```@[yt-quote](KznZcK7ksf4|22:46-23:20)
+(lindsay): chosen one narratives are easy to write because then you don't need to come up with a good and compelling reason for why our hero is the centre of the conflict.
+(lindsay): but, they're hard to make interesting because there's no good and compelling reason for why our hero is the centre of the conflict.
+(lindsay): and you notice that most popular heros journey's don't involve a prophecy proclaiming them to be the choosen one
+[examples of non-prophesied heros, frodo, luke skywalker, ...]
+(lindsay): they were all ordinary people thrust into extraordinary circumstances [...]
+```
+
+```@[yt-quote](KznZcK7ksf4|29:07-29:45)
+(lindsay): the central conflict in pretty much all of the 90's disney movies was about self-identity and finding oneself
+(lindsay): ... and hercules is probably the most overt in that regard alongside tarzan.
+(lindsay): both have the same central conflict: I'm an outsider and I want to find out where I belong.
+(lindsay): and both have the same resolution: this sexy lady is where I belong.
+[...]
+(lindsay): so, the resolution resolves the conflict between the sports star = self-serving and the superhero = selfless, but it does not resolve hercules central conflict.
+```
+
+at this point lindsay launches off to explain how disney movie stories have this "want vs. need" theme to them which I don't disagree with. I see it as a more simple transformation of symbols, perhaps less as a storytelling device and more of a cultural rule or syntax as to how things work, which we are taught.
+
+the idea is that if you only want or wish, then you are shallow, so in order to justify your desire you have to transform it into a need. once it's a need and no longer just a silly frivolous want, you learn the lesson of how to motivate your desire with need or forsake it altogether.
+
+```@[yt-quote](KznZcK7ksf4|30:41-31:15)
+(lindsay): so one find day, hurcules finds out he's adopted and he goes to find out what's up.
+(paraphrasing hercules): "why do I feel so out of place mom and dad?"
+(lindsay): fine, perfectly good starting point.
+(lindsay): and then he meets zeus. zeus says,
+(paraphrasing zeus): "hey, you're my son and uh, you need to learn to become a hero, so you can be a god again."
+(lindsay): and hercules is like...
+(paraphrasing hercules): "ok, that makes perfect sense. I'll go learn to be a true hero."
+(lindsay): so hercules' want, 'to find where I belong', and his need, which is, 'being selfless is the mark of a true hero' -- well one doesn't really build to the other.
+```
+
+```@[yt-quote](KznZcK7ksf4|31:15-31:38)
+(lindsay): this culminates when he sacrifices himself for meg, which would indicate that he needed to learn that being a hero is self-sacrificing -- but that doesn't have anything really to do with his main motivation which is to find out where he belongs or to resolve some sort of character flaw...
+(lindsay): he was always kind of a nice guy -- not the most altruistic, but not exactly selfish either
+```
+
+```@[yt-quote](KznZcK7ksf4|31:38-32:09)
+(lindsay): hercules wants basically the same things as alladin, but he gets that halfway through the movie.
+(lindsay): he never has to accept himself to be respected by the masses [wat??]
+(lindsay): so, self-sacrifice is noble, sure, but it's not a culminating moment for his character like say, kuzco -- who was selfish, or alladin -- who was pretending to be something he wasn't
+(lindsay): basically his want: his sense of belonging -- and his need: being self-sacrificing, don't really have anything to do with each other.
+(lindsay): one does not resolve the other, which makes for a weak character arc.
+```
+
+```@[yt-quote](KznZcK7ksf4|32:52-33:09)
+(lindsay): at its core, the problem with hercules' motivation is that unlike all of the other disney characters, ***it's not an internal motivation***
+(young hercules): but if I don't become a true hero, I'll never be able to rejoin my father zeus.
+(lindsay): ***he doesn't want to be a hero because he wants it; he wants it because he was told to***
+```
+
+here, we finally reach what I'm starting to understand: my character arc is all wrong. this movie gets the LOA part right where a chilled out guy that doesn't want fame and fortune can find himself all of a sudden in the middle of fame and fortune and it doesn't make a change in character -- therefore, no satisfactory character arc.
+
+so, then they tried to slap on the whole self-sacrifice makes a hero ending and it doesn't work. it doesn't work because he was just following orders, not his own internal motivation.
+
+---
+
+this is where we get to today, and I'm beginning to realise a new image of myself. hercules didn't have a satisfactory character arc becsause he didn't have to work up to some big fight at the end like rocky did.
+
+as I begin to reclaim my mind and regain more self-control, I am changing my character arc to be more like that of rocky than that of a hero.
+
+peace!
+
+P.S. there are a lot of things quoted above which I didn't touch on, which I think are relevant to my story (as narrated by nosebook)'s similarity to the hercules one. as I continue to see if clearer, I'll update it, I guess. who knows :)
+
+
+
+
+
+
+
 ### 2019-02-16 ??:?? - the structure of the thing is the thing
 ### 2019-02-16 ??:?? - blowing your load doesn't release resistance -- it releases desire
 
