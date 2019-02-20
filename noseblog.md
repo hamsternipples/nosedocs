@@ -4977,10 +4977,41 @@ peace!
 
 P.S. there are a lot of things quoted above which I didn't touch on, which I think are relevant to my story (as narrated by nosebook)'s similarity to the hercules one. as I continue to see if clearer, I'll update it, I guess. who knows :)
 
+### 2019-02-20 - 11:41 - the end of the era
 
+today in my discussion(?) with mom over the guardianship thing, mom brought up LOA into the discussion. she arrived at the conclusion that I had been attracting this whole thing, which was a bit of a moment of clarity for her.
 
+then, I followed up with something that suprprised even me. I am more of an emotional person than a structural person, so I spend the majority of my time reacting to things emotionally, and not spending as much time thinking about their meaning (in fact the whole reason why I began the noseblog is to spend more time contemplating the meaning of my circumstances). anyway, I followed up by saying that likely my whole emphasis on her signing my rights away to nosebook is because it is what she *has* to do. the word *has*, remained in my mind because it seemed funny for me to say that.
 
+I get downstairs and I stated to think about it and I quickly arrived at the conclusion that was the symbol for the completion of the era of family and group thinking (pack mentality), and beginning the era of individuality. this is the beginning of the shift from the mammalian brain into the (prefrontal) neocortex.
 
+---
+
+quick tangent, because I mentioned symbols, if you think about when this happened in the jesus stories, it happened when jesus was betrayed. it was the symbol that *had* to happen to make that shift. at the synagogues where the religious people would gather, you could purchase an animal to make a sacrifice. sacrifice was no longer something that came from you freely, which you burned to show abundance -- but instead now it was something that you paid for with money to make an act.
+
+I feel like my present circumstances are similar in the sense that no longer is the family and group congregation going to have the same capability as the individual.
+
+in the betrayal scenario, it's obvious that jesus was made to look like a criminal and a warrant put out for his arrest. you know how the cops have those cash reward things that say something like, "cash reward: we need your information, not your name." clearly, this is what the "betrayal" was. it was (symbolically) the way to make the sacrifice something no longer freely given, but the sacrifice purchased from the organisation (instead of coming from yourself) to make an act.
+
+---
+
+so, just like that I now understood the inspiration to write my previous entry on sacrifice: @[entry](2019-02-18 03:55) and @[entry](2019-02-17 12:39).
+
+sorry, let me explain. lot's of confusion in the air over what I mean. if you think about the guardianship thing being the symbol for the beginning of the end, and also the end of the era -- the shift from trust and relationships and group empowerment, into a new era of trust in oneself and self-empowerment.
+
+ok, so when I write saying that after watching how hollywood and disney likes to encode symbols, I noticed that there is a trend toward having a self-sacrifice for the greater good, and now I understand what I was beginning to see.
+
+this @[entry](2019-02-18 03:55) whole thing is an idea to give a way out. let me explain. my achievement of another dimension is essentially impossible to avoid. imagine the situations where there were girls involved, and nosebook was so hopped up on trying to get me to have sex, that when I finally did, they watched their entire setup vanish as I went to the next dimension. there's also quite a possibility that just like someone died (information I have inferred from conversations) when I first gained alignment with myself, it's quite possible that could happen again as well. there have been multiple accounts of people feeling the "rise of the kundalini" and having an out-of-body experience. I am quite certain that would happen to me.
+
+so, why would future bso be aligned with fwh in ensuring that I don't have any manifestations? well, it's probably because in those circumstances something happens where their "stuff" stored in my inner universe no longer becomes accessible to them or something catastrophic like that.
+
+so, when I give them an idea to which they can have their "stuff" preserved, and even though I make it up a dimension, they can still monetise the women with the girls' perspective -- plus I filled their network for them for free, and helped them to gain a very tight grip on controlling people's perception. it's basically everything they want.
+
+I'm not too concerned with how things play out, because if you look at it, the idea I offered actually delays the end of the era a bit longer as it would allow them to essentially turn it into another group competition.
+
+I really would prefer it *not* to be a competition though. it makes no sense to see it that way. also, I would like to say that the implications are whatever they can perceived to be, but I think that their trying to force the thing or fight against me regaining alignment with myself, is actually losing them control. instead, I've found with my battles with nosebook, if I choose it, I regain control.
+
+as marcos would always say, "up to you!"
 
 
 ### 2019-02-16 ??:?? - the structure of the thing is the thing
