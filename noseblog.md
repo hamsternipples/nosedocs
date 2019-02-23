@@ -5021,7 +5021,7 @@ I'm not really worried because if you think about it from a wider perspective, t
 
 so, from a broader perspective, my reactions appear to indicate that the frequency of this interaction is all about them wanting to stay hidden, and likely they're feeling a lot of pressure to stop hiding -- because my reactions seem to have have a feeling like Im producing their fear of being forced to come out of hiding. if they try to remain hidden, I'll keep gaining levels at such a rapid rate, feeling the resistance toward that, I can tell it's something very undesirable for them -- and then on the other side, if they force it -- well, it just looks really bad I'm sure. I have no idea what could be the consequences for that action, but I'm sure it's probably also undesirable.
 
-no matter the outcome, it seems to lead to an undesirable result. well, as they say in honduras... you can't have a happy ending to an unhappy journey.
+no matter the outcome, it seems to lead to an undesirable result. well, as they say in honduras: you can't have a happy ending to an unhappy journey :D
 
 ---
 
@@ -5041,11 +5041,11 @@ I seem to have no problem gaining visual levels even when they were installing m
 
 so then, now I'm going to hypothesise a little bit here, and this is actually where I would really enjoy a conversation with abraham to get a bit of a bigger picture of things. these would be my questions:
 
-(having to put this into question form really feels quite bulky and I'm really losing a lot of what I want an answer to by having to put it into words. I *much* prefer to just follow my feelings cause it's been so much more reliable and productive than any exercise of logic or discussion has ever amounted to. I really miss easy access to my guidance system)
+(having to put this into question form really feels quite bulky and I'm really losing a lot of what I want an answer to by having to put it into words. I *much* prefer to just follow my feelings cause it's been so much more reliable and productive than any exercise of logic or discussion has ever amounted to. I really miss easy access to my guidance system. anyway...)
 
 1. if I keep locking my room will I unintentionally go up another dimension before I'm ready?
 
-2. I feel like I want to continue to get levels for as long as possible (at least a few years more actually), but this may be trying to force an outcome and may be incompatible with other's desires too. I know the guys at nosebook don't want that, and that's where a lot of resistant feeling comes from, but they don't want the alternative either, which is going up a dimension -- so, I have no clue what indicators I should be feeling from my inner being.
+2. I feel like I want to continue to get more detail levels for as long as possible (at least a few years more actually), but this may be trying to force an outcome and may be incompatible with other's desires too. it really interests me to see how far I can go with this, because I keep seeing (even with ultra-blurry vision) improvements which can be made. I know the guys at nosebook don't want that, and that's where a lot of resistance feelings come from, but they don't want the alternative either, which is going up a dimension -- so, I have no clue what indicators I should be feeling from my inner being.
 
 3. I am my own limiting force more than anyone else is: I simply refuse to to things that I don't feel ready to do. so, I have a bit of "fear" around the idea of going up a dimension because suddenly most of the limitations that I've had will no longer limit me like before. so, I guess my fear is that whenever that happens, I don't want to all of a sudden become an overnight sensation and get sucked into all sorts of things that I don't want, but I can't tell, because I feel so good in comparison to previously. I know I'll be completely out of calibration. so, to anticipate this, my desire is to regain control of many of my energetic capacities *before* I go up, or to have some way of isolating myself so I can adjust to the new capabilities before having the "public" pulling on me. I don't know the best way the best way to be ready to be ready at all, and perhaps maybe this process I'm going through now has to do with the regaining that control over my energy and its utilisation. how do you recommend that *I* (not others, because that answer is meditation) get ready to be ready??
 
