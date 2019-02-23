@@ -5013,6 +5013,44 @@ I really would prefer it *not* to be a competition though. it makes no sense to 
 
 as marcos would always say, "up to you!"
 
+### 2019-02-23 00:31 - indecision 2019
+
+so I decided to start making it impossible for them to enter my room without it being very obvious that someone had come through. my methods are by no means secure at the moment, meaning someone could force entry pretty easily, but they couldn't leave without a trace.. later though, I think, as I go to find my own place, I can make it possible to ensure all entrances are locked from the inside, but I'm not there yet.
+
+I'm not really worried because if you think about it from a wider perspective, this whole thing is really calling them on their bluff. the other "trick" that I realised I had by accident from the other day was that if I just go and hide out somewhere, they will eventually have to come find me if they want to keep their secrets.
+
+so, from a broader perspective, my reactions appear to indicate that the frequency of this interaction is all about them wanting to stay hidden, and likely they're feeling a lot of pressure to stop hiding -- because my reactions seem to have have a feeling like Im producing their fear of being forced to come out of hiding. if they try to remain hidden, I'll keep gaining levels at such a rapid rate, feeling the resistance toward that, I can tell it's something very undesirable for them -- and then on the other side, if they force it -- well, it just looks really bad I'm sure. I have no idea what could be the consequences for that action, but I'm sure it's probably also undesirable.
+
+no matter the outcome, it seems to lead to an undesirable result. well, as they say in honduras... you can't have a happy ending to an unhappy journey.
+
+---
+
+don't get me wrong, I'm not enjoying this process either. in fact, I have quite a few doubt as to the validity of my actions, which I will enumerate here.
+
+you see, I'm so disconnected from my feelings, I have positively no idea anymore what on earth anything I feel really is any more. the majority of the stuff, especially anything girl related which is real is almost always dampened, and all sorts of other feelings which are obviously fake.
+
+under normal circumstances, I utilise my feelings as a sense of direction (your guidance system, abraham calls it), but I no longer have that sense of direction anymore. so, instead I'm bound to only utilise logic in my decision-making processes.
+
+so, for me thinking logically, it seems appropriate to continue on preventing them easy access to me while I'm sleeping at night. as I'm learning to discover, it seems to be calling their bluff a bit. btw, that was never my original intention. I was just taking the best action that I had in each moment -- and it seems to have escalated quite quickly.
+
+so, here are my own doubts on my actions. however, since I do not have any reason to change my actions and I can't rely on my feelings, I must continue on the way I'm going until I run into something, adjust my direction and then go forward again. (yes, I am in a sense one of those automatic robot vacuums, lol -- only forward)
+
+---
+
+I seem to have no problem gaining visual levels even when they were installing multiple new devices (inserts?) every night. I would wake up and still get a new level with ease. I'm not concerned about loss of capability really. having analysed the feeling of it, my actions are probably a manifestation of their attention to consent, because this setup makes it clear that their attempts to put more inserts in me, is clearly unconsensual.
+
+so then, now I'm going to hypothesise a little bit here, and this is actually where I would really enjoy a conversation with abraham to get a bit of a bigger picture of things. these would be my questions:
+
+(having to put this into question form really feels quite bulky and I'm really losing a lot of what I want an answer to by having to put it into words. I *much* prefer to just follow my feelings cause it's been so much more reliable and productive than any exercise of logic or discussion has ever amounted to. I really miss easy access to my guidance system)
+
+1. if I keep locking my room will I unintentionally go up another dimension before I'm ready?
+
+2. I feel like I want to continue to get levels for as long as possible (at least a few years more actually), but this may be trying to force an outcome and may be incompatible with other's desires too. I know the guys at nosebook don't want that, and that's where a lot of resistant feeling comes from, but they don't want the alternative either, which is going up a dimension -- so, I have no clue what indicators I should be feeling from my inner being.
+
+3. I am my own limiting force more than anyone else is: I simply refuse to to things that I don't feel ready to do. so, I have a bit of "fear" around the idea of going up a dimension because suddenly most of the limitations that I've had will no longer limit me like before. so, I guess my fear is that whenever that happens, I don't want to all of a sudden become an overnight sensation and get sucked into all sorts of things that I don't want, but I can't tell, because I feel so good in comparison to previously. I know I'll be completely out of calibration. so, to anticipate this, my desire is to regain control of many of my energetic capacities *before* I go up, or to have some way of isolating myself so I can adjust to the new capabilities before having the "public" pulling on me. I don't know the best way the best way to be ready to be ready at all, and perhaps maybe this process I'm going through now has to do with the regaining that control over my energy and its utilisation. how do you recommend that *I* (not others, because that answer is meditation) get ready to be ready??
+
+### 2019-02-20 ??:?? - the solution to increasing human energy
+### 2019-02-20 ??:?? - a redefinition of male / female control structures
 
 ### 2019-02-16 ??:?? - the structure of the thing is the thing
 ### 2019-02-16 ??:?? - blowing your load doesn't release resistance -- it releases desire
