@@ -5049,6 +5049,48 @@ so then, now I'm going to hypothesise a little bit here, and this is actually wh
 
 3. I am my own limiting force more than anyone else is: I simply refuse to to things that I don't feel ready to do. so, I have a bit of "fear" around the idea of going up a dimension because suddenly most of the limitations that I've had will no longer limit me like before. so, I guess my fear is that whenever that happens, I don't want to all of a sudden become an overnight sensation and get sucked into all sorts of things that I don't want, but I can't tell, because I feel so good in comparison to previously. I know I'll be completely out of calibration. so, to anticipate this, my desire is to regain control of many of my energetic capacities *before* I go up, or to have some way of isolating myself so I can adjust to the new capabilities before having the "public" pulling on me. I don't know the best way the best way to be ready to be ready at all, and perhaps maybe this process I'm going through now has to do with the regaining that control over my energy and its utilisation. how do you recommend that *I* (not others, because that answer is meditation) get ready to be ready??
 
+### 2019-02-23 23:54 - delaying the symbol
+
+delaying isn't the right word, but maybe it's good enough. I want to return to the symbol of jesus pissing off the pharisees in the temple by turning the tables. in a previous entry, @[entry](2019-01-19 05:46) I questioned what would be my version of flipping the tables, and although I didn't express it, I think I've given thought to it, is so that I could "avoid" it -- but you know how avoidance works with LOA right... you don't? lol, let me refer you to my life experience when I say that you cannot avoid anything you give your attention to. this is likely the case here too, so I'm sort of going to make some sort of unavoidable vibrationally harmonious action.
+
+it's not the end of the world though. quite the opposite, because instead it's just a new opportunity. it's like when you're making a painting and you notice the last brush stroke didn't turn out at all like you wanted it to, so now you have to artistically find a way of making the unintended action into something that's attractive.
+
+---
+
+I am beginning to think that perhaps this whole locking my door and keeping people from putting more inserts in me while I'm sleeping is similar to the table flipping thing. it feels to me to be nearly the same symbol, even though there's a lot of information missing about the table flippin' jesus event. we don't know why jesus got so angry here, yet in other moments when he should have been angry, was not. I suspect that likely there was a precursor to this event in the form of conversation about value, sacrifice, and the pharisees weren't having any of it. if he's anything like me, he probably felt their anger quite vividly, and if he's anything like me, what he feels strongly must become manifest.
+
+---
+
+the reason why I went out of my way to mention that is because the other day after greg barged into my room and started causing trouble, and my reaction was not angry because I had already contained the majority of it that I had woke up with. when walking around, I was reminded of my psychedelic experiences where I had all sorts of craziness happening in my head, and I would remember this weird phase my dad said to me where acid is like taking a pencil and running it across your brain -- and in really intense psychedelic experiences, I would remember that and I was able to get through because I could separate what I feel from what I perceive [^1].
+
+so, just like how I could know that the drug was causing me to feel a certain way, I had to find a way of overriding that feeling. the biggest breakthroughs I had was when I had an experience where I was overtaken by the intensity of the city and I realised I could absorb the energy instead of letting it make me feel bad. the other was when I had the idea to eat a bunch of shrooms before going to see meri's sister at the hospital with daniel.
+
+in both of these experiences (and many others just like it), I had to learn to how feel the way I want to feel about something by changing my perception of it. so, being reminded of this separation has given me a whole new perception of what is happening here, because in both of those experiences, I walked away with a huge amount of new confidence in my mastery of not letting my surroundings and circumstances affect me by perceiving them differently (redefining my reality).
+
+so, since what I feel strongly has to become manifest, and I'm connected to quite a lot of people and a lot of signals that I'm not used to feeling, I've been in an "intensive" experience learning to perceive the things I don't want to manifest differently (the goal of this entry, btw).
+
+I'm used to feeling really good, so feeling bad doesn't really work very well for me. I like to avoid bad feeling subjects, so I personally find it pretty disagreeable to be forced to feel bad, and then having to find a way of redefining my perception to feel better. I find this to something like purposefully putting my hand in boiling water, to learn how to redefine the pain I feel -- to which my suggestion would be to not put your hand in the boiling water in the first place... right? then why did I do so many psychedelics in the first place? why would I purposefully give a psychoactive drug access to my nervous system and the ability to put all sorts of signals I wouldn't otherwise have in my brain?
+
+so, I suppose in a sense, nosebook's influence it is a bit like running a pencil across my brain or the mushroom experience. therefore, for the same reasons one might take psychedelics, and give the drug full control over your nervous system and brain, nosebook provides a more "real" experience, thankfully I had quite a bit of practice. nosebook is more "real" in the sense that it's not like the mushroom where it'll help you through it or release the mental pressure if you cannot handle it. nosebook is the real deal: no hand holding, no bail-outs, and no mercy.
+
+---
+
+so, here's where the metal meets the road (or whatever). after remembering and re-realising the confidence I gained in the psychedelic experience, I am so confident that there is no way that nosebook could ever contain me. they could put 10 new inserts a night and I'd still find a way to work around it with my perception.
+
+so, to "avoid" pissing off the pharisees, I am going to eat my own words when I said, "if I choose it, I regain control", and then just be like, whatever guys, wait till you see this...
+
+this entry has been brought to you by CXNTRAST and the reality technicians[^2]
+
+@[youtube](XxJPCHq2YO0)
+@[youtube](I1Xda3dOuTk)
+@[youtube](MQDCSk07K90)
+
+[1]: I also found out later that nosebook was doing experiments on me at the time to see if they could remove all visuals out of the psychedelic experience cause they didn't want me to find out about my creative capacity, so they actually helped me -- because they didn't know that although I couldn't see it, I was still having the experience and could feel it, so I learned to separate what I feel from who I am
+
+[2]: I have this sneaking suspicion that nosebook has been instrumental in this whole thing. they were likely the origin of (what my brain interpreted to be) edison, then the whole thing about things taking shape in the spring. then, I think they set it all into motion with the guardianship thing by trying to force it. it could happen in the spring, but I think with this concession, it'm "delaying" it.
+
+### 2019-02-24 ??:?? - so how long do you guys want to drag this on for?
+
 ### 2019-02-20 ??:?? - the solution to increasing human energy
 ### 2019-02-20 ??:?? - a redefinition of male / female control structures
 
