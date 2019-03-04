@@ -5115,7 +5115,67 @@ I used to (earlier today even), have difficulty with the implications of them ga
 
 [4]: just as michael bay can put a different hue on the movie's syntax with his visuals, the audience that believes his visuals more, believes the message his visuals convey. so, he attracts an audience that will appreciate those visuals and their message. likewise, nosebook can put a different spin on my perception with their authority. those who believe in their authority more, believe their power their authority conveys. they attract an audience that will appreciate their authority (and control). this is why, I can having so much success defining my own perception now, because I no longer believe in the authority they have over my perception. (the "train" outside agrees with me, btw (lol))
 
+### 2019-03-01 19:12 - visual and social introversion / extroversion
+
+just now I was responding to a reaction I had where I wanted to illustrate that I think that a person is not only introverted or extroverted -- but both. I think this happens with sensory stimulation and social stimulation.
+
+I think that presently the reason (amongst others) that I am socially introverted, stems primarily because not only does nosebook want to control conversation I have with people, but because I cannot be visually introverted. all of my internal sensory perception has been shut down, so that instead of discovering my internal universe, I instead rely on other things external to me for this stimulation, such as drugs and stars.
+
+I believe that human evolution is a constant swapping back and forth between these two. socially I would be introverted while sensorally I am extroverted, observing, collecting data, sifting and sorting, and finding the components I need to create a satisfying inner universe.
+
+... to be continued ...
+
+(this doesn't make a whole lot of sense without the idea of creative / sexual energy as the foundation of this inner universe)
+
+(additionally, the idea works better with visual/social introversion/extroversion rather than all of the senses, because -- well, I don't know why. it just seems to be easier to understand because we don't tend to think of introverted senses, but we can conceptualise the difference between imagination and vision)
+
+### 2019-03-03 23:56 - I don't care any more
+
+I really hate going to sleep on nights like this because I can feel huge amounts of tension around all of the different tests and stuff that they want to do on me while I'm asleep.
+
+I didn't realise it at the time, but I felt strongly like I wanted to go for a walk this morning, and as it turns out somehow I managed to get a pretty significant vision upgrade without watching stars or any drugs or anything externally to me.
+
+this represents a pretty big milestone for me because I've been saying for a while now that vision upgrades are a product of releasing resistance more than anything -- and this is proof.
+
+it looks like anyone can get vision upgrades just by releasing resistance. to illustrate what I mean, take the example of meditation. when you quiet your mind, so that you are not thinking any thought, you are no longer thinking resistant thoughts, and so your brain speeds up a bit, your head produces more DMT and you will feel better.
+
+a similar thing happens with some drugs, but the result is a bit different. when you meditate, it's like traveling through a wide empty space where you cannot feel how fast the car is going. then, still going that speed you return back to your life (the mountain road) and quickly become aware that if you are not more cautious, you could crash pretty easy. sometimes you crash, but after recovering from the impact, often times the speed was so exhilarating, I got addicted to how that feels -- just like a real life person who enjoys the adrenaline rush of driving fast on a dangerous road.
+
+drugs though are much more an out-of-control experience, and they do help you to learn to drive fast, but usually with more frequent accidents. so, it's easy to push against drugs and say that isn't the way, but for me it was only the illumination of the path, not the actual journey. the actual journey, I found is really only realised without the drug experience, whether that's stimulants, sex, or whatever.
+
+I have already made the decision to focus harder than usual, and my goal is to eventually reach the "straight-edge" zone, and I'd like to even take it a little bit further, removing even food, and if possible water as well. like a star in the sky I want to be able to produce all of the elements I need, and have such an abundance of them, I can freely spew them all directions into empty space, knowing that somehow they will coalesce and attract into becoming the building blocks of new planets and stars.
+
+---
+
+this kind of creates a bit of a problem for nosebook because if I watch stars and get a vision upgrade, they can say, "oh, we don't want him doing that." -- or, if smoke weed and get a vision upgrade, they can likewise say, "oh, we don't want him doing that." -- but what if I can do it without those conditions? what if I can do it, even with them making tests on me at night and draining me of my energy. what if I can still find a way of coming into alignment with myself despite their best efforts to make that impossible?
+
+this is, precisely what Iim setting out to do. it's rather difficult for me because, like I mentioned in the beginning, I feel all kinds of tension around the stuff they want to do whilst I'm asleep.
+
+so, does my going to sleep anyway mean I'm ok with things and I'm accepting it? I certainly do *not* want them to be doing that while I'm asleep, so I'm in no way agreeing or consenting to their actions, it's just I don't really have many sustainable options -- and unless I want to live the rest of my life ultra-paranoid and in isolation, I have to just accept that there is really nothing I can do about what happens while I'm unconscious.
+
+the only thing I can do, is to continue to find my alignment with who I really am, and not the resistant frequencies they are putting in my head. so, when I'm awake and conscious, I'm essentially doing a sort of real-time conscious meditation in the sense that I'm consciously rethinking resistant thought.
+
+whenever abraham talks about this subject, they say something like you could stop resistant thought with a lobotomy -- which is removing your frontal-lobe, essentially taking away your humanness, and your ability to navigate time with your conscious choices, returning you to be similar to an animal function and capabilities again. so, they suggest that we meditate to stop that resistant thought (curvy roads) and get into the clear open space and let your car go faster.
+
+---
+
+learning to navigate this consciously is kind of an interesting experience because -- well, I'll tell more about it later, but for now I imagine that we're going to enter a new phase of discovery. likely, they will attempt to make my conditions as difficult as possible to achieve my alignment with what I want, but I'll still find a way of doing it, and most impressively with the most difficult conditions.
+
+I have no idea what all of this means, cause from my perspective, this is just a big game to me where I have to keep finding the way forward, and it's most impressive for me to kind of see what I'm actually capable of... I remember how many times I've thought how good things look, and it couldn't possibly be better, but then I find a new one that's better. soon, that same method will be applied to my physique. I'll say to myself, "dang, there's no way I could possibly look better than than I do right now" -- and then I'll find a way :)
+
+or, with anything really. that energetic process I have learned with the stars can be applied to anything. watch how I begin to utilise it to find all sorts of improvements I couldn't even perceive to be possible (usually though, beginning with a weird feeling, then a vague idea of how they might be butter, and then finally discovering its improvement, and letting that "surprise and delight" me).
+
+### 2019-03-04 ??:?? - when feeling bad, I resort to logic. but, when feeling good, I evaluate it by how it feels
+
+### 2019-03-01 ??:?? - turning want into need
+
 ### 2019-02-27 ??:?? - the director attracts the audience
+#### perceptive device of me being the enemy of the weather, the same ahs the corrupt cia in transformers
+#### your brain can only process so much information, so you rely less on what you are seeing, and more on what they tell you, you are seeing
+#### I too, like michael bay am a slave to ever increasing visual stimulation
+#### my perception is the content, and the framing is the message
+#### the protagonist a reflection of how the director sees the audience
+#### michael ba(b)y effect
 
 ### 2019-02-20 ??:?? - the solution to increasing human energy
 ### 2019-02-20 ??:?? - a redefinition of male / female control structures
