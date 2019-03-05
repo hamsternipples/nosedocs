@@ -5165,6 +5165,52 @@ I have no idea what all of this means, cause from my perspective, this is just a
 
 or, with anything really. that energetic process I have learned with the stars can be applied to anything. watch how I begin to utilise it to find all sorts of improvements I couldn't even perceive to be possible (usually though, beginning with a weird feeling, then a vague idea of how they might be butter, and then finally discovering its improvement, and letting that "surprise and delight" me).
 
+### 2019-03-05 15:15 - extraterrestrial earth mini-series
+
+this morning I was thinking about my present situation. I really dislike getting new inserts and having my abilities limited, and this was in relation to a previous thought I was having where I was thinking about andrea and how she wanted to have sex. she chose me as her target initially but marcos kept saying no, not yet or delayig the thing. so, she found someone else to begin her sexual liberation with.
+
+this breaks into two discussions I want to have. the first is how before this happened, I managed to "reject" andrea, in the sense that instead of just following her urges to go down to my room , I chose not to because I didn't really think it was a good idea to usurp marcos' authority on the matter. because I perceived him to be the "authority" over his daughter's decisions regarding her body, I decided to wait for im to give the ok.
+
+andrea perceived that this was going to be essentially "forever" to wait for him and decided to take matters into her own hands. though this is similar to my present situation where I am forcing my vision improvement by watching stars and stuff, I actually perceive it to be more similar to the general public's situation. where the symbol of andrea is the general public and the desire of sex is the ability to see like I do or watch stars. I am quite sure that team nosebook has repeatedly told people to not watch stars, not look at the sun, and tries to hold people in low-quality visuals while you watch me steadily get better and better vision effortlessly nearly every day now.
+
+I imagine that at some time in the future, someone will finally get tired of waiting for team nosebook (marcos) to finally approve of the thing/sex (stars), and take matters into their own hands just like she did. like andrea did for many others in their quest for sexual liberation, this person will show the world that it she can decide what to do with her body, no matter the restrictions any parent, guardian or authority tries to put on her.
+
+---
+
+thst's one way to see it, but another would be to perceive marcos again as nosebook and the thing as my visual capacity. should I just kind of pull back on the whole trying to force the visual capacity thing and just wait for nosebook to finally let me have something that's already mine? like andrea, I perceive this to be essentially forever in coming. I mean, if I'm right about what I think is happening, it would be never, or impossible for them to ever approve it.
+
+in fact, the depression and malaise that I felt at the beginning of last year was because I believed that I didn't really want my visual capacity after all. the events of my life kept pushing me toward getting the visual capacity, yet I continued to believe that someone else could make a decision for me what I can and cannot do with my body.
+
+and so, just like andrea when she finally decided that she was going to take matters into her own hands, she suddenly felt a return or her feeling of power and freedom. she felt good and the depression lifted. my situation is similar in the sense that I feel quite bad every time that I perceive these guys as having the capability to limit me, and quite good every time that I go and redefine the "power" nosebook has over me, and by watch stars or just with the releasing of resistance, I achieve yet another visual upgrade.
+
+so, I imagine that my decision to take matters into my own hands and realise my own capability by releasing the resistant thoughts which grant nosebook the power, will actually give quite a few others visual liberation just like andrea did for so many others on the subject of sexual liberation.
+
+---
+
+ok, so the idea of malaise got me thinking about a steam that jon did quite a while ago and posted it to his youtube. it got a lot of things moving around in my head at the time when I had quite a lot of malaise myself -- so it was really good. but then I had this random idea pop into my head where I hold jon in quite high regard and so what if someone at nosebook suggested that he does a quick q/a stream on this. it's also just as likely that I attracted the stream with my own desire to get thoughts moving, or even other people who also hold jon in high regard (the people he streams to) seemed to want to hear his opinion on this subject, because one of the most common things for a programmer to lack is motivation, and even less have internal motivation like jon has [^1]. so, to be clear, I'm not claiming that is what happened; it was a transition thought, where if it was real, it would remind me of the steering that christof did to truman in the truman show movie.
+
+in all of the scenes where truman would identify something he wanted, like the girl at the school (sylvia), or a trip to fiji, or whatever, christof would try to steer truman away from it by affecting the conditions, like trying to make him afraid of water, travel, etc.
+
+so, I thought to myself, well, it's not like I'm *really* in the truman show. I live in a reality with other real people in real situations. my reality isn't 100% contrived like truman's is. meaning, other people still have to go to real work, make real food, etc. they are all living a real life, and are not just actors working in big truman show movie set.
+
+---
+
+that idea that we're in a big movie set reminded me of a conversation I had with frank where I told him that I was sure that aliens could tune into for perception and all of earth is basically like a tv show for alien species.
+
+woah, I thought. we could all be living in a truman show, where the earth is the truman show movie set. that *REALLY* got me thinking. so, if all of this is a movie set, you would need to control it somehow. it could be controlled symbolically, so catch this:
+
+imagine that "AN EXTRA-TERRESTRIAL VIEW OF CREATION presented by KUTHUMI" is correct and some sort of blunder occurred when the creation of the universe took place (the demiurge in mckenna's story) and earth became a containment facility.
+
+to understand this symbolically, nosebook would be the sirians, and I am to nosebook like earth is to the sirians. essentially, they figured out from various attempts that there is no way they could control me (steer the inhabitants of the earth to understanding their connection to source) effectively, the sirians turned earth into a production (just like nosebook did for me).
+
+this makes me not only the star of the production, but the star of the production the producers are having nosebook produce to understand their circumstances a little better.
+
+nice :) ... to be continued (obviously, there are a lot of implications to this idea) ... 
+
+[1]: the subject of motivation is one of the most common ones to be found on places like hacker news and stuff. for me it's all about energy management and a belief in one's creation. so, I believe this is actually one of the primary reasons why there are so many trends in programming, because if php (or nodejs, or elixir) is the hottest new thing, and you're using that, it helps with the belief -- even if you're making an app for door to door kitty litter delivery. additionally, there is a lot of energy around the trends because of the money invested by the people pushing them, so the trend is like free energy, and the programmer can ride off of that easier than they can improve their perception of their product in their mind.
+
+### 20§9-03-04 ??:?? - you gatta want it
+
 ### 2019-03-04 ??:?? - when feeling bad, I resort to logic. but, when feeling good, I evaluate it by how it feels
 
 ### 2019-03-01 ??:?? - turning want into need
