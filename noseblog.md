@@ -2905,7 +2905,7 @@ it's coming :) very soon. and when these sorts of games begin to arrive, the bra
 
 the next thing that mcluhan said which impacted me, was that games encode the culmination of the lessons learned from interaction in the previous medium. I've been thinking about that and I don't have any real conclusions yet as to what it could mean, but think about how poker encodes the lessons learned from empires betting and bluffing. now, extrapolate this out to the lessons learned from the web 2.0 era. I suppose one day nosebook will host a game which encodes the idealised and optimum social interaction on facebook.
 
-here's where we get to the fun part. I have really enjoyed watching jon's streams because the sokoban game is really getting me to think differently about puzzles. what I like about it is that up until that game, puzzles for me have largely been non-visual for me. often times someone will say a puzzle and I struggle to imagine it. if I can see it, I usually do better, but my mind doesn't really connect up a lot of those puzzle type things very easily.
+here's where we get to the fun part. I have really enjoyed watching johnathan's streams because the sokoban game is really getting me to think differently about puzzles. what I like about it is that up until that game, puzzles for me have largely been non-visual for me. often times someone will say a puzzle and I struggle to imagine it. if I can see it, I usually do better, but my mind doesn't really connect up a lot of those puzzle type things very easily.
 
 I am such a lazy person, when a problem happens, I always find the easiest way to solve it. I'm the type of guy that would play the sokoban game by googling the solution, then trying to figure out how to do it in less steps (or to optimise it in some way). then, I would take the puzzle and try to make a new twist to it which is harder or more satisfying (like matt was showing yesterday)
 
@@ -5187,7 +5187,7 @@ so, I imagine that my decision to take matters into my own hands and realise my 
 
 ---
 
-ok, so the idea of malaise got me thinking about a steam that jon did quite a while ago and posted it to his youtube. it got a lot of things moving around in my head at the time when I had quite a lot of malaise myself -- so it was really good. but then I had this random idea pop into my head where I hold jon in quite high regard and so what if someone at nosebook suggested that he does a quick q/a stream on this. it's also just as likely that I attracted the stream with my own desire to get thoughts moving, or even other people who also hold jon in high regard (the people he streams to) seemed to want to hear his opinion on this subject, because one of the most common things for a programmer to lack is motivation, and even less have internal motivation like jon has [^1]. so, to be clear, I'm not claiming that is what happened; it was a transition thought, where if it was real, it would remind me of the steering that christof did to truman in the truman show movie.
+ok, so the idea of malaise got me thinking about a steam that johnathan did quite a while ago and posted it to his youtube. it got a lot of things moving around in my head at the time when I had quite a lot of malaise myself -- so it was really good. but then I had this random idea pop into my head where I hold johnathan in quite high regard and so what if someone at nosebook suggested that he does a quick q/a stream on this. it's also just as likely that I attracted the stream with my own desire to get thoughts moving, or even other people who also hold johnathan in high regard (the people he streams to) seemed to want to hear his opinion on this subject, because one of the most common things for a programmer to lack is motivation, and even less have internal motivation like johnathan has [^1]. so, to be clear, I'm not claiming that is what happened; it was a transition thought, where if it was real, it would remind me of the steering that christof did to truman in the truman show movie.
 
 in all of the scenes where truman would identify something he wanted, like the girl at the school (sylvia), or a trip to fiji, or whatever, christof would try to steer truman away from it by affecting the conditions, like trying to make him afraid of water, travel, etc.
 
@@ -5205,11 +5205,11 @@ to understand this symbolically, nosebook would be the sirians, and I am to nose
 
 this makes me not only the star of the production, but the star of the production the producers are having nosebook produce to understand their circumstances a little better.
 
-nice :) ... to be continued (obviously, there are a lot of implications to this idea) ... 
+nice :) ... to be continued (obviously, there are a lot of implications to this idea) ...
 
 [1]: the subject of motivation is one of the most common ones to be found on places like hacker news and stuff. for me it's all about energy management and a belief in one's creation. so, I believe this is actually one of the primary reasons why there are so many trends in programming, because if php (or nodejs, or elixir) is the hottest new thing, and you're using that, it helps with the belief -- even if you're making an app for door to door kitty litter delivery. additionally, there is a lot of energy around the trends because of the money invested by the people pushing them, so the trend is like free energy, and the programmer can ride off of that easier than they can improve their perception of their product in their mind.
 
-### 20§9-03-04 ??:?? - you gatta want it
+### 20§9-03-04 ??:?? - you gatta want it (a change on the translation of the authority's control of star watching, and the two paths of andrea / kenny)
 
 ### 2019-03-04 ??:?? - when feeling bad, I resort to logic. but, when feeling good, I evaluate it by how it feels
 
