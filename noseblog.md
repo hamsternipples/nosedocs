@@ -5235,7 +5235,33 @@ as I gain more energy output, I will become more unstoppable than I already am, 
 
 [2]: self-control is an interesting idea, as it essentially means a total revamp of my logic, definitions, and the value of an idea. it is a complete change in my personality, because as you will recall, one of the most attractive things about me previously was my lack of self-control. I was able to do nearly anything because I had no control to tell me otherwise. the girls liked the idea that I was so easy to accept their ideas, nosebook thought of me as a naïve child and wanted to control and exploit me as such, hoping I would never grow up. nowadays, I can appreciate these attempts to control me, as they have built in me a new ability to be self-controlled.
 
-### 20§9-03-04 ??:?? - you gatta want it (a change on the translation of the authority's control of star watching, and the two paths of andrea / kenny)
+### 20§9-03-09 01:07 - you gatta want it
+
+in a previous entry, I discussed the idea of how I yielded to marcos' authority over andrea's body and how likewise this is similar to what is happening in relation to star watching. well, the previous entry also reminded me of this example as well, in that by making no action, I am in a sense yielding to them, allowing them to ultimately make the decision upon what they want to do (or, as in the case with marcos/andrea, marcos was waiting until he could control the situation around it).
+
+this got me thinking a whole lot more about it today as I anticipate that at some point in time, someone will finally say, ok I've waited long enough, this appears to be an indefinite fight between kenny and nosebook, so I'm taking this into my own hands. there are a few ways to look at it, but I like most the idea that I'll keep them pretty busy with my energy gaining, allowing you guys to get a pretty good head start before they have the resources to limit everyone.
+
+as we've seen, I imagine there will be huge backlash from them, as this would probably be their worst nightmare: not just one person that's superior to them, but a whole bunch of people.
+
+---
+
+I assure you, and will be demonstrating throughout this year, that their power is only perceptual -- meaning you have to believe that they have power for them to actually have that power.
+
+in a sense, by repeatedly taking no action, I'm allowing my desire to transform. they will continue to put me in circumstances that are not wanted, allowing me to continually clarify my desire further toward what I *really* want. each time this happens, I gain more clarity (and therefore a stronger sense of direction) toward what it is I really want.
+
+it's difficult to put into words, but it'd be like a realisation of what/who/all of me that I really am, while at the same time the confidence to control it, and feel comfortable with it, like it's my second nature.
+
+hopefully, one day I will demonstrate this physically, and hopefully you (anyone who wants it) can as well[^1].
+
+as we move forward, I will begin giving my best motivation toward the realisation of your own power (your own personal empowerment). they have the capability to observe what is happening in our brains, and for them that is perceived control. they also have the ability to affect the electrical environment as well, but that also is perceptual in the sense that once you learn how to get any energy moving in the direction you want it to go, it's just more energy.
+
+so, the very worst that could happen, is that a bunch of people who perceive themselves to be superior, get intimate insight into the minds of millions of people who are finding their way toward alignment with themselves. we will all be the realisation of their worst nightmare -- until, that is, that they too can do the same.
+
+universal superiority doesn't exist any more than black is universally superior to white. superiority is perceptual, and determined by the conditions, so it's something that anyone/noone can achieve (yeah, I think that's why they want to control the conditions so much).
+
+I have this mental image (feeling) that I'm beginning to practice and it's this realisation that they trapped all of us into this network to try and control us, but they didn't realise that the system they designed to control the conditions would actually create a new environment where we're all going so fast, it kind of creates a situation like in middle school where the teacher is the slowest person in the class. or, maybe like someone small trying to walk a very big dog, and the dog is clearly setting the pace.
+
+[1]: I would find it quite humorous if the guys at nosebook, with such a strong sense of superiority, all say to themselves watching others steadily achieve more and more resonance with who they are, "no, I cannot stand the idea that someone (other than me) could have such power! I *must* come into alignment with myself first, before them!" :D
 
 ### 2019-03-04 ??:?? - when feeling bad, I resort to logic. but, when feeling good, I evaluate it by how it feels
 
