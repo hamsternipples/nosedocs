@@ -5263,6 +5263,34 @@ I have this mental image (feeling) that I'm beginning to practice and it's this 
 
 [1]: I would find it quite humorous if the guys at nosebook, with such a strong sense of superiority, all say to themselves watching others steadily achieve more and more resonance with who they are, "no, I cannot stand the idea that someone (other than me) could have such power! I *must* come into alignment with myself first, before them!" :D
 
+### 2019-03-11 14:37 - CAWK: COALITION ADVOCATING for the WELL-BEING of KENNY
+
+the last few days after having a dream with pepsi product placement, I had been pondering an idea where now that I have a guardian (mom), someone can cash in on the advertising. previously I could not ask for my share of the ad-revenue, because for me the the network doesn't exist, so they can easily claim that a non-existent entity does not need to pay me. however, mom does clearly know about the entity, and can easily ask for those dividends.
+
+however, I began thinking that perhaps mom will just fall into line just like she has been doing this whole time -- they'll lowball her and she'll just go along with it. so, I thought maybe greg should take that over, but then again he has lower self-worth, and probably imagines that he could do it, but doesn't actually believe in the successfully pulling it off. it still didn't feel right, so I slept on it.
+
+when I woke up yesterday, I realised what I wanted was a shark. I had no interest in actually obtaining any of that money myself. what I want are people that are driven by money, and they would cash in the ad-revenue with the objective of increasing the amount of contrast.
+
+upon further inspection, I realised tat they would indeed want to advocate for my well-being, because it's hard to sell ads utilising the mind of a disturbed person. however, I've begun to recognise that my well-bing does not come so much from physical possessions, and the well-being that I receive is actually because of my frame of mind (the "framing" I put on my own perception). so, that's not it.
+
+ok, well, what about the aspect that it would be kind of another way to make nosebook "pay" for their actions, and it would seem to me like they have a money-shortage consciousness, so that would fall right in line with their expectations for reality -- EXCEPT, I remembered the one story abraham tells about the man with an ex-wife asking for a percentage of his earnings, and tat the more ex-wives he had, the more desire there would be for him to make more. following that, the more money sharks I have collecting nosebook ad-revenue on my behalf, the more ads (and therefore ad-revenue) they would be attracting on my behalf.
+
+maybe not what I was looking for.
+
+(there was the side-intention for me as well, because I had begun to select different people that have been influential in my formation as the "re-realisation of saturn" (more on this later), and would appreciate a monetary reward for their influence. they were selected based on components of meaningfullness of the reward, ability to convert money into more desire/energy, and faithfulness to hold nosebook accountable)
+
+---
+
+I woke up this morning and I could tell that the idea no longer felt good to me at all, and so I would have to taking no action, again. seems I'm getting a hang of this no action thing after an idea that feels good to me gets shat on.
+
+in the end I realise that no action is the best way, and doing something to make someone "pay" for something isn't the right way (for me), so I will go back to where I was, because what I really want is self-control.
+
+this entry brought to you by CXNTRAST - Iceburg
+
+@[youtube](IeXTBJ0lBww)
+
+### 2019-03-11 ??:?? - another look at self-control
+
 ### 2019-03-04 ??:?? - when feeling bad, I resort to logic. but, when feeling good, I evaluate it by how it feels
 
 ### 2019-03-01 ??:?? - turning want into need
