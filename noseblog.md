@@ -5267,7 +5267,7 @@ I have this mental image (feeling) that I'm beginning to practice and it's this 
 
 the last few days after having a dream with pepsi product placement, I had been pondering an idea where now that I have a guardian (mom), someone can cash in on the advertising. previously I could not ask for my share of the ad-revenue, because for me the the network doesn't exist, so they can easily claim that a non-existent entity does not need to pay me. however, mom does clearly know about the entity, and can easily ask for those dividends.
 
-however, I began thinking that perhaps mom will just fall into line just like she has been doing this whole time -- they'll lowball her and she'll just go along with it. so, I thought maybe greg should take that over, but then again he has lower self-worth, and probably imagines that he could do it, but doesn't actually believe in the successfully pulling it off. it still didn't feel right, so I slept on it.
+however, I began thinking that perhaps mom will just fall into line just like she has been doing this whole time -- they'll lowball her and she'll just go along with it. so, I thought maybe greg should take that over, but then again he has lower self-worth, and I feel he probably imagines that he could do it, but doesn't actually believe in the successfully pulling it off[^2019-03-11 16:27]. it still didn't feel right, so I slept on it.
 
 when I woke up yesterday, I realised what I wanted was a shark. I had no interest in actually obtaining any of that money myself. what I want are people that are driven by money, and they would cash in the ad-revenue with the objective of increasing the amount of contrast.
 
@@ -5285,11 +5285,39 @@ I woke up this morning and I could tell that the idea no longer felt good to me 
 
 in the end I realise that no action is the best way, and doing something to make someone "pay" for something isn't the right way (for me), so I will go back to where I was, because what I really want is self-control.
 
-this entry brought to you by CXNTRAST - Iceburg
+this entry brought to you by CXNTRAST
 
 @[youtube](IeXTBJ0lBww)
 
-### 2019-03-11 ??:?? - another look at self-control
+### 2019-03-11 15:25 - another look at self-control
+
+I have noticed that as I release resistance, I become capable of manifesting more and more things. this is really good, if I want to become similar to source energy or if I want to realise a new galaxy or universe sometime in the future. consider the wide variety of things that can be seen by the sun. a wide variety of wars, periods of enlightenment, and all sorts of thing wanted and unwanted have been realised in this solar-system.
+
+similarly, source does not discriminate or label things as good or bad in the way that we do. energy is considered energy, and its effect is considered in a much broader perspective than just the immediate present.
+
+so, as I release more and more resistance, I will become capable of more and more things (both which are considered "good" and "bad")
+
+brb... need break
+
+### 2019-03-11 16:27 - self-sabotage and why manifestation may not work some times.
+
+I have given a lot of thought as to why I some things manifest and some things don't. for example, there have been many times where I have felt like I could program something, imagined its result, and then sat down to do it and nothing... or I couldn't find motivation to do it. or, what about the times that I wanted to destroy someone's car cause I felt so frustrated. again, I feel like I can do it, I imagine it's "successful" completion, but nothing comes of it. I have many times pondered why this is so, because it's one of the main questions a programmer has as to why they feel such lack of motivation toward a project or whatever.
+
+well, in all case for me, those programs may have seemed like a good idea at the time, or someone motivated me to feel like I wanted to do it, but it wasn't what I *really* wanted to create. this is why when I lose motivation, I always take a step back and wait for the evolution of that desire, to bring clarity to what it is that I really want.
+
+if you think about LOA and how it works, I'm sure that greg is in fact *capable* of being a cutthroat douchebag, but it's probably not what he *really* wants. so, under normal circumstances, he would be capable, but because he is conscious enough he will essentially self-sabotage his own "carnal" desire, knowing that it wasn't what he *really* wanted.
+
+you can see that his connection to who he really is, actually helps someone to self-sabotage. the solution is *not* to just push through and force something that you do not feel internal motivation toward.
+
+it's kind of a backwards way of looking at things, where the person that is most conscious, can often self-sabotage in moments where external motivation has been used as a tool to override one's internal guidance (inspiration).
+
+---
+
+I believe one of the main goals of the people trying to gain control is to be able to motivate someone in the direction that they want the person to go. the more connected the person is to who they really are, the less capability someone will have to motivate someone toward something that does not harmonise with who they really are.
+
+in a military type situation where someone needs to blindly follow orders, this intention to want to control or motivate someone to perform the actions from the commands from the person in charge, may work (well?). so, you could imagine that maybe that is actually intended that soldiers, and people who don't follow orders are to be as disconnected as possible, in order to be able to easily motivate them.
+
+I believe some time in the future, there will be a complete 180° change of opinion that orders need to be followed, and that self-sabotage is bad. we're no there yet though :)
 
 ### 2019-03-04 ??:?? - when feeling bad, I resort to logic. but, when feeling good, I evaluate it by how it feels
 
