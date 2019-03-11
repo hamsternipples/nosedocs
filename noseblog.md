@@ -5063,7 +5063,7 @@ I am beginning to think that perhaps this whole locking my door and keeping peop
 
 the reason why I went out of my way to mention that is because the other day after greg barged into my room and started causing trouble, and my reaction was not angry because I had already contained the majority of it that I had woke up with. when walking around, I was reminded of my psychedelic experiences where I had all sorts of craziness happening in my head, and I would remember this weird phase my dad said to me where acid is like taking a pencil and running it across your brain -- and in really intense psychedelic experiences, I would remember that and I was able to get through because I could separate what I feel from what I perceive [^1].
 
-so, just like how I could know that the drug was causing me to feel a certain way, I had to find a way of overriding that feeling. the biggest breakthroughs I had was when I had an experience where I was overtaken by the intensity of the city and I realised I could absorb the energy instead of letting it make me feel bad. the other was when I had the idea to eat a bunch of shrooms before going to see meri's sister at the hospital with daniel.
+so, just like how I could know that the drug was causing me to feel a certain way, I had to find a way of overriding that feeling. the biggest breakthroughs I had was when I had an experience where I was overtaken by the intensity of the city and I realised I could absorb the energy instead of letting it make me feel bad. the other was when I had the idea to eat a bunch of shrooms before going to see mery's sister at the hospital with daniel.
 
 in both of these experiences (and many others just like it), I had to learn to how feel the way I want to feel about something by changing my perception of it. so, being reminded of this separation has given me a whole new perception of what is happening here, because in both of those experiences, I walked away with a huge amount of new confidence in my mastery of not letting my surroundings and circumstances affect me by perceiving them differently (redefining my reality).
 
@@ -5277,7 +5277,7 @@ ok, well, what about the aspect that it would be kind of another way to make nos
 
 maybe not what I was looking for.
 
-(there was the side-intention for me as well, because I had begun to select different people that have been influential in my formation as the "re-realisation of saturn" (more on this later), and would appreciate a monetary reward for their influence. they were selected based on components of meaningfullness of the reward, ability to convert money into more desire/energy, and faithfulness to hold nosebook accountable)
+(there was the side-intention for me as well, because I had begun to select different people that have been influential in my formation as the "re-realisation of saturn" (more on this later), and would appreciate a monetary reward for their influence. they were selected based on components of meaningfulness of the reward, ability to convert money into more desire/energy, and faithfulness to hold nosebook accountable)
 
 ---
 
