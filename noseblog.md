@@ -5347,7 +5347,29 @@ so, as it stands, and you may or may not agree with me -- I believe the best pat
 
 [2]: for example, today I met a guy named david, and considering that only nosebook people can really have a conversation with me, he was disguised as a christian (with a teddy bear on his backpack and everything). well, later when watching stars, it felt to me like nosebook wanted him to waste my time as much as possible on the bridge. my immediate reaction was to throw rocks at him. fortunately, in real-life I'm not quite as amped up as I am when I watch stars so that is unlikely to happen, but just the same, I will have to practice new ways of telling people I'm not interested in talking to nosebook empployees. he did inspire (like frank) some interesting thought though, so we'll see where that goes, I guess.
 
-[3]: if you recall the triads of the sirian guide, vulcrum was the base, saturn was the second male in the triad, and sekmet was the female. since I already identify with volcrum (limp leg, 5th ray, creates things for zeus, etc.), that makes two of us already in the same body. 1st ray and 5th ray (desire and emotion) operate on frequency and harmony, so they're missing the logic tools or structure (3rd ray) to make make effective and and long lasting creations. the missing factor has been this saturn guy (3rd ray). people such as zaryn, marcos and augusto have kind of fit this saturnian role up until now, and since 2016, nosebook has taken over the saturnian role. however, it is time for the re-realisation of saturn. I have given it quite a bit of thought, and this process I'm going through is actually the preparation phase for that. you may have noticed how carefully I have been studying these saturnian archetypes, and I plan to emulate them to the best of my ability, redesigning all of the parts that I see fit for improvement.
+[3]: if you recall the triads of the sirian guide, vulcrum was the base, saturn was the second male in the triad, and sekmet was the female. since I already identify with volcrum (limp leg, 5th ray, creates things for zeus, etc.), that makes two of us already in the same body. 1st ray and 5th ray (desire and emotion) operate on frequency and harmony, so they're missing the logic tools or structure (3rd ray) to make make effective and and long lasting creations. the missing factor has been this saturn guy (3rd ray). people such as zaryn, marcos and augusto have kind of fit this saturnian role up, and since 2016, nosebook has had the saturnian role. however, it is time for the re-realisation of saturn. I have given it quite a bit of thought, and this process I'm going through is actually the preparation phase for that. you may have noticed how carefully I have been studying these saturnian archetypes, and I plan to emulate them to the best of my ability, redesigning all of the parts that I see fit for improvement.
+
+### 2019-03-12 01:11 - faith as a precursor to manifestation
+
+one of the interesting things about the conversation I had with david was the concept of faith being the ability to "see" something that is not yet physically manifest. after that, I presented the concept of faith as a transformation:
+
+1. hope
+2. belief
+3. knowing
+
+the key element there was the belief one, where I gave the example of you can believe a gun can shoot because you know gunpowder burns quickly, the casing of the bullet holds in the pressure of expanding gunpowder until finally the bullet shoots out at a rapid speed. I briefly mentioned the idea that logically you can arrive to the conclusion that putting the elements of a bullet together and igniting the gunpowder will create a fast moving projectile, so logically you could believe that this bullet thing would work that way. this is the mind of an inventor.
+
+hope has no logic to make it true and is about as good as "chance". however, when you get to belief you can logically make some connections which will allow you to believe something (good or bad). knowing however has experience to back it up. this is not theory any more, but an exercise of one's expectations.
+
+the other thing I thought was interesting which I mentioned was the concept of faith having a visual component, where one can see something not yet physically manifest. in my experience, whenever this happens to me, whenever I see something not yet physically manifest (that is, in 3d space as if it were real), it comes from the capacity to feel the presence of that thing.
+
+this capacity is what I have been talking about with the inner universe, and the ability to create objects in 3d space by *feeling* them. I imagine that nosebook has done this believing part for you guys by figuring out what concepts to put in my head to make the thing appear in your imagination. so, I guess it's not really a big deal for you guys to have to believe in the thing, because nosebook does it for you.
+
+this faith component is really the capacity to feel the presence of something not yet manifest. so, actually now that I think about it, you guys could probably utilise nosebook's service to fuel your faith. I'll elaborate on this in the future (this topic is just getting started), but you can think of your imagination as a two-way street. the same way that you can generate pictures in your mind (nosebook calls them hallucinations I'm sure) simply by having a strong feeling, having a detailed image your imagination can make you feel something.
+
+also, and this is just a test for now, try to take elements you visualise in your imagination and logically arrange their interactions, so that it's no longer a static image but a living thing. you should, like tesla with his motors be able to return at a later time and find them still functioning. any programmer can easily test this by visualising a computer, and tren writing a simple hello world program that prints out the time. come back later and it should still be printing the time. congrats, you just made a persistent mental clock.
+
+### 2019-03-12 ??:?? - the power of doubt
 
 ### 2019-03-04 ??:?? - when feeling bad, I resort to logic. but, when feeling good, I evaluate it by how it feels
 
