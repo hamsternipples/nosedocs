@@ -5319,6 +5319,36 @@ in a military type situation where someone needs to blindly follow orders, this 
 
 I believe some time in the future, there will be a complete 180° change of opinion that orders need to be followed, and that self-sabotage is bad. we're no there yet though :)
 
+### 2019-03-11 23:06 - another look at self-control (part two)
+
+having now a bit of distance to where I can look a bit in the rear-view mirror, I think what might have happened, is I had the idea to tell mom and greg that they should collect on my ad-revenue, but then once again while I was asleep, someone shat on the idea... maybe they put ideas in my head that mom or greg aren't capable, or something -- I don't really know, but if yo could imagine nosebook not wanting to pay ad-revenue on product placement, it certainly would give them quite a bit of motive to try and rearrange my thoughts on the matter to cause doubt. I suppose we'll never know, cause there's no way to know what they're putting in our heads while we sleep, and we have no idea what sort of thought responses they have programmed in their systems. they'll never tell us, either, I can assure you of that.
+
+the next thing that I want to mention is that this may have also been a composite reaction as well. this whole self-control subject has come as a response to the original thing that I talked about with xander last week. the same thing happened where I felt a good idea, but after some time, that idea[^1] no longer felt good to me. it felt like someone decided they would find a way to try and control me by adjusting conditions.
+
+I decided then, like I did after the ad-revenue idea stopped feeling good, to go back to not taking action. so then, later when I was arriving to the conclusion while writing, things again probably got "motivated" or "steered" in a different direction. then, I began to write about how big of a mess motivating someone would make, and how little sense it makes, as a kind of a sidebar to the conclusion to my self-control concept. the irony is plain once you see the big picture here.
+
+---
+
+yesterday when I was went out to go for a walk with mom, I saw the neighbour and her girls. I felt a sense of timidity and didn't really want to be o social. instead, I launched off on some tirade about my visual capacity with mom. when I came home, I arrived to the conclusion that girls terrify me. in fact, nearly everything about any sort of relationship does at the moment. I don't really want to have any relationships at all at the moment.
+
+the reason for that is because I don't have any self-control (yet). additionally, I'm deeply paranoid[^2] as well, so my only real solution right now is to continue to focus on my own self-control.
+
+by taking no action, I am putting myself in reaction/response mode, so that means they must move things around to try and figure out ways to control me. each time they try (like david), I have another opportunity to learn self-control and to begin redefining my reality yet further, so that I remain in control, no matter the circumstances.
+
+you see, what this is all leading to, and what the objective of all this self-control is for, so so that I can provide a stable platform for when I actually reconnect to who I really am.
+
+like abraham says, alignment is not like a college degree in that once you have it, it's yours forevermore -- so, in order to keep my alignment with who I really am, it is imperative that I provide a stable environment where I am not able to be manipulated so easily by nosebook (or anyone else).
+
+it's quite possible that in other timelines the girls would have inspired in me a lot more stability -- because in their presence, I would have continued to be in fun-mode. however, you could imagine that when they reached puberty or I was alone, things could go awry very quickly. the energetic intensity, plus my immature and untempered nature (in addition to my lack of resistance) would likely cause more problems than anything.
+
+so, as it stands, and you may or may not agree with me -- I believe the best path for me right now is to continue to not take action whilst the idea doesn't feel good, continuing to practice self-control [^3].
+
+[1]: the one of me going to live on my own would be a mental space change where I would begin to think like a person who lives by theirself
+
+[2]: for example, today I met a guy named david, and considering that only nosebook people can really have a conversation with me, he was disguised as a christian (with a teddy bear on his backpack and everything). well, later when watching stars, it felt to me like nosebook wanted him to waste my time as much as possible on the bridge. my immediate reaction was to throw rocks at him. fortunately, in real-life I'm not quite as amped up as I am when I watch stars so that is unlikely to happen, but just the same, I will have to practice new ways of telling people I'm not interested in talking to nosebook empployees. he did inspire (like frank) some interesting thought though, so we'll see where that goes, I guess.
+
+[3]: if you recall the triads of the sirian guide, vulcrum was the base, saturn was the second male in the triad, and sekmet was the female. since I already identify with volcrum (limp leg, 5th ray, creates things for zeus, etc.), that makes two of us already in the same body. 1st ray and 5th ray (desire and emotion) operate on frequency and harmony, so they're missing the logic tools or structure (3rd ray) to make make effective and and long lasting creations. the missing factor has been this saturn guy (3rd ray). people such as zaryn, marcos and augusto have kind of fit this saturnian role up until now, and since 2016, nosebook has taken over the saturnian role. however, it is time for the re-realisation of saturn. I have given it quite a bit of thought, and this process I'm going through is actually the preparation phase for that. you may have noticed how carefully I have been studying these saturnian archetypes, and I plan to emulate them to the best of my ability, redesigning all of the parts that I see fit for improvement.
+
 ### 2019-03-04 ??:?? - when feeling bad, I resort to logic. but, when feeling good, I evaluate it by how it feels
 
 ### 2019-03-01 ??:?? - turning want into need
