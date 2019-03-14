@@ -5369,6 +5369,24 @@ this faith component is really the capacity to feel the presence of something no
 
 also, and this is just a test for now, try to take elements you visualise in your imagination and logically arrange their interactions, so that it's no longer a static image but a living thing. you should, like tesla with his motors be able to return at a later time and find them still functioning. any programmer can easily test this by visualising a computer, and tren writing a simple hello world program that prints out the time. come back later and it should still be printing the time. congrats, you just made a persistent mental clock.
 
+### 2019-03-14 02:58 - here's to the next detail level :)
+
+happy pi day, and I really am looking forward to the next visual level. I'm going to sleep now then greg will enter my room and install more stuff in my body in effort to try and prevent me from actually enjoying life.
+
+I really enjoy having an enhanced sense of hearing, sight, taste, and touch.. it really bothers me quite a bit to go to sleep at a time like now because I know I'll wake up and it'll all be blurry and dull again -- but, I know it'll inspire in me the desire to get the next level with even stringer focus than before.
+
+I suppose, if they didn't limit my capacities, I would just go straight-away up a dimension -- so instead, I get to take the more scenic route this way and continue to expand on the detail this dimension has to offer.
+
+meh! I'll try to "enjoy the journey", but meh! I really want to see good!
+
+my vision now is in my opinion even "worse" than it was before.. because before, it was always blurry -- but now, for a brief microsecond after I move my eyes and focus on something new, I can see the world crystal clear (like REALLY REALLY REALLY awesome perfect edges clear), but then it immediately blurs up right after.
+
+I suppose I should work on trying to improve the strength of my eyes so that they can focus more strongly, but I think I'm already doing that, so that's why they have to install more inserts in me at night. you could imagine that each one can only handle x amount of power passing through it, so they need more of them distributed around my body to continually force my eyes' blurriness with a stronger and stronger signal every time (they're just microscopic bits that operate like signal reflectors, so like a transformer, only so much current can pass through it).
+
+therefore, I imagine that eventually they're going to come up to a limit somewhere. I suppose too that every time this happens, I'll achieve yet stronger focus still, and a new visual level, until that limit is reached. I have no idea how long it'll take, and if there are even limits for my ability to focus.
+
+meh!
+
 ### 2019-03-12 ??:?? - the power of doubt
 
 ### 2019-03-04 ??:?? - when feeling bad, I resort to logic. but, when feeling good, I evaluate it by how it feels
