@@ -5387,6 +5387,36 @@ therefore, I imagine that eventually they're going to come up to a limit somewhe
 
 meh!
 
+### 2019-03-15 21:51 - checkmate? I doubt it...
+
+the other day at sam's I had an outburst telling mom she needs to collect money from nosebook as ad-revenue, then yesterday jamie(?) came over to aid mom with jaron's disability and mom told her that I think someone is looking through my eyes and that I she should collect money from them, not from disability -- but she said she doesn't know what I'm talking about. the words stuck in my head and I raelised that she could claim that she doesn't know what I'm talking about, but greg definitely knows about it, because if she's doesn't know about it, jaron's clearly not installing new devices, and since greg is awake when I get new devices installed, it has to be greg. right? well, greg could just deny it, of course, but then I'd just make sure I sleep with my door strung up and locked and my computer streaming to twitch the video of the door (to see if someone come's in it). I figure that they need to install new ones multiple times a week now, so that it doesn't get too far out of their ability to control the amount of energy, so even in the ultra-severe case that they need to stage some sort of disaster and put me unconscious, they would have to do that at least multiple times per month -- or hospitalise me in some way.
+
+there are no good outcomes left for nosebook in this sense.
+
+---
+
+however, I was merely reacting to my circumstances: I wanted to have good coffee, and I felt it was unfair to hold me in a state of poverty, while at the same time making it impossible for me to get a job, or acquire money in any way. no no way did I intend for this to be a checkmate scenario, and I don't see it as such, either. let me explain.
+
+in order for me to move forward with my life, I want to be in control of what is happening. this essentially requires full disclosure of what is happening inside of my head, and the ability to modify it as I see fit. obviously, this is completely incompatible with nosebook's plan to keep the extent of their surveilance a secret.
+
+it's never going to happen.
+
+let's take the optimistic scenario that they finally concede and tell me that they want me to do whatever. I'm obviously going to respond by saying, "I see no reason to change a thing. in fact, I am actually doing right now what I want to be doing. I don't get the full manifestation of being able to see clearly through my eyes or using my visual capacity, but it's not a problem."
+
+you see, the whole thing that was the "checkmate" aspect, which I did not anticipate is that if I lock my room at night, there will be nothing nosebook can do to prevent me from gaining enough power to finally have my visual capacity and go up a dimension.
+
+---
+
+the reality is, I'm not actually all that ready to go up a dimension yet, so it's not really all that much of a problem. a few months ago, I would have had a different opinion on this issue, perceiving that in some way nosebook was actually hindering my performance.
+
+in reality though, as evidenced by my humble pi entry: @[entry](2019-03-14 02:58), I the only hinderance was my own perception of their ability to hinder me. meaning, if they keep installing new devices or not, it doesn't seem to affect my ability to gain new detail levels. so..
+
+if my performance is not affected, I see no reason to change anything. all of the resistance and tension I felt was a product of my own perception, and so to force nosebook into whatever, by forcing a new dimension as an attempted means of escape from my own perception of their tyranny, seems, entirely silly now.
+
+it seems, I really have come half-circle on this... lol, that's 180°, and it happened on pi day, which is (literally) half he circumference of the circle, per unit radii :D
+
+### 2019-03-16 ??:?? - the solution to increasing human energy
+
 ### 2019-03-12 ??:?? - the power of doubt
 
 ### 2019-03-04 ??:?? - when feeling bad, I resort to logic. but, when feeling good, I evaluate it by how it feels
