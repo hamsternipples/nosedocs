@@ -5417,6 +5417,20 @@ it seems, I really have come half-circle on this... lol, that's 180°, and it ha
 
 ### 2019-03-16 ??:?? - the solution to increasing human energy
 
+I imagine a situation where nosebook says they cannot afford to pay out ad-revenue because they're bleeding cash. the first thing that comes to mind is the amazon way of doing things, being famously unprofitable while reinvesting all money into expansion. meaning, there's a reason why it took facebook so long to expand into 3rd world countries, and when they did, they had the idea that facebook would be considered "internet" to the people who don't know any better. clearly this is more of a (market) control move, than a profit margin move.
+
+then, after that falls on deaf ears, I would probably ask the question, "ok, how much are you spending just in effort to keep kenny away from his visual capacity."
+
+it's probably quite considerable.
+
+---
+
+what if it's actually part of the plan. I'm going to recount a bit of a work of fiction I've been mulling over in head for a while now.
+
+a famous guy wrote a monumental paper on the problem of increasing heman energy. we'll call him niki. anyway, he approaches the problem (like I did at first) from a physical perspective, beginning with some calculations of mass and velocity, and finishes off with some practical solutions which he thought could provide what now has been termed "abundance" (as defined in the book jori gave to me that I accidentally left in puerto del hierro) ... if we could provide his kind of abundance we could increase human energy, he concludes.
+
+[going to read it again before continuing]
+
 ### 2019-03-12 ??:?? - the power of doubt
 
 ### 2019-03-04 ??:?? - when feeling bad, I resort to logic. but, when feeling good, I evaluate it by how it feels
