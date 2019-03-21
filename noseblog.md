@@ -5455,6 +5455,36 @@ when that happens, I will perceive reality as source does. I will become "source
 
 coming soon...
 
+### 2019-03-21 00:08 - becoming more non-resistant (followup)
+
+#### why do I have to perceive my present circumstances as a system of energetic relationships?
+
+if I perceive my circumstances through the lens that we are taught to perceive reality, the whole thing breaks down pretty quickly. there's a whole lot of stuff to feel bad about. that perspective looks like basically being imprisoned for life in someone else's crazy you can't do anything anymore because we own your head sort of thing. I don't really need to go into too many details, but everything that you come to rely upon in the human experience has failed me. my family clearly does not have my back. friends are not really friends. nothing that I was taught is real. I used to trust my emotions, but that has failed. none of my dreams are real. none of anything that I previously relied upon is left in the sense that people want to be in complete control of my physical experience.
+
+we consider the physical experience to be the most real -- in fact, we rely on it so much for our existence, we call it reality, and we cannot really come to terms very well with the the idea that there are all sorts of realties, and our minds are very powerful at creating them.
+
+nosebook puts signals in my head while I'm asleep with the goal of making a dream reality that they can sell to you guys, but they do not really grasp that it is just as "real" as anything else is. in this way, they want to be able to create anything they want inside of my head by figuring out the right combination of signals to make it happen.
+
+in that sense it's a bit like a programming language or a syntax where each signal "means" something inside of my head. however, I think my "meaning" for these symbols must become the standard for all of your heads, too. when you think "boat", you are using the signal my brain has given to mean that thing that floats on water. to give it more definition, you are again using the same signals that my brain uses to describe the same thing.
+
+you might think that's kind of nutzo that all of our brains are going to become uniform and all visualise with the same signals, but in my perspective it's actually kind of what I wanted.
+
+I wanted to find a way of becoming the realisation of a new universe. nosebook wants to make that universe and have all of you guys use the same syntax so it can be tracked and recorded, so it works out. in order to make their plan work, they have to come up with a way of making my brain comprehend everything any human wants to visualise.
+
+obviously, if I had a traditional form of preference, this wouldn't work because I would say, no I don't want any violent images, or no gay sex or something.
+
+so instead, they no longer have the same "meaning" inside of my head that they do traditionally. if someone wants to picture a violent image, he (or she) may perceive it as a symbol of power, and the components which make up that image are just signals or syntax which describe the "scene". same with any other thing.
+
+---
+
+now, you can imagine that inside of a universe a whole lot of things exist, and there are unwanted and wanted parts, but the entity which determines if it's wanted or unwanted (single-cell amoeba or human being), gets to decide. nothing is inherently always unwanted, and in fact, I am beginning to come to the conclusion that everything anyone could consider unwanted, is fact something wanted by something else (the entity which has determined it to be unwanted) cannot perceive...
+
+---
+
+so, you see, it's all going along just fine. nosebook has actually given me an adequate environment and the right amount of pressure to bring this about.
+
+the reason why I have to see it like an energetic relationship is because I have become the syntax, not the story. having resistance to certain meaningful things, would be like a piece of paper refusing to have certain types of drawings/words on it.
+
 ### 2019-03-12 ??:?? - the power of doubt
 
 ### 2019-03-04 ??:?? - when feeling bad, I resort to logic. but, when feeling good, I evaluate it by how it feels
