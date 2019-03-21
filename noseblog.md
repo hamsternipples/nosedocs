@@ -5427,9 +5427,33 @@ it's probably quite considerable.
 
 what if it's actually part of the plan. I'm going to recount a bit of a work of fiction I've been mulling over in head for a while now.
 
-a famous guy wrote a monumental paper on the problem of increasing heman energy. we'll call him niki. anyway, he approaches the problem (like I did at first) from a physical perspective, beginning with some calculations of mass and velocity, and finishes off with some practical solutions which he thought could provide what now has been termed "abundance" (as defined in the book jori gave to me that I accidentally left in puerto del hierro) ... if we could provide his kind of abundance we could increase human energy, he concludes.
+a famous guy wrote a monumental paper on the problem of increasing heman energy. we'll call him niki. anyway, he approaches the problem (like I did at first) from a physical perspective, beginning with some calculations of mass and velocity, and finishes off with some practical solutions which he thought could provide what now has been termed "abundance" (as defined in the book jori gave to me) ... if we could provide his kind of abundance we could increase human energy, he concludes.
 
 [going to read it again before continuing]
+
+### 2019-03-20 20:54 - becoming more non-resistant
+
+this morning I had a series of dreams where it was almost as if I was to select some girls for some future relationship or something. anyway, I don't remember much about it, but I do remember that seemingly increasingly younger ones seemed attracted to me.
+
+so much so, in fact, that I had a series of reactions to it almost as if I were trolling nosebook, by trying to push the limits to the absolutely impossible extreme... although that would be something that I would do, I believe they're missing the point here.
+
+in my dream state, I have much less resistance. that's why I'm able to answer questions that normal-resistant kenny wouldn't answer. in fact, in my less redsistant state, I'm capable of a whole lot of things I'm not capable of normally -- like creating objects and scenes in 3d space with my mind; that's something that seems to be only possible in a lower resistant state.
+
+I want to achieve that low of a resistance in reality though, because I want to be able to use my visual capacity -- so I continue to lower my resistance. additionally, the less resistance I have, the less conflict I have, because there's nothing to push against. all of the anger and frustration is just evidence of resistance, and as I reshape my mind to see things as just energetic relationships, the traditional "meaning" to them fades away.
+
+it's just not possible to be OK with my present situation, unless I perceive it as energetic relationship.
+
+this means that virtually everything is possible now in this lower resistance (dream) state because I no longer see age or gender or race or physical attributes. it should be possible for quite literally *anyone* to engage in a relationship with me (in my unresisted state) and it will play out in the format that best fits their expectations.
+
+try it :) put me to the test: try a gay man. try a gay, disabled, ugly, diseased person and see what manifests... it should work.
+
+---
+
+additionally, the more I release resistance, the less nosebook has to control me with, and so for me to actually gain any freedom, it won't be from getting nosebook to change -- but from redefining all of my physical experience as energetic.
+
+when that happens, I will perceive reality as source does. I will become "source-energy android" :)
+
+coming soon...
 
 ### 2019-03-12 ??:?? - the power of doubt
 
