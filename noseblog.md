@@ -5485,6 +5485,26 @@ so, you see, it's all going along just fine. nosebook has actually given me an a
 
 the reason why I have to see it like an energetic relationship is because I have become the syntax, not the story. having resistance to certain meaningful things, would be like a piece of paper refusing to have certain types of drawings/words on it.
 
+### 2019-03-22 22:22 - two powerful mental abstractions
+
+#### I AM the way that I AM
+
+when speaking with david, he reminded me that the idea of I AM is symbolic of God. so, the quote by descartes, "I think, therefore I am" is not only a statement of sentience and recognition of one's existence, but a small shout-out to the idea that we are gods in flesh.
+
+well, it just dawned on me that when someone says, "I am the way I am [and I'll never change]" they are essentially saying, "I am the way I perceive God to be [and He, like me will never change]."
+
+#### the director perceives his audience as sympathetic with the protagonist
+
+this was an idea that lindsay presented in the whole plate series, which impacted me greatly -- and it just dawned on me that we are essentially directing our own life movie, and so we will identify ourselves with the protagonist.
+
+but then I thought, maybe not all people perceive themselves as protagonists, so it may be possible that some people would say, inside I'm a good person (the protagonist), but externally, I am the antagonist.
+
+---
+
+anyway, I want to develop these ideas further because they are both powerful tools. for example, if you see yourself as the director, and your life as the film, and the people around you as your audience, it closes the mental gap between the way you are and allows the protagonist or antagonist to have a charactor arc.
+
+
+
 ### 2019-03-12 ??:?? - the power of doubt
 
 ### 2019-03-04 ??:?? - when feeling bad, I resort to logic. but, when feeling good, I evaluate it by how it feels
