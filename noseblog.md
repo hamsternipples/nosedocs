@@ -5485,7 +5485,7 @@ so, you see, it's all going along just fine. nosebook has actually given me an a
 
 the reason why I have to see it like an energetic relationship is because I have become the syntax, not the story. having resistance to certain meaningful things, would be like a piece of paper refusing to have certain types of drawings/words on it.
 
-### 2019-03-22 22:22 - two powerful mental abstractions
+### 2019-03-22 22:21 - two powerful mental abstractions
 
 #### I AM the way that I AM
 
@@ -5503,7 +5503,22 @@ but then I thought, maybe not all people perceive themselves as protagonists, so
 
 anyway, I want to develop these ideas further because they are both powerful tools. for example, if you see yourself as the director, and your life as the film, and the people around you as your audience, it closes the mental gap between the way you are and allows the protagonist or antagonist to have a charactor arc.
 
+### 2019-03-25 11:07 - a theory for ben davidson
 
+I've been thinking about his cosmic ray health alerts. I don't disagree that the effect is real, instead I was trying to think of its mechanism for the evolution of life on a planet. this is just an idea that popped into my head. I'll begin with the axioms
+
+1. the sun emits more or less solar wind from time to time, and it seems that the more density, the stronger our magnetic field is. (speed and phi angle seem to affect rapid changes in the magnetic field)
+2. while some may experience heart or psychological changes, as someone who stares directly into the sun (and other stars) and notices both of these effects regularly, it seems to me that these high frequency "rays" seem to provide me with an enhanced capacity for perception and higher amounts of creativity
+3. we know that even in solar "minimum", large CMEs and strong solar wind can occur
+4. imagine this solar wind as something the sun emits so that the planet can push against it and gain strength
+
+so, imagine that there were a value that we could measure which represented creativity, technological advancement, or perception... I'll call this Q. [^1] Q is directly proportional to the Kp index over X unit of time.
+
+so, when Q is high, there are a lot of advancements, and the earth's magnetic field is strong. (there is more of this creative energy flowing) and when Q is lower, the magnetic field weakens, and more of these cosmic rays begin to flood in. for some people, the impact of these high-energy, high-frequency particles, will manifest as a phycological condition, and for others it'll be a flash of inspiration or maybe even an upgrade to their vision/perception.
+
+[1]: others have called this value different things, but the most notable to me is terence's "novelty theory". this theory does not supplant his theory but instead gives the sun the function if it's regulator.
+
+### 2019-03-25 ??:?? - rollercoaster (of love?)
 
 ### 2019-03-12 ??:?? - the power of doubt
 
