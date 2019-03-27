@@ -5538,6 +5538,22 @@ so anyway, in the really long-term, you will notice that the guys at nosebook wi
 
 it's totally all good :) let the power-leveling begin!
 
+### 2019-03-27 14:06 - who is this "who I really am" guy?
+
+before you are born, you are "who you really are" -- someone who is not limited by gravity, can create things in 3d space, and capable of seeing temporally many different possibilities of manifestations. this is your pure energy self.
+
+when you are born, now you put into the physical experience and experience time and space from a singular perspective. this this "resistance" which allows for a singular focus, provides a pretty good starting spot to begin experiencing "contrast" -- things wanted and things unwanted. this "contrast" between what you want and what you thought you wanted[^1] will always inspire stronger desire in who you really are, and also physical you to realise that new desire. stronger desire equals more energy. you could say that if you were to tune into all of the energy of your desire right now, you would be the manifestation of who you really are (and your circumstances would be very different)[^2].
+
+the goal really is to begin to let the person you are when you are "dead" through. the amount of energy that anyone has accumulated is much much more than this body could normally withstand, however, the more you are able to rearrange your thoughts to allow more and more energy through (or meditate), the more you realise the manifestation of who you really are.[^3]
+
+[1]: your present situation is always an indicator of where you're tuned in to
+
+[2]: actually, my theory of how it's possible to reverse engineer the individual resonant frequencies of each nosebook device is actually based off of this idea of "tuning" into who you really are. you take it one step at a time, feeling if there is resonance, and each time you the device responds to the input frequency, you know a part of the total frequency. it's actually easier than you think, because even if say it were a binary code (only two possible positions per digit), and there were 128 digits, you would only need to make 128 resonance tests to figure out the code. you can imagine that the number of possibilities for a reality is a whole lot bigger than 128 bits (there are so many possible variables), if it were a 1 thousand digit number, base 100, it would be impossible to brute-force the number (100^1000 possibilities), but you imagine that it would be possible in your lifetime to try out 1000 different things, each with 100 different outcomes. to find what you really are looking for you would have to make minimally 1000 and at most 100000 attempts to figure it out).
+
+    fortunately though, the result of each life event will give you a feeling, and in it's most simple form, you could say that it feels "better" or it feels "worse" -- binary. so, you could remap that 100^1000 number into a base-two and get there the long, but sure way. imagine that 100^1000 is less than 2^16768 number (it probably is). now, you can be sure that with only 16768 life events, you can tune to who you really are :)
+
+[3]: in "AN EXTRA-TERRESTRIAL VIEW OF CREATION presented by KUTHUMI" he mentions this idea that the human consciousness was engineered as a trap. well, I don't know where I got this information (perhaps it was deleted from the original document) but I remember it saying that at first they were designed to be stupid, but it didn't work out so well, so if was finally decided that all the different alien species would contribute their best dna to the human project, and make a the most intelligent species ever. however, it would be limited in capability to their connection to source, and the source energy valve was activated by emotion. so, basically, the better you felt the more source energy would flow through, and the more energy there was flowing, the more these super-human capabilities become available. this was chosen as the best option to allow the INFECTED ONES (lol) to not be able to access their these capabilities until they were "rehabilitated" sufficiently to gain access to them. and now that I see it in hindsight, to inspire desire in them to regain their own connection instead of remaining enamoured with what the physical plane has to offer.
+
 ### 2019-03-25 ??:?? - rollercoaster (of love?)
 
 ### 2019-03-12 ??:?? - the power of doubt
