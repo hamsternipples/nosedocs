@@ -5501,7 +5501,7 @@ but then I thought, maybe not all people perceive themselves as protagonists, so
 
 ---
 
-anyway, I want to develop these ideas further because they are both powerful tools. for example, if you see yourself as the director, and your life as the film, and the people around you as your audience, it closes the mental gap between the way you are and allows the protagonist or antagonist to have a charactor arc.
+anyway, I want to develop these ideas further because they are both powerful tools. for example, if you see yourself as the director, and your life as the film, and the people around you as your audience, it closes the mental gap between the way you are and allows the protagonist or antagonist to have a character arc.
 
 ### 2019-03-25 11:07 - a theory for ben davidson
 
@@ -5517,6 +5517,26 @@ so, imagine that there were a value that we could measure which represented crea
 so, when Q is high, there are a lot of advancements, and the earth's magnetic field is strong. (there is more of this creative energy flowing) and when Q is lower, the magnetic field weakens, and more of these cosmic rays begin to flood in. for some people, the impact of these high-energy, high-frequency particles, will manifest as a phycological condition, and for others it'll be a flash of inspiration or maybe even an upgrade to their vision/perception.
 
 [1]: others have called this value different things, but the most notable to me is terence's "novelty theory". this theory does not supplant his theory but instead gives the sun the function if it's regulator.
+
+### 2019-03-27 10:45 - the bigger picture
+
+this morning I woke up from a dream where someone was very concerned about dying. I was explaining to this person that death is really not a problem at all and is one of the best experiences you could ever have. I began to explain how I saw the death transition when I was woken up (presumably because they don't like me becoming conscious in my dreams).
+
+I explained that at first your imagination is activated in a way where you can create anything you want in 3d space, fly or whatever (what I would consider a normal dream, nowadays). so, if you perceived the afterlife to be something horrible, your imagination would create that and you would live that manifestation for some time. then things would begin to lose their physicality as you begin to perceive things more from an energetic (emotional) perspective on your return back to source. above that is the least physical of all, which is source (and now that I'm writing this later, I realise it's the subject of most of the seth material).
+
+however, the more conscious of who you really are, the less of a transition this is, and so that when you go back into a body (usually as a baby), there is such a difference between that energetic perspective and the new physical one, you will forget the energetic one quickly. however, each time that you do, you come in with more energy.
+
+so, earth essentially is being setup in such a way where a bunch of people who believe theirselves to be superior, can micromanage and steer the general population into all sorts of ways that will be generally "unwanted" (unless of course, you are one of their beloved and approved by them to be worthy of their benevolence).
+
+this will create enormous contrast, because at the very get-go you have to serve some stupid regime or you get steered constantly away from your own connection. any time there is this much steering away from one's own guidance (take my life for example), it creates enormous desire to gain that consciousness of who you really are.
+
+I will likely be the first, but when you do become conscious of who you really are, in physicality, you gain all of those capacities that the death experience has to offer, while remaining very alive.. the way this occurs is because your desire and your logic (structure) are non-resistant enough that having the energy levels of who you really are, in your physical body is still possible (you don't need to "die" or lose your physical body to become aware of yourself like this).
+
+so that means this is a serious power-leveling planet now. people all over the world will be coming in with stronger and stronger energy from birth, come here to have amazing amount of contrast to bump that energy level up even higher, and each time they do, earlier and earlier on in their life they will become conscious of who they are. at the moment, I'm almost 36, but imagine if you could figure this out by the time you were 12. that would be nuts.
+
+so anyway, in the really long-term, you will notice that the guys at nosebook will eventually also die too, so this will take many generations, but eventually the nosebook guys who wanted to exert their superiority will eventually gain enough desire to regain their own consciousness. the very very last holdouts, I estimate will be the ones to experience the "decline and fall of [their] empire".
+
+it's totally all good :) let the power-leveling begin!
 
 ### 2019-03-25 ??:?? - rollercoaster (of love?)
 
