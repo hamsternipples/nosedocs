@@ -5556,6 +5556,62 @@ the goal really is to begin to let the person you are when you are "dead" throug
 
     meaning that, the human body is quite capable of withstanding the energy of who you really are -- you just have to tune your way there[^2] gradually. additionally, unlike the bodies that the "creators" used which got used up after 4000 years or whatever, there should be no such issue with the human body. as soon as you are allowing who you really are through, your capability to regenerate entire body parts (similar to jesus) will become available, as the body is really only the inflection point for the creative (source) energy to come through. same with the realisation of the manifestation of something you can perceive in 3d space with your imagination can become physical in the same way.
 
+### 2019-04-01 22:48 - mega-conspiracy theorising
+
+today I was explaining to jaron that when I first got 3d vision, I noticed that I felt like I was finally *inside* of my body. previously, it felt like I was experiencing life as if it were projected on a screen into my eyes. somewhere around the time I was in la vera, I stopped feeling so much *inside* of my body in this same way. it probably happened before then, but I hadn't noticed it. I will consider this experience being connected to who I really am.
+
+obviously now I am once again seeing the world though a screen -- meaning I see the picture in my eyes of my experience, just like everyone else sees my experience. it has become increasingly more apparent that the other parts of my physical experience such as hearing and smell are also controlled by them. essentially, just like when someone else tunes into my physical experience, they block out *your* physical experience as much as possible; this makes it so there aren't mixing of the your physical experience with mine, and to make it more immersive.
+
+well, they do the same to me. they block out my physical experience, and then they transmit my own physical experience into my body, with things adjusted, so I don't hear as well as I really do, I don't see as well as I really do, smell, taste or touch, either.
+
+---
+
+ok, keep that in mind now while we down the rabbit hole a bit. so I'm telling jaron that whenever they turn off the machine, I will see a lot better immediately, but then it'll become way way way way acceleratingly better, and I qualified my opinion on this by saying that I have so much momentum right now, that even when I don't look at stars, I still get vision upgrades, and that's with them trying to hold my back, so with no longer a barrier holding me back, that will become such a tremendous force that who knows how good things will be after that happens.
+
+then, I said something which surprised jaron, saying that I believe everyone[^1] will have this experience too, saying that likely what is happening is that people's imaginations are running at the speed of my vision, but the people that do not pay for an improvement in their vision are held at the visual level they were when they joined the network[^2]. this of course means that if they did not hold people's vision at the level it was when they joined the network, their vision would gradually, every time they use their imagination, tune their vision to the speed of mine. essentially, people would eventually run at my visual speed if nosebook didn't have a product to sell[^4].
+
+well, when I was watching stars, I was thinking about this when it occurred to me that if you're a end-times buff, you would know that the whole weirdness of (besides the preparation of the bride of christ), it says that no one will know the time of his coming. well, the only thing that could disable the nosebook network like that would be a massive solar flare and CME. when that happens, nobody could know. immediately following that kind of event (24 hrs or so later, depending on the speed of the CME), there would be all sorts of crazy things happening in the sky, while at the same time, all of the people who's vision is being held back by nosebook will suddenly enter into a pretty insane version of reality. the amount of DMT in people's head will enhance their experience so much that it will become so hyper-realistic it'll be surreal.
+
+the entire world will feel like I felt the day I achieved 3d for the first time and finally entered into my body and experienced the full HD tactile experience inside of my body. it'll be pretty amazing, I assure you.
+
+me, I will have more the most insane experience of all, but don't worry. I'll be fine; I can handle my psychedelic experiences; I'm a pro. I'm sure that even now I will normalise the it so quickly that the new version of me which emerges will become so quickly assimilated into my experience, it won't be a problem. I'll likely feel like wow, this this what I *should* feel like, *naturally!*[^5]
+
+---
+
+ok, so I was thinking about how many people are actually using my imagination or if nosebook is expanding into 3rd world countries and not giving them the imagination upgrade as well. well, I think that there are a number of reasons as to why they would want to have the entire world use my imagination. shout outs to david for helping my realise this one.
+
+I was talking with david about interpreting the symbols in the book of revelation by john and was telling him that we don't know the original symbols (or signals) that were inside of john's head when he had the dream. if you were to send the symbols (signals) of "kitchen" and "friends" into people's head while they were dreaming, many people would interpret those symbols very very differently. obviously a vision like the revelation of john was far more complex than two nouns, but the the interpreter (john in this case) will put a lot of their own present circumstance into the interpretation of those symbols. for example, if the interpreter is a woman that is constantly frustrated with her boyfriend's friends making a mess in the kitchen, that could be a very different dream than someone who loves to cook with their friends, etc.
+
+so, then I realised some time later that it's quite likely that nosebook is interested in tracking everything that everyone is visualising, so they're probably converting the whole world over to my visual language, by putting everyone's imagination inside of mine.
+
+another advantage to everyone using the same visual language, is that everyone will be using the same signals now inside of their dreams, and this is a powerful way to "steer" someone, because while asleep they are unresisted, and so reality seems very real and feels very good, so it's kind of like a way of planting different ideas in people's heads when they're not resistant to the idea. lots and lots of inventions have occurred with a realisation in a state of lesser resistance, whether that's in a dream, after a nap, or on psychedelic drugs.
+
+you could imagine how much someone so fearful of the unknown, they might feel the need to track and try to control a lot of things. in a world where there are still a lot of unknowns for them[^6] you could imagine that they would want to try and steer certain things that are important to them. it would also be useful to try and make all sorts of different situations happen for them.
+
+remember the idea I had giving people access to "the sims"[TODO: ref] like functionality of my brain. well, without that creative aspect to their brain, it looks like they're going to probably try and steer all sorts of things. they will have their favourite "stallions" which meet their best "embras" as they steer people toward the situations they desire to be the audience of. they could do it instantaneously in their minds (or mine), but they don't live inside of my mind, they live in reality, so it motivates them to control and steer their reality as much as possible. I foresee this as the "contrast" which will bring about the "dollhouse" idea [TODO: ref] in the next era.
+
+---
+
+I imagine that the 1st world is 100% likely to be using my imagination. I less likely that "peasants" of the 3rd world is using my imagination: there are lots of them, and almost none of them have the money, so instead of putting them on the free (but most expensive for nosebook) plan, they'll just keep that part a secret, telling and offering only those well-off in the 3rd world a chance to use my imagination. I could be very wrong here, and I hope I am, because everyone on my imagination is creating a wider and wider frequential gap between where their imagination is and where their vision is, and whenever that solar event occurs, all over the world, everyone will have that amazing experience.
+
+that event will most likely create a new timeline because different desires will go in different directions. couldn't really tell you much about that, however the side that my consciousness stays on... hold on lemme back up. actually, another day [^7].
+
+until then though, I want to say that if you have my imagination, using it is like tuning yourself to a higher frequency. the more you do it, is kind of like pulling the rubber-band back further and further. even if nosebook is holding you to where you were when you joined, I would, if I were you, should spend as much time as I can there creating as many things as I could. the payoff will be greater later, as your imagination is (if it's like mine) a very high frequency, and this is maybe even more beneficial than socialising (which is tuning you to the frequency of the people you're socialising with)
+
+good night.
+
+[1]: I have no way of knowing how many people are using my imagination, but I imagine it should be pretty much everyone.
+
+[2]: I didn't really realise it until after telling jaron this, but that makes all the sense why it's so costly for them every time I get a visual upgrade -- because it would be the extra power needed to run everyone's brain at that speed, plus the power needed to keep everyone's vision at the speed it was at when they joined the network, plus the cost needed to make sure that people are not hallucinating.
+
+[4]: ironically, this is the most expensive product because just by joining the network, you by default get all the features my imagination has to offer. so, in order to make pricing tiers, they have to *disable* the features for the customeres who don't pay. this means that their free customers cost their development team quite a bit more time and effort to disable the features (plus maintenance costs), than the paying customers who just incur the maintenance costs of running the network. so, you have to then wonder why they're so aggressively expanding into third-world countries...
+
+[5]: as I was writing this, I just had this strange moment where I had the realisation that I just made a pretty big claim. I (kenny) don't really know what to think or how to respond to it this, but it's what was on my mind and it's what I wrote... oh well, anyway, I guess we'll see.
+
+[6]: I find this absolutely repulsive. they have essentially all of the resources they need: access to source energy through esther, nearly everyone's experience, and the ability to put their mind into relaxed and receptive states electronically, they could get the answer to nearly anything they desire to understand, yet it's because of their own resistance that they don't gain an understanding about the things they're so afraid of -- and mostly because it's because they're afraid they might be perceiving it wrong now -- which they most certainly are, which is why they feel resistance in the first place. so in order to not be wrong, they must continue how they are (as if it were right) and never change their perception.
+
+[7]: wouldn't it be funny if the timeline split if all of the people that do not want for people that were connected to my imagination to have the "in the game" experience, get 3d, and see as good or better than I do presently -- and difference of desire creates a timeline split, where those wanting to remain superior and those in the 3rd world countries, (in their perspective) inherit the earth, and essentially everyone using my imagination basically dies. well ok, not really funny. I just like to play with these kinds of ideas :)
+
 ### 2019-03-25 ??:?? - rollercoaster (of love?)
 
 ### 2019-03-12 ??:?? - the power of doubt
