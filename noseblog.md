@@ -5588,7 +5588,7 @@ another advantage to everyone using the same visual language, is that everyone w
 
 you could imagine how much someone so fearful of the unknown, they might feel the need to track and try to control a lot of things. in a world where there are still a lot of unknowns for them[^6] you could imagine that they would want to try and steer certain things that are important to them. it would also be useful to try and make all sorts of different situations happen for them.
 
-remember the idea I had giving people access to "the sims"[TODO: ref] like functionality of my brain. well, without that creative aspect to their brain, it looks like they're going to probably try and steer all sorts of things. they will have their favourite "stallions" which meet their best "embras" as they steer people toward the situations they desire to be the audience of. they could do it instantaneously in their minds (or mine), but they don't live inside of my mind, they live in reality, so it motivates them to control and steer their reality as much as possible. I foresee this as the "contrast" which will bring about the "dollhouse" idea [TODO: ref] in the next era.
+remember the idea I had giving people access to "the sims"[TODO: ref] like functionality of my brain. well, without that creative aspect to their brain, it looks like they're going to probably try and steer all sorts of things. they will have their favourite "machos" which meet their best "embras" as they steer people toward the situations they desire to be the audience of. they could do it instantaneously in their minds (or mine), but they don't live inside of my mind, they live in reality, so it motivates them to control and steer their reality as much as possible. I foresee this as the "contrast" which will bring about the "dollhouse" idea [TODO: ref] in the next era.
 
 ---
 
@@ -5612,11 +5612,51 @@ good night.
 
 [7]: wouldn't it be funny if the timeline split if all of the people that do not want for people that were connected to my imagination to have the "in the game" experience, get 3d, and see as good or better than I do presently -- and difference of desire creates a timeline split, where those wanting to remain superior and those in the 3rd world countries, (in their perspective) inherit the earth, and essentially everyone using my imagination basically dies. well ok, not really funny. I just like to play with these kinds of ideas :)
 
-[8]: this is another realisation I had, following the symbols, where in piscis, the symbol moved toward group thinking, and the detriment was to stay in the previous symbol of sacrifice (or service). this era of aquarius, the symbol moves toward individual self-empowerment (capability), so the detriment will be to stay with old social and group empowerment ideas. someone will realise greater capability if they turn inward (self), instead of looking to others (group) for their empowerment. I don't want to tell people what to do, instead this is a reflection on my own experience and how I see the symbols changing for this era[^9].
+[8]: this is another realisation I had, following the symbols, where in piscis, the symbol moved toward group thinking, and the detriment was to stay in the previous symbol of sacrifice (or service). this era of aquarius, the symbol moves toward individual self-empowerment (capability), so the detriment will be to stay with old social and group empowerment ideas. someone will realise greater capability if they turn inward (self), instead of looking to others (group) for their empowerment. I don't want to tell people what to do, instead this is a reflection on my own experience and how I see the symbols changing for this era[^9]. [TODO: ref piscis era]
 
-[9]: just as jesus came telling people aquarius is here, telling them of the freedom found in their own capability through self-empowerment (and was what likely snagged the powers of that time.. notice how how much nosebook is has the symbol slightly twisted with the only-nosebook capability for the "self"-emporwerment of "group" of nosebook). I too came with the doll-house mentality, so the next era, I believe will be about the doll-house, which is is why I think the present powers (nosebook), will twist the symbol and try and steer the population of the world as if it were their own creations (clones in the dollhouse idea)
+[9]: just as jesus came telling people aquarius is here, telling them of the freedom found in their own capability through self-empowerment (and was what likely snagged the powers of that time.. notice how how much nosebook is has the symbol slightly twisted with the only-nosebook capability for the "self"-emporwerment of "group" of nosebook). I too came with the dollhouse mentality, so the next era, I believe will be about the dollhouse, which is is why I think the present powers (nosebook), will twist the symbol and try and steer the population of the world as if it were their own creations (clones in the dollhouse idea)
 
-### 2019-03-25 ??:?? - rollercoaster (of love?)
+### 2019-04-03 17:39 - rollercoaster (of love?)
+
+the other day when I was talking with david, we were talking about control. there are some things over which you have little control, like your breathing, heart rate, digestion, salivation, etc. and you have more control over other things. we concluded on the idea that in the end, really life is *somewhat* like a roller-coaster, and all you really have control over is your reaction.
+
+the reason why I say, *somewhat* is because your reaction is kind of your control. let me back up. previous to this, we were talking about how LOA works and you what you give your attention to. my experience has shown, for example, that today I have a variety of things happening in my life and I am reacting (responding) to them the way that I feel is then best response, and then tomorrow comes. since tomorrow has an infinite amount of possibilities to to things happening, what will occur. well, tomorrow will bring new things and all those things feel a certain way to me, and I have found that the things tomorrow has feel pretty similar to the things that have happened today. I conclude then, that since infinitely many things are possible, that temporal navigation is achieved emotionally[^1].
+
+---
+
+now, I want to expand on the dollhouse idea. imagine a future moment when we're a whole lot better at programming DNA. the world of programming machines has become less useful, as we're now more interested in getting our biology to behave the way that we want it to. you can imagine all sorts of reasons to learn how to program the DNA to achieve the cosmetic improvement you're looking for than it is to perform a surgery.
+
+the reason why I say cosmetic is because I believe that in this day and age, sex is a larger motivating force than sickness -- so figuring out how to give someone bigger boobs without surgery would be a very lucrative thing. once that takes off, you could imagine that all sorts of structural changes could be made to the body by altering the DNA program a bit. I believe it could be even done electronically with a that has a bit more precision than the system nosebook already has in place (and without any splicing or anything like that).
+
+we're not there yet though. humankind still has quite a ways to go before that takes place, but you could easily see what sort of environment this would produce: lots of test-subjects would need to be had to realise the kinds of desired physical attributes people may desire. well, the way to do that would be to make a whole lot of clones and test out the different DNA changes on them. also, while you're at it, why not make a wide variety of different clones and put them in contrived situations for entertainment purposes. I'm basically describing television of the future. clearly, people are going to get fed up with the "flat" television screen and will want to see all sorts of different extravagant lives that creative people could come up with, build the actors and the sets, and then the audience can watch it from the actor's perspective (and other cameras, too obviously), similar to how my life is but way more exaggerated, and fully contrived.
+
+I say fully contrived in the sense that these actors will be controlled electronically[^2], and the early realisation of this idea will probably be similar to how a movie is shot today. later, the actors will only be given abstract ideas, and they play out the scenario with slight variation in the actor's personality -- probably in real-time from the audience's request or some thing like that which fits into some sort of narrative.
+
+---
+
+ok, finally I felt a few reactions to the comment I wrote in the previous entry about the different symbols. in it, I said that the previous era determines the detriment, and the captivating force for those in power is the idea of what the next era will bring.
+
+the dollhouse era is what I have been going on about, and I'll term it capricorn, to which the ruler is saturn, which is probably why I continue to go on an on about the re-realisation of saturn.
+
+ok, so I believe that contrast is what fuels desire and so when you know what you don't want, you know better what you do want. therefore, just as nosebook has an attitude of corporate empowerment and socially realised capability (performance), which is building desire in people for their own self-realisation of capability[^3], I believe this will come to an end soon, and nosebook will transform into the corrupted version of the next era of capricorn.
+
+what I mean by that is that I think nosebook is already attempting to kind of steer people already by putting thoughts into their head. they already do it with me, trying to steer every portion of my life as if it were theirs to steer. it would not surprise me that this becomes the case.
+
+so, that means in some ways life will be a bit like a roller-coaster for all of us (including nosebook, because I find it very unlikely that their steering will work as well they hope it does it will). this will be a HUGE boost to human energy, as it'll blow out the contrast by many orders of magnitude.
+
+additionally it has the benefit of giving us the capability to trust in our own emotional guidance systems as a form of navigating life experience (cause if you aren't navigating, nosebook will be doing some back-seating) and to begin ignoring most of the chitter-chatter (thoughts) in our heads that don't feel very inspired.
+
+I have mixed feelings about this conclusion, but I know (from experience now) that it's all find. even with nosebook trying to steer my life, all of the resistance I have felt was my attempts to try and fight them. if I just roll with whatever it is and follow my intuition, I've found that it actually works out fine.
+
+I'll tell you a secret: your inner-being knows all of their attempts to steer you and has even counted their attempts to steer into the path toward what you really want, so you can just factor in their steering as part of the journey. as long as you follow what feels good to you, you'll get there just fine. they have no power meanwhile they try to steer from a position of lack or some other disempowering perspective.
+
+enjoy the ride!
+
+[1]: got that nosebook? there's the answer you've been looking for. think about how you can remember a past situation just by how it feels. well, just the same way that you tune into that past situation by how it feels, you can also tune into a future situation by how it feels.
+
+[2]: maybe sometime not so far into the future, I want to make clones of myself which I control emotionally. each of my clones would essentially be capable of living life 100% autonomously, have friends, partners, etc. and I, the consciousness of these clones am essentially living hundreds (or many more) of lives at once, assimilating the experience on an emotional level, much like I experience so much information presently through what I call, "reactions".
+
+[3]: this may not begin until the second phase of the era. just as moses had his elijah, and the church had its reformation, self-realisation in people may take a bit to gain traction. I think there will probably be a corporation that pushes this forward, because more than likely there will be an enormous market open to people wanting to experience content other than what nosebook has to offer.
 
 ### 2019-03-12 ??:?? - the power of doubt
 
