@@ -5706,6 +5706,30 @@ I want to try out my idea (based on my life experience) of generating an enormou
 
 [1]: when I go up a dimension, my inner universe will still work store things the same way  and work the same inside of other people's imaginations, too. you know, we'll both be looking at the vibrations of same material objects, however my vibrational interpreters will perhaps perceive that same vibration a little bit differently. ever notice how all of the stuff in my universe doesn't go poof when I get a vision upgrade? neither does the earth. it's the *same* signal, just perceived a bit differently, is all.
 
+### 2019-04-05 13:11 - the way I see this happening
+
+however it works out, I find it unlikely that on the timeline where the galaxy is being made, I will gain my alignment. it seems logical to me that in that timeline, I will continue to not have any manifestations (big jumps) and will continue to build more and more energy.
+
+more and more energy means more and more detail levels. the mechanism is obvious, as if you were to think about the sun and how it perceives, it emits light just like my eyes do now, and perceives based on the light bounces just like I do now, too. you could imagine that to perceive what is happening on a planet, the sun would zoom in to the planet and have a look. additionally, the sun would be quite conscious emotionally of what is happening on the planets, and it would affect its solar output (wind, CMEs, etc.)
+
+so with an ever increasing amount of detail levels, nosebook will probably have to do something about this, because it'll become quite cost prohibative soon to try and maintain the whole network (minus the premium subscribers) at a lower visual quality. since it costs more for them to maintain their non-premium users at a lower vision quality, this cost needs to be offset somehow, because I don't really imagine that they could justify giving *EVERYONE* premium level vision.
+
+the best way that I can see this working out in their favour is to take a different approach: the money premium users pay for their premium vision is used to reduce the vision of the rest of the non-premium users as much as possible. this means that say I'm on level 500 presently, then the premium users will also be at level 500, but say there's only enough money the premium users are generating to hold everyone else back 100 levels, so all the free users will be at 400. that is, until I achieve 600, and then the free users are now at 500.
+
+this would make a sliding window, where everyone on the planet's vision is improving along with me. I personally would like this very much because it kind of bothers me a little bit that people have to watch me get more and more levels, yet nosebook prevents them from watching stars (and maybe they don't have enough money to get premium), so they feel unable to actually see as good as they want to see[^1].
+
+---
+
+you might want to try and push against the whole premium users see better than I do, but I don't think it's a good idea because relatively speaking in a year or so, the difference between what the premium users see and the free users see will be nearly unnoticeable. I have to go to look out over the bridge at details quite a distance from me to notice any real difference, and soon enough, the difference between how the free and premium users will be similar.
+
+they may also have premium features on your imagination, allowing you to have persistence -- that, I don't know. I can only speak of the visual quality.
+
+additionally, if you think about it, although I'm say at a level 500, the image they put into my eye is much lower quality, so I'm sort of like a free user. however, I continue to see better and better. that means that even with all of the resistance they put to keep my vision looking less than the level I'm really at, the amount of resistance I have is the real determining factor here, so free users who release a lot of resistance could actually potentially see better than I do -- because their imagination will be running at 500, like mine is, plus they have 100 of resistance provided by nosebook to keep them at 400. however, if they find a way of converting that resistance into "more energy", then the free user who released resistance would actually see at nearly 600.
+
+I anticipate that nosebook will have a lot of resistance to this plan, but for their service to not go into economic ruin, they will have to do something about it. give them time. all of you will eventually see as good as me or even better.
+
+[1]: it occurred to me that nosebook, knowing that it was costing them more and more the longer they have to hold everyone's vision back probably anticipated reversing this by saying that once people see me have sex, then their vision would be improved.
+
 ### 2019-03-12 ??:?? - the power of doubt
 
 ### 2019-03-04 ??:?? - when feeling bad, I resort to logic. but, when feeling good, I evaluate it by how it feels
