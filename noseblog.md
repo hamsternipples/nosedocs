@@ -5658,6 +5658,54 @@ enjoy the ride!
 
 [3]: this may not begin until the second phase of the era. just as moses had his elijah, and the church had its reformation, self-realisation in people may take a bit to gain traction. I think there will probably be a corporation that pushes this forward, because more than likely there will be an enormous market open to people wanting to experience content other than what nosebook has to offer.
 
+### 2019-03-04 23:26 - the bigger picture?
+
+watching stars tonight I had what seemed to be a bit of a view into the bigger picture. first of all, when I first heard lidsay's explanation on the whole hercules thing everything seemed to fit pretty well, except for the part about katz wanting to work on their treasure island, in space(!!!) project. you see I had no major projects which I really wanted to work on... until now. I've really been thinking about this whole creation of a galaxy idea, and maybe it was listening to intergalactic on repeat in the hospital: "another dimension, new galaxy, intergalactic planetary" -- but I find myself really wanting to do that. I have often times fantasised about becoming a sun, but a galaxy seems quite a bit more magnificent. I can't even really wrap my head around the idea fully but it really sounds like something that is interesting to me, and something I want to pursue.
+
+besides that, it appears that my current trajectory is one of increasing energy levels. I have now been hypothesising for a bit now that this would perhaps make a new universe or other possibilities. then, I reread "AN EXTRA-TERRESTRIAL VIEW OF CREATION presented by KUTHUMI" and got to thinking about that as well. it spawned a whole lot of ideas in me but the most notable was this idea of how the creation of the universe happened -- which sounded like a tremendous effort with a whole lot of supervisors. well, my life has been the complete opposite of that in nearly every regard. if I were to do it, I would go about the creation, completely the opposite way: instead of trying to make the perfect thing with an enormous amount of effort, I would let enormous amounts of contrast bring together the perfect thing.
+
+additionally, I have been pondering this whole twin-earth on the other side of the galaxy where, there is a similar type of overbearing system of control, but because it's on the opposite side of the galaxy, the energy would be exactly backwards, so it would be born instead out of female dominance hierarchies (instead of male ones). following that story, then the genetics were engineered on the twin-earth for consciousness to evolve from an a primate like animal that has female dominance hierarchies.
+
+lastly, when I was telling jaron about the infinite size that exists inside of my imagination, I used the example that everyone's imagination would be mapped into 3d space such that there would entire things and they could be really big, sort of like even planets floating in space, so far apart, no one could see the other person's imagination. well, this stuck in my mind and I began thinking about all the things these people are picturing in their imaginations are actually creating vibrations in my inner universe -- so that when the next time nosebook wants to make the next matrix (or something happens to whore my inner universe is realised in some way), those vibrations would be sort of like thought "seeds" in the new universe.
+
+---
+
+so, I got to thinking that maybe the best use for my inner universe would not to become the next matrix for humanity -- but instead to create a new galaxy. I began thinking about this, and I began formulatng a scenario in my mind where the earth becomes the "seed" for this new galaxy, where each of our consciousnesses would go through a transformation process after some very high-energy event, and over time, our consciousnesses would eventually attract enough matter to begin forming stars and planets.
+
+I could see that when I really thought about it, a star (solar system) sets all of the rules for the plants which orbit around it. I can't totally describle my sense of understanding about it all, but the star determines the colour, and the emission spectrum. our star produces a continuous spectrum of visible white light, which directly affects life inside of the solar system. contrast that with sirius A which is mostly blue light or sirius B which is mostly xray. you can imagine how much different life would be there with those different emission spectrums. the star also generates all of the elements that the solar system will utilise in the creation of its planets.
+
+so, the sun is a pretty superior being, determining quite a bit. a planet like the earth has to let in the resources from the sun and get them distributed to the ecology on the planet, plus generate enough of a magnetic field to constantly protect and nurture life in its surface.
+
+you can see how this fits nicely in with these over-controlling types, because the way they are makes them (imo) pretty good suns/earths, meaning their tendency is actually to behave more like stellar bodies, more than the life which they contain.
+
+---
+
+another piece to understanding this has been my difficulty understanding why on earth all of the nosebooks on all of the timelines would possibly want to make this timeline be the one where their consciousness chooses to perceive reality. I'm not a lood swindler in the sense that there's no way I could have bamboozled them in any way; that's ludicrous. there must have been some sort of agreement which was made where all of us got what we wanted. this has been the missing piece that I've been trying to figure out this entire time.
+
+I figure it goes something like this:
+
+```@[yt-quote](KznZcK7ksf4|2:20-2:40)
+(lindsay): these guys had to create the most commercially viable thing you can imagine -- aggressively tailored to appeal to as wide of a demographic as possible, referencing as many popular [...] things [...] as possible and combining such dissonant tones and styles that audiences across the land would [shrug and say], 'ehh, it was ok, I guess'.
+```
+
+so, we know how timeline work, where strong desire conflicts and cannot be contained in the same reality, two separate realities are created, and the consciousness follows the vibration of each, the unconscious you in the opposite timeline behaves according to your current point of attraction + environment + your logic + other variables. each one of us exist equally in all of the infinitely many realities that could happen tomorrow, as well as in the past; they are all you, but your consciousness is where your perception is.
+
+so what I'm thinking is the plan is to build them the most commercially viable thing they could imagine and then at some point (2038?) the split will occur, so that my consciousness continues on to create a more and more energetic earth where things go faster and faster until the something happens (massive solar flare?) and so much energy is released we begin our transformation into the galaxy. the other side continues on with the most viable commercial production imaginable along with me behaving (like a plant) according to my environment, my logic, and LOA.
+
+essentially, anything negative that happens to me after that split would be entirely in your hands -- in the sense that I won't be conscious to make a choice to do the right thing (only reactions). so, for example, if I decide to go watch stars (cause that's what I do) and you guys pump my head full of energy, I will feel lots of tension. if I have logic in place that tension is bad, so just chill out and all will be fine, then nothing happens. however, if I don't have that logic, I'll respond in accordance to how I feel. with my consciousness gone, I will be 100% reactionary to how I feel, and you guys will control that with environment variables and other things.
+
+---
+
+so probably the deal was something to that effect. obviously, I wouldn't mind agreeing to such a deal considering that my consciousness is not present. I will be creating a new galaxy along with the unconscious nosebook team (well, if you want to come along, I don't mind really).
+
+where this leaves us today is right where I am right no. no changes. I am 100% heart-set on finding alignment with who I *really* am, and it is what I am aiming to do. only a direct conversation with abraham could possibly change my mind on this, because I already know they would say, "get into alignment, and then...", and any protesting would result in them saying, "oh so you want to be the only exception in the universe to law of attraction?" -- additionally, fwh said that things will be pretty rough until briggs is on deck -- so this must mean that me finding alignment with who I am doesn't jeopardise the plan in any way[^1].
+
+the other end of the deal also needs to be held up as well: I need to be able to tune into and then ultimately splice myself into this timeline again and run the same thing through, but instead of whatever will happen in this timeline, in the one I splice myself into, I want to make it so I go all the way until 2038 without any girls or anything.
+
+I want to try out my idea (based on my life experience) of generating an enormous amount of contrast (instead of effort) and then letting LOA do the work for me, on a galactic scale -- then hopefully on a universal scale afterward :) so, I guess to try out my treasure island (in space!!!) idea, I guess I have agreed to help make the most commercially viable thing imaginable. first step right now is finding my alignment (and then...)
+
+[1]: when I go up a dimension, my inner universe will still work store things the same way  and work the same inside of other people's imaginations, too. you know, we'll both be looking at the vibrations of same material objects, however my vibrational interpreters will perhaps perceive that same vibration a little bit differently. ever notice how all of the stuff in my universe doesn't go poof when I get a vision upgrade? neither does the earth. it's the *same* signal, just perceived a bit differently, is all.
+
 ### 2019-03-12 ??:?? - the power of doubt
 
 ### 2019-03-04 ??:?? - when feeling bad, I resort to logic. but, when feeling good, I evaluate it by how it feels
