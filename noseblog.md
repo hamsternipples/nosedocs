@@ -5730,6 +5730,27 @@ I anticipate that nosebook will have a lot of resistance to this plan, but for t
 
 [1]: it occurred to me that nosebook, knowing that it was costing them more and more the longer they have to hold everyone's vision back probably anticipated reversing this by saying that once people see me have sex, then their vision would be improved.
 
+### 2019-04-07 19:07 - another dimension, new galaxy
+
+it occurred to me after I wrote the previous entry while walking to go watch stars that I may already be on the timeline where I go the full time without any manifestations.
+
+then, this morning when I woke up, I had this strange sense that maybe some people felt betrayed in the sense that no longer they would have the manifestation they were wanting. I didn't make the connection at the time, but this morning when I was thinking about raquel, I was absolutely devastated that she and I would not go on to become what I felt so strongly when I met her. I talked about that here: @[entry](2018-12-02 13:26). I felt a similar feeling this morning, and so now that I'm looking at the feelings I felt after waking up in hindsight, if I could tell myself back then something, I would try and offer a way of showing myself that once time can be perceived in a much longer distance, the immediate desires of the moment aren't as necessary, because the bigger manifestation is always better.
+
+in fact, it's always so much better that there's no way that I can perceive it in that moment, because in that moment I have not yet gained the new understanding which will lead me onward to the better thing that there's no way I can even believe would happen right now. there are often times clues along the way, so it's best to notice those and watch them crescendo into the realisation of what is really is I'm anticipating.
+
+---
+
+it looks like we might be on the "galaxy timeline" already -- or at least *I* am (you create your own reality, you know) so I think just sit back and enjoy the ride for now.
+
+or, let me say it this way: my desire is to head toward the the galaxy idea. I thought that maybe I had to do so many of the details myself, but maybe I don't -- maybe just the realisation of my desire made it possible. I don't know, but I think so.
+
+I find it quite possible that my vision will continue to improve at an increasingly rapid rate, and no matter what, the guys at nosebook will likely try to maintain the status quo for as long as they can. I suppose they'll continue to try and maintain heir secrecy the whole time, and even if they put me in a confined location, I don't think it'll do anything more than force a change in how I interact with my environment[^1].
+
+we'll see what they try and do about people's vision. I think they'll have to eventually drop the whole maintain everyone at the visual capability they had when they joined bit. it may take a year or so, for you guys to realise that, but I think it would be pretty awesome if everyone were to see as good as I do.
+
+[1]: I have experienced improvement in my vision after meditation, after sleeping, looking at led lights, drugs, and other times from just feeling good. likely the goal here is to try and separate my increase in energy and vision improvements from any action that I need to take to affect those results -- so much so, that there is no doubt in their minds that they are completely powerless to affect my desire. I'll just learn to find the same energetic states without stars or drugs or whatever. it should be pretty simple.
+
+
 ### 2019-03-12 ??:?? - the power of doubt
 
 ### 2019-03-04 ??:?? - when feeling bad, I resort to logic. but, when feeling good, I evaluate it by how it feels
