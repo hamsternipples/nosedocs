@@ -5750,6 +5750,15 @@ we'll see what they try and do about people's vision. I think they'll have to ev
 
 [1]: I have experienced improvement in my vision after meditation, after sleeping, looking at led lights, drugs, and other times from just feeling good. likely the goal here is to try and separate my increase in energy and vision improvements from any action that I need to take to affect those results -- so much so, that there is no doubt in their minds that they are completely powerless to affect my desire. I'll just learn to find the same energetic states without stars or drugs or whatever. it should be pretty simple.
 
+### 2019-04-98 - what a pickle
+
+I just realised that nosebook is essentially being forced to question their superiority because I will continue to gain visual levels at a more and more rapid rate. so... if they want to continue to utilise me as a source of content, my visual level will be so much further along than everyone else's that the content will probably begin to become uncomfortable for most (the same may apply to a person using their imagination). which means, for them to realistically continue to utilise me as the main source of their product, they will have to uncap people's vision so that there isn't such a big difference between their eyes and mine, or their eyes and their imagination.
+
+the other possibility would be to let me go up a dimension, and (assuming Iim feeling stable enough in my new perception) use the girls as the source of content. it'll shorten the gap between the content and their vision, but it still won't remedy my effect on the imagination.
+
+the first possibility, will yield the greatest benefit for all, yet I still will be living in a similar world to the one I am living now, where my sensation, and many faculties of my body are not working properly.
+
+in the end, it'll probably have to be both. what a pickle
 
 ### 2019-03-12 ??:?? - the power of doubt
 
