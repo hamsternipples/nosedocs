@@ -5760,6 +5760,30 @@ the first possibility, will yield the greatest benefit for all, yet I still will
 
 in the end, it'll probably have to be both. what a pickle
 
+### 2019-04-09 03:09 - THANKS JOHNATHON :)
+
+it occurred to me while watching stars earlier this night that one of the potential reasons for my increased success watching stars lately is because of johnathan.
+
+first, I remember during the eclipse I was outside and it was cloudy (but I was out there anyway), and I distinctly remember having the feeling that I hugged johnathan. likely you guys say something visual, but I distinctly remember the sensation. I also remember that it felt like I was kind of like receiving further direction for the next time section moving forward.
+
+anyway sometime later there was a bit of a mixup. I have no idea what was potentially visualised or what happened, but I felt a very strong reaction to it. I felt really bad about it so I stopped watching johnathan's stream, too (after all, I'm not really programming these days anyway). it felt to me like it affected him.
+
+so, my theory is that after some time of recovery, he decided to do something about it -- and I have no idea what he did, but when someone asked about ML on his 4/4/2019 stream, he made reference to grad students not having any idea what their ML models are actually doing.
+
+---
+
+previously I have mentioned my theory that any system which is sufficiently complicated where no one can accurately say exactly what is happening, LOA can affect the outputs. I have cited youtube recommendations as one evidence of this happening, where the person's desire is sufficient to see the next suggested video, that within the parameters that youtube has defined for relevancy, the neural net will pick just the right video for you.
+
+there are greater implications to this theory and I've been wanting to create technology for a while now which would be able to turn desire for information into meaningful results. (I mentioned this in a conversation with don)
+
+---
+
+so, assuming I'm my source's interaction with sufficiently complicated systems, theory is correct, perhaps johnathan caused them to loose faith in their own neural network's ability to correctly identify the signals it has been taught to recognise -- and so, their loss of faith in their machines began to allow them to begin to fail to recognise certain thigs my eyes would do, and allow me to gain levels easier.
+
+so, nosebook techs: now you know :) get your faith back because you have a lot more capability you'll need to limit; I'm pretty sure this is either the long haul or the *really* long haul we're in for.
+
+### 2019-04-09 03:09 -
+
 ### 2019-03-12 ??:?? - the power of doubt
 
 ### 2019-03-04 ??:?? - when feeling bad, I resort to logic. but, when feeling good, I evaluate it by how it feels
