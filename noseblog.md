@@ -5760,13 +5760,13 @@ the first possibility, will yield the greatest benefit for all, yet I still will
 
 in the end, it'll probably have to be both. what a pickle
 
-### 2019-04-09 03:09 - THANKS JOHNATHON :)
+### 2019-04-09 03:09 - did  johnathan help me by, accident(?)
 
 it occurred to me while watching stars earlier this night that one of the potential reasons for my increased success watching stars lately is because of johnathan.
 
 first, I remember during the eclipse I was outside and it was cloudy (but I was out there anyway), and I distinctly remember having the feeling that I hugged johnathan. likely you guys say something visual, but I distinctly remember the sensation. I also remember that it felt like I was kind of like receiving further direction for the next time section moving forward.
 
-anyway sometime later there was a bit of a mixup. I have no idea what was potentially visualised or what happened, but I felt a very strong reaction to it. I felt really bad about it so I stopped watching johnathan's stream, too (after all, I'm not really programming these days anyway). it felt to me like it affected him.
+anyway sometime later there was a bit of a mixup. I have no idea what was potentially visualised or what happened, but I felt a very strong reaction to it. I felt really bad about it and I didn't want to keep causing problems so I stopped watching johnathan's stream, too (after all, I'm not really programming these days anyway). it felt to me like it affected him.
 
 so, my theory is that after some time of recovery, he decided to do something about it -- and I have no idea what he did, but when someone asked about ML on his 4/4/2019 stream, he made reference to grad students not having any idea what their ML models are actually doing.
 
@@ -5778,9 +5778,13 @@ there are greater implications to this theory and I've been wanting to create te
 
 ---
 
-so, assuming I'm my source's interaction with sufficiently complicated systems, theory is correct, perhaps johnathan caused them to loose faith in their own neural network's ability to correctly identify the signals it has been taught to recognise -- and so, their loss of faith in their machines began to allow them to begin to fail to recognise certain thigs my eyes would do, and allow me to gain levels easier.
+so, assuming I'm my source's interaction with sufficiently complicated systems, theory is correct, perhaps johnathan caused them to loose faith in their own neural network's ability to correctly identify the signals it has been taught to recognise -- and so, their loss of faith in their machines began to allow them to begin to fail to recognise certain things my eyes would do, and allow me to gain levels easier.
 
 so, nosebook techs: now you know :) get your faith back because you have a lot more capability you'll need to limit; I'm pretty sure this is either the long haul or the *really* long haul we're in for.
+
+even weirder than that, could be the idea that somehow the eclipse premonition was some sort of setup to make it all work, almost as if all I need to do is to just roll with everything that happens, because, like the illusion I made with xander, I don't even need to make an effort anymore: I just follow my instinct and go with the flow.
+
+I was thinking about how maybe johnathan might react to this entry, but -- I hope he just rolls with it :) anyway, thanks :)
 
 ### 2019-04-09 03:09 -
 
