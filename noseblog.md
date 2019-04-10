@@ -5760,7 +5760,7 @@ the first possibility, will yield the greatest benefit for all, yet I still will
 
 in the end, it'll probably have to be both. what a pickle
 
-### 2019-04-09 03:09 - did  johnathan help me by, accident(?)
+### 2019-04-09 03:09 - did johnathan help me by, accident(?)
 
 it occurred to me while watching stars earlier this night that one of the potential reasons for my increased success watching stars lately is because of johnathan.
 
@@ -5786,7 +5786,21 @@ even weirder than that, could be the idea that somehow the eclipse premonition w
 
 I was thinking about how maybe johnathan might react to this entry, but -- I hope he just rolls with it :) anyway, thanks :)
 
-### 2019-04-09 03:09 -
+### 2019-04-09 18:48 - some more idealised ideas
+
+in my previous @[entry](2019-04-98) I offered the idea that maybe both paths will be chosen. so, this is some further hypothesising on what I think it implies. there are essentially three paths here: 1, 2 and both.
+
+from my perspective, I don't see any possible way forward other than to get reconnected. any projects I work on or drugs I take or sex or whatever condition will be with the sole purpose of regaining that connection. I don't really like the idea of using a condition to make that reconnection possible, and my trend has been to remove those conditions (or have them taken away) so they are not necessary. I am quite confident that I can eventually get there.
+
+so, let's say we take door #1: nosebook releases stops limiting people's vision and lets everyone naturally begin to rise closer and closer to where their imagination is at. the way I see this happening is that people all over the world will grow gradually up to be at the same vision level as me (and potentially further). many years into the future, I will likely see the worst of everyone, because I will still (like I am now) be held away from actually seeing through my eyes and actually having my own experience. eventually my energy will grow to such a level that I imagine that is maybe when some high energy event occurs and a galaxy is made (probably with everyone in it). along the way, I won't provide any girls-related content, because I'll be on the hamster-wheel trying to find my connection the whole time. instead, all sorts of other people will be making the content as their vision increases.
+
+now, let's take door #2: I manage to find a way of regaining that connection (or nosebook decides to stop limiting me). they will continue to use my imagination and I'm sure that they will instead maintain their position that they are not limiting people's eyes[^1]. in this setup, nosebook would not be able to use my content, because it would be in another dimension and likely very very high frequency (remember the guy that died or was severely injured at that frequency?) this means that they could really only use the girls for content. perhaps this is what fwh was meaning when he said that I have until 2038, because at some time I will have to be cut off (cause energy will continue to rise), and then you guys are all left without me[^2]?
+
+the final door is door #3: which is both doors 1 and 2. the whole planet's vision would improve very drastically similar to door #1, but at some point in the future, we'll have timeline tech and we decide to tune into this timeline and manipulate it such that #1 is what happens, and I (and anyone who wants to join me -- cause everyone dies eventually, anyway) will experience maximum contrast on the way toward the creation of a new galaxy. my body would be put into stasis or something, and nosebook could continue to use my imagination as long as the stasis unit continues to work. this leaves nosebook with timeline tech, my imagination and a world full of pretty resistance-free people. along with timeline tech, that means that they could take this planet *any* direction they wanted to.
+
+[1]: when I say limiting, I mean holding their vision at the place it was when they joined. I suspect that since it's all about tuning, the more you use my imagination, the more you would be tuning yourself to that higher frequency, and so naturally, your vision will tend toward the frequency of your (my) imagination -- and so your vision would improve naturally. the more you rearrange your resistant thoughts, the quicker your vision would improve. I find it likely that the premium users are not seeing that good because they released resistance, but because nosebook is pumping extra energy in to overcome the resistance.
+
+[2]: this door implies a strong change in power over toward women because they would be (realistically) the only ones watching content related to me. I don't really know what the full effect I will have on them will be, but the major downside to this path is that at some point (whether it's 2038 or whenever) my imagination will no longer be available. the other major downside is that nosebook would be hardcore limiting people's visual cpability (though this may be a good thing in the bigger picture of increasing human energy). additionally, we don't really know what effect I will have on the women, if they are releasing resistance, they cuold find themselves with very improved vision, and the men are held at a lower one??
 
 ### 2019-03-12 ??:?? - the power of doubt
 
