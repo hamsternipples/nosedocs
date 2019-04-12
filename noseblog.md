@@ -5836,6 +5836,26 @@ as I have demonstrated, their resistance in your eyesight can become a benefit t
 
 as you can see, the more you purposefully find sustainable ways to feel good (I used drugs at the beginning), the more energy they have to add, and it quickly becomes an exponentially improving thing (it's probably not n^2 because that would mean there is no power loss in your body -- it's probably something more like n^1.2 or something like that). the faster you iterate on feeling better, the faster things will improve. (if that's something that interests you)
 
+### 2019-04-12 16:20 - crazy clones solution
+
+after waking up from a dream with ryan day and a turbo chicken cooker in it, I had a surprisingly detailed idea enter into my head after pondering his whole "living off the grid" kind of mentality. it was so detailed, I decided to go with it, and then I realised that it could be a solution to a few problems. likely the idea will change considerably, but this is to start of some reactions to it.
+
+it goes like this: so imagine that I have sex with many young girls over time, well, not having any previous experience, they are starting out their expectation of what a man is like a bit differently. then, imagine that after some time, some of them have children of their own, too -- both boys and girls. well, since girls transfer energy through during sex from the last man they were with, these boys could have sex with some of the other girls that had only had sex with me. this would create a bunch of boys (bodies) that are very close vibrationally to me (and who I really am).
+
+ok, so the boys wouldn't be exactly clones of me. they could also contain a mixture of their mother as well, but then imagine that at some time, I eventually could make a transfer into these bodies much like I had another personality spliced into my own (when I had my jesus experience when I was 16).
+
+---
+
+so that's the idea in a nutshell, but there are a lot of logistical difficulties to overcome:
+
+1. there would need to be quite a few different starting girls, of many races and gene types tto ensure that the gene pool is significantly large. (n^n-1 possibilities)
+2. some sort of control would need to be made to ensure repeat mixes are minimised.
+3. this may be kind easier to realise in smaller village or colony type situation, and to make #1 happen, it may be beneficial to have a few spread out over the world.
+
+I see this entry more as like a thought seed. the idea will likely transform into something different, but it seems that if it were to happen, there may be some women interested in combining efforts to make something like this happen.
+
+let it just be an idea for now, as many things will get ironed out. nosebook will certainly try to push against it, but I think that's actually a good thing. you can imagine in a setting like this one, nosebook will ensure that all of the children have their inserts, and like me, it'll be to track them, not to make them a part of the users (so they can watch stars, just like I can).
+
 ### 2019-03-12 ??:?? - the power of doubt
 
 ### 2019-03-04 ??:?? - when feeling bad, I resort to logic. but, when feeling good, I evaluate it by how it feels
