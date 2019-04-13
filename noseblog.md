@@ -5838,7 +5838,9 @@ as you can see, the more you purposefully find sustainable ways to feel good (I 
 
 ### 2019-04-12 16:20 - crazy clones solution
 
-after waking up from a dream with ryan day and a turbo chicken cooker in it, I had a surprisingly detailed idea enter into my head after pondering his whole "living off the grid" kind of mentality. it was so detailed, I decided to go with it, and then I realised that it could be a solution to a few problems. likely the idea will change considerably, but this is to start of some reactions to it.
+(the timestamp, 4:19/4:20 reminded me of the ahsville group questioner last year about the unprotected sex and implied what to do with children question)
+
+after waking up from a dream with ryan (day) and a turbo chicken cooker in it, I had a surprisingly detailed idea enter into my head after pondering his whole "living off the grid" kind of mentality. it was so detailed, I decided to go with it, and then I realised that it could be a solution to a few problems. likely the idea will change considerably, but this is to start of some reactions to it.
 
 it goes like this: so imagine that I have sex with many young girls over time, well, not having any previous experience, they are starting out their expectation of what a man is like a bit differently. then, imagine that after some time, some of them have children of their own, too -- both boys and girls. well, since girls transfer energy through during sex from the last man they were with, these boys could have sex with some of the other girls that had only had sex with me. this would create a bunch of boys (bodies) that are very close vibrationally to me (and who I really am).
 
