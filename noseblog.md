@@ -5858,6 +5858,30 @@ I see this entry more as like a thought seed. the idea will likely transform int
 
 let it just be an idea for now, as many things will get ironed out. nosebook will certainly try to push against it, but I think that's actually a good thing. you can imagine in a setting like this one, nosebook will ensure that all of the children have their inserts, and like me, it'll be to track them, not to make them a part of the users (so they can watch stars, just like I can).
 
+### 2019-04-16 18:25 - the power of desire
+
+every morning I wake up and I feel as if there will be no progress made with the girls, and things will continue on without ever having a visual capacity and so fourth. however, often times after watching stars or walking or something, that feeling changes quite a bit and it feels as if things are really close.
+
+well, as I explained to mom thih morning, I don't really mind not having a visual capacity. in fact, there seem to be quite a few advantages to not having one, and in a lot of ways I would prefer to continue on like this. so here are my thoughts for nosebook on the subject.
+
+since I noticed that there is a steadily rising desire amongst the (mostly) women for things to change, nosebook would need to find a way to mitigate or reduce thier desire. I don't really believe that's possible to do that because of LOA (eg. you get what you give your attention to). so there's no real way for nosebook to fight against their desire (maybe temporarily slow it), but like I've shown, it's just turning speed into more power. instead, they need to find a replacement in some way to move their attention on to something else.
+
+I only suggest this because it feels kind of funny to me to want to *need* someone else's desire to rise to a level so that I can find my capability. the same reason why I'm not utilising (and reducing) other conditions as a means to achieve the manifestation of my visual capacity, is the same reason that I think nosebook should try and distract them with something different: I want to generate the desire to achieve my own visual capacity, without needing to rely on others to come into alignment with it.
+
+obviously, there are limits to how many conditions I can remove from my life, so there is a limit -- I can't (easily) remove food, water, oxygen, etc. however, as I get more and more closer to having that kind of energy, I will begin to remove those conditions as well. I really want to do this all myself.
+
+---
+
+there are some ideas which nosebook can try to capitalise on, such as "the sims" idea I suggested in a previous entry. with that idea, all of them could create the exaxt dream scenarios to which the want to live -- then, you can study those idealised scenarios and figure out how to emulate it with other people that are not me.
+
+simultaneously, it may be prudent for nosebook to begin trying to capture their attention with other dudes similar to me. take all of the stuff that they respond well to and put it into a big production, similar to how michael bay has don done with the transformers movies.
+
+---
+
+I don't know if fighting something will work, cause it'll likely have the opposite effect. so since you guys really want to make sure this doesn't happen, and I want to achieve this by myself, please do your best to distract them from their own desire by offering something better for them to give their attention to. I say better, because if it's not better, it'll just make their desire stronger.
+
+wait, I just realised: maybe I'm using reverse psychology :)
+
 ### 2019-03-12 ??:?? - the power of doubt
 
 ### 2019-03-04 ??:?? - when feeling bad, I resort to logic. but, when feeling good, I evaluate it by how it feels
