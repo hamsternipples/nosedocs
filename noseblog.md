@@ -5888,7 +5888,7 @@ I was going to stay awake to see zack today. turns out plans changed: he was goi
 
 so, I think what happened is that maybe there was effort to try and make this plan that zack has to smoke weed with me not come to fruition. I reason that a strong enough drug could maybe push me far enough over the edge to getting the next dimension. that may have been why plans got changed so mzny times today, dunno.
 
-anyway, earlier this morning for some reason I was thinking about growing mushroohms in jello with an added substrate such as rice or coffee. the reason for the jello is  so that the mushrooms can have water to consume, and they could survive transportation and have an easier time growing (cause they wouldn't need to be watered)
+anyway, earlier this morning for some reason I was thinking about growing mushrooms in jello with an added substrate such as rice or coffee. the reason for the jello is  so that the mushrooms can have water to consume, and they could survive transportation and have an easier time growing (cause they wouldn't need to be watered)
 
 so then jaron is telling me about the zach thing and I was sharing the idea that I think if weed can be made into a drink, it would be a whole lot more consumable in public, because drinks are tme ideal form of drug delivery, because they don't come up as fast as smoke, but is still within the 10-15 minute mark to begin feeling the effects.
 
@@ -5905,6 +5905,30 @@ I'm impressed. it really feels like my life will begin to become more and more l
 [1]: while writing this, I realised that I have found the mushroom's personality to be a lot like a hyper-aggressive/hyper-masculine little girl. she needs ideal conditions to grow up, and yammers in my ear endlessly about stuff I may or may not find interesting (usually thought provoking) mixed in with a chaos of other unrelated ideas. I've attributed the voice a masculine gender because of how it reasons things through, and can be quite overwhelming.
 
 [2]: if you've ever grown mushrooms, you'd know that they're quite preferential to an ideal environment. in spain, I couldn't really provide an ideal atmosphere though, so I was trying to teach them that they could grow in a dirty environment just the same.
+
+### 2019-04-18 2:34 - some more things about mushrooms
+
+so, I just want to say that for me, the mushroom takes a lot of my taboo concepts and begins (or things I'm uneasy about, or have unnecessary fear of) and brings them out right away so they can be reevaluated. seems we're off to a good start (and I only ate one!).
+
+I was only trying to relate that the concept in my mind about the voice previously was a masculine one, but I realised today it was more like a demanding little girl than a know-it-all dude. that transformation for me was important for some reason (now that the effects have mostly subsided, I can't really tell you the significance, but it felt significant).
+
+anyway, I worked a little more on the thing I was talking with mom about yesterday when I said that most people are audio / visual, talking about the difference between chris and me. well, I realised that it actually corresponds to the 2° and 6° layers, communication and imagination. I'm hyper observant, and if you pay attention when I'm talking, I'm always pointing out the transformation or the interaction, and almost never am trying to paint a picture with my words. for me it's all about the different interactions and how they all fit together.
+
+other people are more visual however, and I was noticing when I was talking about chris, that it seems like they have this structure of how things things work which is a series of visuals or images of maybe things in the past or things that were etched into their minds. these different images all together compose an idea and that idea is how something works. when things fit into that structure, they feel good, and when things don't, they feel bad.
+
+well, I seem to be an anomaly because I'm visual in the sense that I look at something visually and it makes me feel a certain way, but because I don't have a structure (of how I think it should be) to compare it against, I just feel how the thing feels.
+
+this capacity has proven to be very very useful to me because it allows me to feel everything I see and relate the concepts very easily. I don't have the capacity at this moment to turn something I feel into something visual, yet.
+
+anyway, mushrooms also work on this structural aspect of the brain by taking my structure[^1] based upon a bunch of images which I have derived an unreasonable conclusion from, and begins to kind of turn them inside out because I can't really determine what's what anymore. for most people, this probably feels like their reality is vaporising, and is probably the reason why people describe it as "ego-disillusion".
+
+I can imagine why some people who believe in their reality so strongly to be the way they imagine it to be, that would not want to take mushrooms because it may reveal their reality as something different, and they wouldn't be right about their own reality works.
+
+in a lot of ways the mushroom experience is a battle of right-ness, which is why I attributed the voice to be masculine, because it seems to be very right, even in convincing you of the validity of something that later makes you say, "wait, now I'm not so sure anymore."
+
+I'm kind of a living mushroom trip :)
+
+[1]: at the time I took them, the only real structure that I had which needed to be rearranged was my structure of how I believed women to be. I had been gaining more and more visual capacity the more I used my left hand, and raquel was sort of the peak of my visual capability. when our relationship began to fall apart, I noticed the visual capacity begin to recede and also the functionality of my left side. I thought it must have been reduced physical capability because of my sadness, but anyway...
 
 ### 2019-03-12 ??:?? - the power of doubt
 
