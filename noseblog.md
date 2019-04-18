@@ -5882,6 +5882,28 @@ I don't know if fighting something will work, cause it'll likely have the opposi
 
 wait, I just realised: maybe I'm using reverse psychology :)
 
+### 2019-04-17 - an interesting turn of events
+
+I was going to stay awake to see zack today. turns out plans changed: he was going to come over later, so I went to sleep for a bit. he never came. when I woke up, I had an interesting reaction where I was noticing that zack always gets what he wants, so his desire to smoke weed with me is a bit of a conundrum for him because of that. I reasoned that even now at this stage in the game, I will probably just wait on it myself (cause of my strong desire to get connected dispite my condihions), so I thought maybe he and jaron could do it -- afterall, jaron has a medical marijuana license now.
+
+so, I think what happened is that maybe there was effort to try and make this plan that zack has to smoke weed with me not come to fruition. I reason that a strong enough drug could maybe push me far enough over the edge to getting the next dimension. that may have been why plans got changed so mzny times today, dunno.
+
+anyway, earlier this morning for some reason I was thinking about growing mushroohms in jello with an added substrate such as rice or coffee. the reason for the jello is  so that the mushrooms can have water to consume, and they could survive transportation and have an easier time growing (cause they wouldn't need to be watered)
+
+so then jaron is telling me about the zach thing and I was sharing the idea that I think if weed can be made into a drink, it would be a whole lot more consumable in public, because drinks are tme ideal form of drug delivery, because they don't come up as fast as smoke, but is still within the 10-15 minute mark to begin feeling the effects.
+
+I keep feeling like I really want to go outside, and I look and noticed some dirt in a different place. I really want to go to look at the dirt. I get out there and I was quite surprised to find that mushrooms had pushed the dirt up and grown. I picked one and went back inside. I first noticed a familiar shape and smell to them. the shape looked like one of the "McKennai" ones that I had consumed when I was in spain.
+
+I decided to eat it to try it out and now 1.5 hrs later I seemed to have experienced a very very light trip. I noticed my vision improved slightly, and general feelings of euphoria mixed with random dissonant thoughts (typical mushroom style).
+
+---
+
+so this is pretty impressive. mushrooms grew in my backyard under the most adverse circumstances[^1], probably on a day where there was considerable pushing aginst. I'm really interested in these mushrooms though because they seem awfully resilient. they had enough power to push the dirt up that was on top of them, grow in a very dirty environment. their only food was wood chips (a common substrate), and besides the slight rain a week ago, they still grew with weedkiller sprayed on them yesterday.
+
+I'm impressed. it really feels like my life will begin to become more and more like a living dream, and this is only the beginning. cheers guys!
+
+[1]: if you've ever grown mushrooms, you'd know that they're quite preferential to an ideal environment. in spain, I couldn't really provide an ideal atmosphere though, so I was trying to teach them that they could grow in a dirty environment just the same.
+
 ### 2019-03-12 ??:?? - the power of doubt
 
 ### 2019-03-04 ??:?? - when feeling bad, I resort to logic. but, when feeling good, I evaluate it by how it feels
