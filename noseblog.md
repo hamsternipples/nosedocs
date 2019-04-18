@@ -5894,15 +5894,17 @@ so then jaron is telling me about the zach thing and I was sharing the idea that
 
 I keep feeling like I really want to go outside, and I look and noticed some dirt in a different place. I really want to go to look at the dirt. I get out there and I was quite surprised to find that mushrooms had pushed the dirt up and grown. I picked one and went back inside. I first noticed a familiar shape and smell to them. the shape looked like one of the "McKennai" ones that I had consumed when I was in spain.
 
-I decided to eat it to try it out and now 1.5 hrs later I seemed to have experienced a very very light trip. I noticed my vision improved slightly, and general feelings of euphoria mixed with random dissonant thoughts (typical mushroom style).
+I decided to eat it to try it out and now 1.5 hrs later I seemed to have experienced a very very light trip. I noticed my vision improved slightly, and general feelings of euphoria mixed with random dissonant thoughts (typical mushroom style)[^1].
 
 ---
 
-so this is pretty impressive. mushrooms grew in my backyard under the most adverse circumstances[^1], probably on a day where there was considerable pushing aginst. I'm really interested in these mushrooms though because they seem awfully resilient. they had enough power to push the dirt up that was on top of them, grow in a very dirty environment. their only food was wood chips (a common substrate), and besides the slight rain a week ago, they still grew with weedkiller sprayed on them yesterday.
+so this is pretty impressive. mushrooms grew in my backyard under the most adverse circumstances[^2], probably on a day where there was considerable pushing against. I'm really interested in these mushrooms though because they seem awfully resilient. they had enough power to push the dirt up that was on top of them, grow in a very dirty environment. their only food was wood chips (a common substrate), and besides the slight rain a week ago, they still grew with weedkiller sprayed on them yesterday.
 
 I'm impressed. it really feels like my life will begin to become more and more like a living dream, and this is only the beginning. cheers guys!
 
-[1]: if you've ever grown mushrooms, you'd know that they're quite preferential to an ideal environment. in spain, I couldn't really provide an ideal atmosphere though, so I was trying to teach them that they could grow in a dirty environment just the same.
+[1]: while writing this, I realised that I have found the mushroom's personality to be a lot like a hyper-aggressive/hyper-masculine little girl. she needs ideal conditions to grow up, and yammers in my ear endlessly about stuff I may or may not find interesting (usually thought provoking) mixed in with a chaos of other unrelated ideas. I've attributed the voice a masculine gender because of how it reasons things through, and can be quite overwhelming.
+
+[2]: if you've ever grown mushrooms, you'd know that they're quite preferential to an ideal environment. in spain, I couldn't really provide an ideal atmosphere though, so I was trying to teach them that they could grow in a dirty environment just the same.
 
 ### 2019-03-12 ??:?? - the power of doubt
 
