@@ -5890,9 +5890,9 @@ so, I think what happened is that maybe there was effort to try and make this pl
 
 anyway, earlier this morning for some reason I was thinking about growing mushrooms in jello with an added substrate such as rice or coffee. the reason for the jello is  so that the mushrooms can have water to consume, and they could survive transportation and have an easier time growing (cause they wouldn't need to be watered)
 
-so then jaron is telling me about the zach thing and I was sharing the idea that I think if weed can be made into a drink, it would be a whole lot more consumable in public, because drinks are tme ideal form of drug delivery, because they don't come up as fast as smoke, but is still within the 10-15 minute mark to begin feeling the effects.
+so then jaron is telling me about the zach thing and I was sharing the idea that I think if weed can be made into a drink, it would be a whole lot more consumable in public, because drinks are the ideal form of drug delivery, because they don't come up as fast as smoke, but is still within the 10-15 minute mark to begin feeling the effects.
 
-I keep feeling like I really want to go outside, and I look and noticed some dirt in a different place. I really want to go to look at the dirt. I get out there and I was quite surprised to find that mushrooms had pushed the dirt up and grown. I picked one and went back inside. I first noticed a familiar shape and smell to them. the shape looked like one of the "McKennai" ones that I had consumed when I was in spain.
+I keep feeling like I really want to go outside, and I look and noticed some dirt in a different place. I really want to go to look at the dirt. I get out there and I was quite surprised to find that mushrooms had pushed the dirt up and grown. I picked one and went back inside. I first noticed a familiar shape and smell to them. the shape looked like one of the "McKennai"[^3] ones that I had consumed when I was in spain.
 
 I decided to eat it to try it out and now 1.5 hrs later I seemed to have experienced a very very light trip. I noticed my vision improved slightly, and general feelings of euphoria mixed with random dissonant thoughts (typical mushroom style)[^1].
 
@@ -5904,7 +5904,11 @@ I'm impressed. it really feels like my life will begin to become more and more l
 
 [1]: while writing this, I realised that I have found the mushroom's personality to be a lot like a hyper-aggressive/hyper-masculine little girl. she needs ideal conditions to grow up, and yammers in my ear endlessly about stuff I may or may not find interesting (usually thought provoking) mixed in with a chaos of other unrelated ideas. I've attributed the voice a masculine gender because of how it reasons things through, and can be quite overwhelming.
 
-[2]: if you've ever grown mushrooms, you'd know that they're quite preferential to an ideal environment. in spain, I couldn't really provide an ideal atmosphere though, so I was trying to teach them that they could grow in a dirty environment just the same.
+[2]: if you've ever grown mushrooms, you'd know that they're quite preferential to an ideal environment. in spain, I couldn't really provide an ideal atmosphere though, so I was trying to teach[^4] them that they could grow in a dirty environment just the same.
+
+[3]: actually, I cannot remember exactly which one was the McKennai species, cause I kept getting them confused. I don't even know if that was the one, but when I saw it, I did recognise the shape and it reminded me of those ones. I could have the species(?) wrong.
+
+[4]: the funny think about teaching someone, and I've always said this that any time I want to teach something to someone else, I'm really teaching it to myself, and the other person is listening. so, it's funny how I set out to "teach" the mushroom that it did not need ideal environment to still be able to grow, yet it was actually me who would be finding the practicality of my own lesson in a few years to come.
 
 ### 2019-04-18 2:34 - some more things about mushrooms
 
@@ -5928,7 +5932,23 @@ in a lot of ways the mushroom experience is a battle of right-ness, which is why
 
 I'm kind of a living mushroom trip :)
 
-[1]: at the time I took them, the only real structure that I had which needed to be rearranged was my structure of how I believed women to be. I had been gaining more and more visual capacity the more I used my left hand, and raquel was sort of the peak of my visual capability. when our relationship began to fall apart, I noticed the visual capacity begin to recede and also the functionality of my left side. I thought it must have been reduced physical capability because of my sadness, but anyway...
+[1]: at the time I took them, the only real structure that I had which needed to be rearranged was my structure of how I believed women to be. I had been gaining more and more visual capacity the more I used my left hand, and raquel was sort of the peak of my visual capability. when our relationship began to fall apart, I noticed the visual capacity begin to recede and also the functionality of my left side. I thought it must have been reduced physical capability because of my sadness, but anyway... as I rearranged my structure of how I believed women to be, I began to realise that the women that I knew didn't really fit into this structure any more. this caused me to become asexual, and the rest is history.
+
+### 2019-04-18 21:35 - full moon mushroom meditation
+
+as I've been experimenting with the mushrooms, I do notice that my body is a whole lot more responsive, and my brain seems quite a bit clearer.. but, watching stars isn't really very fun. my mind wants to be active when I have mushrooms in my system, and stars are really good as a relaxant.
+
+anyway, I'm going to go out tonight to the full moon and take a pretty legendary dosage. I don't really think anything will happen. I'm actually sure of it. I might get a few visuals and vision upgrade or two, but nothing super substantial considering that has been happening nearly every night now without mushrooms.
+
+I'm pretty sure that my desire to do it myself is strong enough that the mushrooms respect it (we have a bit of an established relationship now), so it'll be pretty uneventful I'm sure[^1]. I'll likely get a bit of a new perspective though.
+
+I was really noticing while watching stars tonight how much I really enjoy being sober. even in difficult circumstances I've really began to feel pretty clearly things I cannot see, and have knowledge and even understanding of things I have not personally experienced. I've really come quite a distance and though I'm not fully connected like I want to be, I consider myself to be pretty connected, even though there is no visible evidence of it.
+
+I plan to just meditate into a good place then just kind of let my mind wander a bit. you can do the same thing too, if you want :)
+
+peace!
+
+[1]: I'm also convinced that nosebook has figured out how to neutralise the psilocybin in my stomach or something because there's no way I could eat as many as I did and barely feel anything (I'm feeling pretty sober right now).
 
 ### 2019-03-12 ??:?? - the power of doubt
 
