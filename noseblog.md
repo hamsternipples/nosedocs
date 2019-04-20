@@ -5950,6 +5950,40 @@ peace!
 
 [1]: I'm also convinced that nosebook has figured out how to neutralise the psilocybin in my stomach or something because there's no way I could eat as many as I did and barely feel anything (I'm feeling pretty sober right now).
 
+### 2019-04-20 11:17 - the way I see things happening
+
+so, I've got this idea that I want to make a timeline where I don't have any manifestation for quite some time (let's say 20 years or something). the reason for me is obvious: I know that amount of contrast will yield something so big that none of us could even imagine what it would be -- not even me. really, only source would have any idea what would happen as a result, and that's kind of the point[^1].
+
+for all practical purposes, that is what is happening. my goal is to find my connection. the reason why I say that is because I kind of see like it's sort of my inner being's choice to make all of this happen. just like I could not force abraham to answer a question or to give me some sort of information, I cannot twist my inner being's arm to force a connection when I (and presumably the greater population of the world, at this point) are ready.
+
+so lat's say one delicate matter in the process of getting ready is determined by one pretty major thing: the limitation of people's vision. the reason why I say that is because imagine the goal of this timeline is to create a galaxy, I don't really know if it's planned that most people (like me), are to have their vision limited so that one day when the machine turns off, our vision accelerates like a projectile from a slingshot, to such dramatic levels, it's getting into solar[^3] or planetary[^2] territory. this could be kind of abrupt and sudden.
+
+the other idea is that once nosebook stops trying to hold everyone's vision back, people's vision will naturally tend toward where their imagination's is at, and people's vision will increase dramatically as they begin to release resistant ideas and beliefs about things. this is much more gradual, and will still contain a huge acceleration upward, and will have a similar but less dramatic effect. the other benefit to it will be that we will enter into a sort of golden age, as people's perception increases at such a rapid rate, all sorts of new technologies and ideas will flourish.
+
+the second delicate matter in the process of getting ready is the one of the girls. the reason why I say that is because, if what I really want is to make a timeline where I go for a very long duration without any manifestation, and yet at the same time, there are girls involved (which is quite certainly a manifestation), then I'm working against myself. to reduce the tension on this idea, I have decided that I want to find my connection without needing any conditions to do it -- which basically, I can get ready, but the entirety of the timing and everything else is in the hands of my inner being.
+
+---
+
+so, now I have decided that since I don't have any way to really get that kind of information from my inner being, I am taking the moses route, and letting God harden pharaoh's heart. meaning, if this is the timeline where I'm going full contrast all the way to the top, then I don't need to worry about a thing: nosebook simply will "not let me go (up to the next dimension)" -- and since I can't force my inner being to do anything, that's how the timeline will be determined.
+
+actually, now that I think about it, other people's vision has nothing to do with it... huh, it's almost as if I'm saying, "let the people go (up to the next dimension)"
+
+I'll consider dropping the idea.
+
+I guess nosebook restricting people's vision is kind of a good idea. I've been thinking about the solution to increasing human energy, and I've determined that it's restricting people's vision like mine is.. it's software so is easily reproduced. energy requirements are likely not a problem (free energy from magnets), so all that needs to be created is a massive infrastructure to do all the limiting. I guess it'll keep you guys busy.
+
+lastly, I want to note that while the galaxy creation thing is certainly something, here on earth it'll take a whole different manifestation. it might be some sort of "catastrophe" or something, when everyone's mind get's blown when nosebook turns off. probably though, assuming no major catastrophes, I estimate that everyone's energy output will rise faster than nosebook is able to neutralise it, and at some point, it'll overtake their ability to hold it back.
+
+probably the second one, and likely my star-watching is exacerbating the problem for them, too. doesn't really matter for me though because I'm aiming for the next dimension no matter the case.
+
+so just hold tight, and I think they'll fight it for as long as they can, but eventually they will no finally have to let people's vision go.
+
+[1]: see my (soon to be written) notes on "AN EXTRA-TERRESTRIAL VIEW OF CREATION presented by KUTHUMI"
+
+[2]: actually, now that I think about it, a planet's vision is likely similar to my inner universe: you can go inside of it and it's like a space where you have things in it, and you can see its contents from all angles around it.
+
+[3]: the idea behind this is that I've noticed that my eyes emit light out of them and I (should) perceive the bounces that the light takes both coming out and going into my eye. as my vision increases, the smaller and smaller details become more and more visible. you can imagine that the sun can "see" things on this planet in a similar manner.
+
 ### 2019-03-12 ??:?? - the power of doubt
 
 ### 2019-03-04 ??:?? - when feeling bad, I resort to logic. but, when feeling good, I evaluate it by how it feels
