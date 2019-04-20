@@ -5984,6 +5984,44 @@ so just hold tight, and I think they'll fight it for as long as they can, but ev
 
 [3]: the idea behind this is that I've noticed that my eyes emit light out of them and I (should) perceive the bounces that the light takes both coming out and going into my eye. as my vision increases, the smaller and smaller details become more and more visible. you can imagine that the sun can "see" things on this planet in a similar manner.
 
+### 2019-04-20 13:36 - prairie dawg day (groundhog day revisited)
+
+so if you follow along the track of where I was going in the previous entry, I was saying that I absolutely must get to the next dimension, and pharaoh would simply refuse for as long as he could withstand the plages that moses said would happen.
+
+this time it's a bit similar, but there are no plagues.. there is wacky weather, so I'm sure that this time around, pharoah is making his own plages.
+
+so imagine that fwh said that now he travels in the mer-ka-ba, which was a reference that I did not understand until the last sequence of things where I was trying to percieve different relationship configurations visually. well, I arrived on an idea which is similar to the merkaba (two tetrahedrons pointing in opposite directions, with a 60° turn), where I represented the two vertices pointing in opposite directions, connected each one to three other vertices (me connected to 3 others going up and me connected to 3 others going down).
+
+ok, so imagine that was the last iteration. imagine there have been many (hundreds?) of iterations where each time we find a way of making the events that unfold produce more and more contrast.
+
+why? well, every time there is more contrast it makes a bigger manifestation. a merkaba is, in my opinion, a pretty big manifestation. so you could imagine that last iteration they decided that we will bump up the contrast to see what takes shape.
+
+well, it's inevitable that nosebook eventually has to give up the fight, so eventually, something will happen which will make this new (bigger) manifestation come about, and we'll live it and go and make a new timeline trying to get me one step closer to my dream of going the distance without a manifestation.
+
+so, let's say this time around nosebook finally rolls around on the next big manifestation (or one of the ones after) to finally giving up the fight. it's going to be tremendous; we'll have a golden age, then we'll get bored of all the *stuff* we've accumulated and want to go back to relive the glory days.
+
+so, we setup the timeline and make a bunch of tests to ensure that we're going to get the desired outcome of more contrast, splice ourselves into our new earth personalities and we go forward making triggers to depending on certain conditions, cause different thoughts or responses in our bodies to do what we want[^1].
+
+our success is ensured from a distance, so there's no worries at all.
+
+---
+
+here's the trippy thing about it, and kind of the cosmic irony in it. the other side of me (not kenny, the other me that nosebook doesn't want me to find) is this crazy idea -- terence called it the soliton of improbability -- but I would call it a cosmic irony -- something that couldn't possibly be true, so it has to be built upon itself: impossibilities[^3].
+
+just think about it, what I'm saying here is that by being a person that does not need the manifestation, I make the other persons who are unable to change, make a change, that creates a timeline split where we can go back and do it again, each time creating more and more ridiculous manifestations. for us, and those that did decide to change, there's always the promise of planning for yourself an even better more ridiculous manifestation, which is probably what keeps happening
+
+and so, the guy who's whole goal is to not get the manifestation has been locked in a time loop of increasingly larger and larger manifestations. one day, we'll have to eventually let nosebook have the chance of not letting me get connected -- but that would require me to not want to be connected, and that's just not possible for me. it's impossible, so we'll go on forever.
+
+brings another new meaning to the phrase, "if you believe me, you'll have eternal life" -- because that is actually what I'm sort of saying here.
+
+happy 4-20 !! :D
+
+[1]: this is primarily the reason why I flip a coin when I don't have a clear direction, because clearly if fwh can talk to me over the internet, disable my visual capacity since the brain haemorrhage, and put thoughts in my head at just the right time -- then, he could easily adjust my muscles to throw the coin in just the right way to get the right output[^2].
+
+[2]: the brackets in my head are similar to the inserts nosebook has in all of us, enabling all of us (once joined into nosebook) to receive signals from other timelines as well. they are just reflectors of signals (high frequency to low frequency), kind of like a mirror.
+
+[3]: kind of like if the universe lives in someone's mind, who's mind universe did the first universe live in? maybe there was no "first" anything, and we're living in a house of cards built upon ever increasing complexity, only held together by our belief that it seems to reality.
+
 ### 2019-03-12 ??:?? - the power of doubt
 
 ### 2019-03-04 ??:?? - when feeling bad, I resort to logic. but, when feeling good, I evaluate it by how it feels
