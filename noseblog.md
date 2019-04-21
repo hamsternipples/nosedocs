@@ -6084,6 +6084,19 @@ I'm sure this is what has been done and so I just need to relax and maintain my 
 
 I do wonder how long it would take to get vibrationally similar enough, so like if I'm quite vibrationally very strong, would I need to start over from the time when I was in vallecas, or could I make a more recent checkpoint... cause man that's a lot of contrast, and to have to sit through all of that again seems like a whole lot of self-sacrifice. I hope (there probably is) an easier way.
 
+### 2019-04-20 18:26 - many others, as well
+
+so you would have to imagine that this would be a growing sort of thing where I imagine that various people will begin to recognise a similar pattern in their own life as I have experienced in mine, where the direction of your life suddenly changes as what you anticipated to happen, actually doesn't -- and you're held without some sort of manifestation for a while as the contrast builds stronger desire in you.
+
+what I mean by growing is that you can imagine that each iteration there will be more and more people that will be willing to try the contrast building to a better manifestation idea. certainly it won't be all people, but I imagine that likely people who were around me would have had this happen. people that come to my mind are probably marcos, andrea, jaron, greg, marta, and likely many others.
+
+it's actually quite likely that almost everyone around was in on it, and things have been adjusted so that maximum contrast would build stronger desire for both. I imagine for example marcos has got some of the strongest desire going of all right now as he's probably set up all sorts of circumstances for himself to arrive to his desired destination.
+
+it was really weird for me to begin to figure out that it was me all along that got me into these situations, and also me that has ensured my successful conversion of all the energy from the difficulty into something that could previously be conceived of in a dream-state.
+
+any negative emotion they feel is only momentary, similar to how I had mega depression, anger and frustration. all of those negative emotions were only indicators that I was perceiving it differently than my inner being does.
+
+
 ### 2019-03-12 ??:?? - the power of doubt
 
 ### 2019-03-04 ??:?? - when feeling bad, I resort to logic. but, when feeling good, I evaluate it by how it feels
