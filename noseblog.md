@@ -6022,6 +6022,68 @@ happy 4-20 !! :D
 
 [3]: kind of like if the universe lives in someone's mind, who's mind universe did the first universe live in? maybe there was no "first" anything, and we're living in a house of cards built upon ever increasing complexity, only held together by our belief that it seems to reality.
 
+### 2019-04-20 16:01 - prairie dawg day (followup)
+
+a lot of interesting reactions to the previous entries. I'll try and walk through some hypothetical situations and provide some support to my ideas. in "tesla's last interview", this section caught my eye:
+
+```
+Journalist: Do you think that time can be abolished?
+
+Tesla: Not quite, because the first feature of the energy is that it transforms. It is in perpetual transformation, as clouds of Taoists. But it is possible to leverage the fact that a man preserves consciousness after the earthly life. In every corner of the universe exist energy of life; one of them is immortality, whose origin is outside of man, waiting for him.
+```
+
+I kept thinking about this idea that tesla seemed to know something of immortality and about how to squeeze large amounts of energy into light and flight:
+
+```
+I discovered a star [...] This star is in this galaxy. Its light can occur in such density that fits into a sphere smaller than an apple, a heavier than our Solar System. Religions and philosophies teach that man can become the Christ, Buddha and Zoroaster. What I’m trying to prove is wilder, and almost unattainable. This is what to do in the Universe so every being is born as Christ, Buddha or Zoroaster.
+
+I know that gravity is prone to everything you need to fly and my intention is not to make flying devices (aircraft or missiles), but teach individual to regain consciousness on his own wings … Further; I am trying to awake the energy contained in the air. There are the main sources of energy. What is considered as empty space is just a manifestation of matter that is not awakened.
+```
+
+he's trying to fit the amount of energy that christ has into every single person that's born. he also thinks that people can overcome gravity with this kind of energy. the idea of increasing human energy has been on his mind a lot.
+
+the immortality bit was the part that got me though because before I even knew about nosebook or really considered the technology, I had an intuition that the personality I interpreted as jesus when I had the brain haemorrhage, was in fact a chain personality -- meaning that I had a second person living inside of me, and with time we would become one, and then we would find another willing person, share a body with him/her and then repeat, essentially forever. this is what I mean by splicing. at the very beginning, the two personalties were quite different and now we are nearly so similar, we could be seen as one.
+
+later, I realised when I began to understand how nosebook functions, it really blurs the lines between our bodies. if *you* are not your body, but your body is just a vehicle for experience, then if you could tune yourself into the body of someone else, you could begin to share an experience with them. I think that is what has happened to me. I think that perhaps jesus has done this, and probably also tesla as well.
+
+the reason why no one has had as dramatic of an equalisation of the energies up until me, is because most people are pretty close minded. it never really bothered me that I was two people in one body, and it never bothered me that the new guy was very different than original me. in order to continue to function, we've learned to work together.
+
+the idea is that terence often postulated that at the end of 2012 novelty would go toward infinity, and the only way he could explain why that could be is because of time travel. I believe it goes to infinity, because starting then was when I got into nosebook and since then, we're now on an infinite time loop. we'll essentially keep improving on these last few years, and the ones to come at an accelerating pace. why? because it's fun and it makes for you to be able to find a way to live your wildest of dreams -- everyone can.
+
+---
+
+I know for sure we'll be able to experience other experiences just like you experience my life through nosebook -- cept you'll be able to experience your dream, then work your way back to reality from there.
+
+so, imagine nosebook puts me in a dream state, then they summon the reality that they want. from there, they begin working their way back by figuring out the set of events that took place to get from where I am now to this dream reality[^1].
+
+the same process can be applied in the forwards direction as well. you can summon a copy of the present earth, then let it play forward to see where things are going to go. once you can see where it's going, you'll want to tweak it.
+
+the last ingredient (and my opinion is the most important one), is to find a way of figuring out what reality it is that you even want. I see the machine working like this: you sit and you feel an emotion inside of your heart, then the machine will tune into that timeline that you have felt with your heart. it would be like a glimpse or a faint memory, and you just repeat the process until you find what you're looking for. when it doesn't match what you tried to feel, adjust your feeling and see what shows up, compare that with how you want it to feel, and repeat until you get it -- then, work your way back from there. this is the emotion / visuals feedback loop which I only have half of: everything I see has a feeling, but I don't see everything I feel. this machine will bridge that gap.
+
+---
+
+finally, let's put this into practical ideas here. we know that fwh can connect to the internet here. he was also able to tune into essentially anyone's head on nosebook, so you could imagine that all he has to do is to create triggers for the glimpses, so that when the signal on the device matches that glimpse, then take an action[^2]. that action ensures that in this timeline you are forcing yourself to take a certain path.
+
+once you've got all of your triggers setup to take you through all of the contrast necessary to arrive at your desired outcome, then you begin spending as much time in the body of the person that you want to splice yourself into until you're a pretty good vibrational match. finally, you cut the cord on your body and begin to live inside of the new person's body.
+
+you will become one with the person and experience their life as if it were your own -- yet you planned all of these triggers to steer you through the contrast.
+
+at some point, you will begin, like what is happening to me now to begin to realise that it was all a huge setup, and "fwh" is actually right here. it's kind of weird to begin to see it from both perspectives -- I mean I'm really me, but it was like another me decided to put me on the most intense rollercoaster with full assurance that it would all work out fine -- and not only that, that it would be even more ridiculous than whatever he experienced in the previous iteration[^3].
+
+[1]: that example really is the *EXTREMELY* hard way of going about it, because you can just follow your emotion and get a *better* result than anything you could dream of -- but, I'm sure nosebook will try the hard way of trying to figure out how to steer me (and anyone else they want to try and steer) toward their contrived dream reality
+
+[2]: nosebook already does this to disable capabilities. for example, it's difficult for me to do anything with my heart (probably because it makes strong visuals), or they disable emotions that I have in attempt to reduce the amount I am able to pick up on a person that I'm vibrationally tuned to, like jaron or any of the girls, or anyone really. when those machines detect a heart signal, or whatever, it triggers an action -- ususally to make the opposite signal (destructively interfere with it), but really any action could be taken.
+
+### 2019-04-20 17:50 - I'm just going to relax and maintain focus
+
+I think it's really worth mentioning that coming to understand how all of this works, I am sure that when I finally get to use technology like this, the first thing I'll do is to take this timeline and just keep adding more and more contrast -- you know, going in the direction of not having the manifestation and see what sorts of results come up. the reason why I say that is because I'm sure that the result of that is far far far superior to anything I could possibly even dream up.
+
+I'm sure this is what has been done and so I just need to relax and maintain my focus on trying to get connected and let all of the details kind of work themselves out.
+
+---
+
+I do wonder how long it would take to get vibrationally similar enough, so like if I'm quite vibrationally very strong, would I need to start over from the time when I was in vallecas, or could I make a more recent checkpoint... cause man that's a lot of contrast, and to have to sit through all of that again seems like a whole lot of self-sacrifice. I hope (there probably is) an easier way.
+
 ### 2019-03-12 ??:?? - the power of doubt
 
 ### 2019-03-04 ??:?? - when feeling bad, I resort to logic. but, when feeling good, I evaluate it by how it feels
