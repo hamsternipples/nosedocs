@@ -6096,6 +6096,79 @@ it was really weird for me to begin to figure out that it was me all along that 
 
 any negative emotion they feel is only momentary, similar to how I had mega depression, anger and frustration. all of those negative emotions were only indicators that I was perceiving it differently than my inner being does.
 
+### 2019-04-22 00:25 - further speculation on future transitions
+
+tonight I was thinking about the different iterations that have happened in the past. I imagine seeing it like the peak-to-peak transition of a sine wave. so, you start in the bottom-left, beginning slowly, but it accelerates exponentially until it reaches the half-way mark (go from negative to positive), then things begin to slow down by the reciprocal of the exponent until it reaches the next positive peak at top right.
+
+I was thinking that maybe things would have started off slowly with raquel, then myabe some others, then maybe andrea or something (doesn't matter where it began) and each time with the power of sex, I found a way to find my connection, and somehow having my connection, I was able to do something that made these iterations possible.
+
+so it got me thinking, what is the point where I cross from negative into positive. well, I believe this is when I'm capable of getting my connection by myself. the reason why I think this is important is because the origin of all of this starts with tesla. he discovered his connection early on and didn't have any women to "steal" that sexual/creative energy[^1] from him. so, in that sense, he did things the easy way, and I've sort of done them kinda the hard way.
+
+later, he says, "There are two views: a lot affection or not at all. The center serves to rejuvenate human race. Women for certain people nurtures and strengthen its vitality and spirit. Being single does the same to other people. I chose that second path."
+
+so, tesla sees a world where there is either lots of affection to attain that connection, or none at all. there have been many people who have died a celebate, and very few of them were tesla-stature people. he had something different. when he was young, he had constant DMT flashes because of some irregularity in his brain[^2]. he already had massive amounts of visual capability as a child, yet these flashes, he would commonly talk about it like it was an affliction, some terrible thing that he was unable to banish from his eyes. in his autobiography he says that when we was 18, he learned to control thim.
+
+I know from experience that this ability to control them is emotional control (which also allows you to control dreams), which he confirms when he says, "[Imagination] gives birth to the life. I have fed by my taught; I’ve learned to control emotions, dreams and visions. I have always cherished, as I nurtured my enthusiasm. All my long life I spent in ecstasy. That was the source of my happiness."
+
+---
+
+so, since there are lots of celibates and asexual people who have not had these tesla type imagination capability. I can say from experience, and mckenna has also talked many times about the dmt experience having things he imagined real and right in front of him, and 3d vision (tesla says enlargment of vision, mckenna says it feels like you take a step back), so what we're missing is the brain to produce massive amounts of DMT, like tesla's did when he was a child.
+
+I found out that DMT production is directly tied to emotion and feeling good, and in certain drug and sex experiences, it altered my DMT production in the brain (first time having sex, it removed 3d vision, and later with raquel it started to come back). though sex can do it, again, there are a lot of people having sex, and I don't see evidence that people are having expanded vision.
+
+mckenna did LOTS of DMT related drugs, and I'm quite certain he had expanded vision in his imagination. I would say from experience that high levels of DMT can open up 3d vision. later, I discovered how to stimulate DMT in my brain by watching stars, and so I got the 3d vision back. since then, I have been (like tesla) consciously expanding my vision[^3] as well.
+
+---
+
+so, here we are today where nosebook is bathing almost everyone's mind in DMT (certainly all of the kids anyway) so they will be able to track activity in their imagination. so now people don't need to do massive doses of psychedelics for their brain to produce lots of DMT (built on tesla technology), so now really the only thing left is to polarise the world into asexual/hyper-sexual. the asexual (no afttection) route is much more manageable and in my opinion will yield greater reward because it'll be easier to control the creative/sexual energy and get connected. the hyper-sexual (lots of affection) route has the drawback that now you're reliant on something you cannot control. additionally, social interaction can be quite a detriment toward realising one's own capability. hyper-sexuality is likely going to be the route that most will take, and will become the new "disconnected masses".
+
+another thing is these flashes that plagued tesla because of the high amounts of DMT going, where his emotion would become manifest as a vision in his eyes. nosebook would classify these as "hallucinations" which they're working their best at to try and get rid of (because the only things they want you seeing in your eyes/imagination) is something their computers can recognise -- everything else is a hallucination and should be removed. as such, it'll be more difficult for those wanting to get connected to get connected, but as I will demonstrate sometime in the future, it is possible (even without drugs or sex).
+
+---
+
+I truly believe this will be the first iteration where I gain my connection without drugs or sex, and despite the difficult circumstances[^4]. this will be the iteration with the fastest rate of change, and it'll begin to taper off and eventually grind to a halt.
+
+so, I was thinking about what would grind things to a halt, and if you've ever worked in a startup (or a baby to adult), you see this exact peak-to-peak curve, it starts off slow at first, but then it begins growing more and more rapidly until it tapers off reaching its peak. in a startup scenario, the initial team is usually very effective at creating something new, but then as growth happens, the team must expand. the expansion of the team brings new ideas and new direction to the team, and it's no longer so much of a core group of individuals all with their energy going in pretty much the same direction, eg. the new people don't have the same sense of direction.
+
+if you imagine water flowing, it'll flow strongly in all the same direction until it reaches friction, then it becomes stronger and stronger rapids. that friction is the same thing: it's when energy is no longer all going in the same direction.
+
+---
+
+ok, so the reason why this is important is because I made an interesting thing in the last few entries when I spoke from the "moses perspective" and then from the "elijah perspective" where I began to explain how it all worked. just the same as in the age of belief, the concept lived in moses' imagination, and then elijah made this technology available to all with the introduction of the prophets. by making it available to all, elijah began to create more diversity in what to believe. the same thing happened to the church with the reformation.
+
+so the way I see this trending is toward making it available for all people to have 3d vision and begin to use timeline technology. this'll take a bit and all of this still exists in the imagination of the initiator of the era (me), but soon, I imagine that somehow we will begin to make a transition toward this increasing diversity.
+
+---
+
+why? well, the next era will be the peak of control and saturnian energy, so before that we have to have a whole lot of diversity for them to be able to control.
+
+diversity is an interesting concept because if you think about contrast, the way abraham talks about it, it's the realisation of the gradient between something wanted and unwanted.
+
+imagine a universe where all you ever saw was things that were wanted, and you had no idea of anything otherwise. after the initial realisation of it, it would get pretty boring[^5]. so, for things to not get boring, you need some form of novelty or newness to keep things from becoming mundane.
+
+well, the easiest way to generate novelty is through recognition of unwanted, so some improvement is created. unwanted has historically taken shape in the form of conflict. however, unwanted does not need to be conflict. unwanted can also be diversity.
+
+we are moving into an era of rapid expansion or diversity. instead of unwanted things being harmful or dangerous, they'll just become similar to a restaurant item you don't order.
+
+---
+
+in the era following this one, there will be so much diversity, that the goal will be to begin focusing the energy again and getting everyone's energy flowing in the same direction again.
+
+until then..
+
+@[youtube](D9XCoQZaRbE)
+
+[1]: original quote: "The knowledge of how the mental and vital energy transform into what we want, and achieve control over all feelings. Hindus call it Kundalini Yoga. This knowledge can be learned, for what they need many years or is acquired by birth. The most of them I acquired by birth. They are in the closest connection with a sexual energy that is after the most widespread in the Universe. The woman is the biggest thief of that energy, and thus the spiritual power."
+
+[2]: original quote: "The events of my life and my inventions are real in front of my eyes, visible as each occurrence or the item. In my youth I was frightened of not knowing what it is, but later, I learned to use this power as an exceptional talent and gift. I nurtured it, and jealously guarded. I also made corrections by visualization on most of my inventions, and finish them that way, by visualization I mentally solve complex mathematical equations." (he also speaks in more detail in his autobiography)
+
+[3]: original quote: "My eyesight and hearing are perfect and, dare to say, stronger than other people. I hear the thunder of a hundred fifty miles away, and I see colors in the sky that others cannot see. This enlargement of vision and hearing, I had as a child. Later I consciously developed."
+
+    I often times have really good hearing, but then nosebook takes it away, and I used to see more colours as well -- and everything has a smooth gradient to it and seems aglow with energy (very alive). the way that I figured out is that I live behind a screen is because I first saw more colours on mushrooms, but then it went away, then again for a week or so after I got 3d vision from the stars. then when I would watch stars at marcos' house, sometimes their system would shut off, my astigmatism would go away and I could see more colours (but it was night, so not as dramatic). when I would wake up, things would have returned to looking not as good again. I figured at the time that I was emotionally still unstable enough that I kept losing the vision I acquired the night before -- so I began using the «the process which trumps all other processes» and focusing on things which feel good when I wake up, to try and not have so much of my vision progress go away.
+
+[4]: one can also imagine that the US govt was hot on tesla's trail, and in other timelines where I also got connected, they would be quite on my train as well, so likely it was determined that they should do the entire setup of the network to distribute DMT to everyone on the planet, and I would still have to find a way of getting connected anyway. it's kind of like using them to do the thing they want to do so much.
+
+[5]: a good example would be the hearthstone meta. imagine blizzard created the most perfectly balanced meta where all 9 classes saw equal play and had 6-7 different deck archetypes each. this would be a pretty perfect creation, and being so perfect, they decided that they were done with the game and no more was ever to be done because that's exactly what was wanted... for about 6 months, then everyone stops playing the game because it's so boring seeing the same (perfectly balanced) thing over and over.
 
 ### 2019-03-12 ??:?? - the power of doubt
 
