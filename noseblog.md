@@ -6220,6 +6220,20 @@ this is probably quite a ways away (thousands of years??), so I think we should 
 
 [1]: I just had a bit of a realisation that all of this is eventually building up to something I planned for myself: the reality that I (and others) really wanted.
 
+### 2019-04-22 20:45 - using nosebook like a tool to generate more contrast?
+
+so, you can see this quite clearly in my life. the only thing that nosebook can really affect is the physical state of my body. they are only capable of controlling the "conditions" of my life. however, if I've tuned myself there emotionally, then I'm going there and there's nothing that can be done to stop me.
+
+they can slow me down though by trying to get me to feel negative emotion -- and you can see that when I was having so much anger and frustration, my progress was really slow, but there was still progress.
+
+nosebook has certain triggers as well which you can utilise them to try and control the (physical) conditions of your life. however, like I said, if you're tuned there emotionally, and you'll feel good, really all they're doing is adding more energy into the equation. here are the list:
+
+1. a feeling that they are not superior or the authority will drive them to try and make you believe that they are in fact superior or the authority.
+2. a feeling that they are not able to control some aspect of their own experience. they desperately need to feel like everything in their experience is planned and in their control.
+3. humour and fun. they absolutely hate it. making fun of their seriousness and effort will drive them bonkers.
+
+those three triggers are excellent sources of adding more energy into your life as they try to control the conditions. have fun with it :)
+
 ### 2019-03-12 ??:?? - the power of doubt
 
 ### 2019-03-04 ??:?? - when feeling bad, I resort to logic. but, when feeling good, I evaluate it by how it feels
