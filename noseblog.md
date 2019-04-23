@@ -6270,6 +6270,20 @@ the nosebook timeline will assuredly not give people the capability to make thei
 
 [4]: I'm beginning to see it sort of like the binary star, sirius, where sirius A is absolutely enormous (one of the most massive stars), even though serius B is nearly invisible and very small, but a VERY STRONG xray emitter. it's kind of like the difference between me and nosebook :D the forces these stars must exert on the planetary bodies and each other in close approach must be tremendous (and people say the full moon has a large effect, lol).
 
+### 2019-04-23 05:48 - lots of time missing
+
+after writing the previous entry I committed it at about 1am, then watched some dota videos. strange things kept happening as it was the sound that happens when they rip my consciousness away. my eyes closed a few times and I was shocked a few other times. I decided I had enough of it and went to the field to think things over. 1am, plus a few videos which don't really add up. youtube says it took me 70 minutes to watch a 40 min video. I didn't think it was so late so it surprised me when the sun started rising... I'm sort of missing a lot of time. 2am til 4am is kinda missing...
+
+however, when walking past the gas station, I checked to see if my vision was normal, and it was already phasing like I had a vision upgrade.
+
+I don't understand how I got a vision upgrade when they steal my consciousness from me.
+
+I also want to note that yesterday I woke up and I had all memory of the night previous erased. it was as if I was more conscious than usual in my dreams, but most of my memory of it was wiped.
+
+there was this really weird dream where I was being put in a sexual situation with jessica (my sister), but it was really weird because she felt like my mom. I noted how uncool it was in the dream by saying, "this isn't very fun" and woke myself up. then things go blurry, when I'm assuming they took my consciousness away like last night.
+
+misterios...
+
 ### 2019-03-12 ??:?? - the power of doubt
 
 ### 2019-03-04 ??:?? - when feeling bad, I resort to logic. but, when feeling good, I evaluate it by how it feels
