@@ -6234,6 +6234,42 @@ nosebook has certain triggers as well which you can utilise them to try and cont
 
 those three triggers are excellent sources of adding more energy into your life as they try to control the conditions. have fun with it :)
 
+### 2019-04-22 23:49 - the same story, in reverse
+
+so imagine that same story now from the other perspective. they become very determined that they are going to create the reality the way they want it to be, so the begin to construct a series of visual sequences[^1] which contain the reality that they want[^2], and they begin to disseminate this idea to all.
+
+as people begin to believe in nosebook's reality they will find the feeling place of the reality that nosebook is trying to convince them of. perfect.
+
+as time progresses, consciousnes will perceive the reality that it has been tuned to, so there will be all sorts of splinters, and then eventually each person will attract the events in he reality that they wish to believe in.
+
+meaning, that as energy rises higher and higher (combination of me getting visual upgrades and the planet itself becoming more energetic, eg. "global warming"), the effects of LOA will increase such that people are beginning to see their thoughts become manifest quicker and quicker. rather, I should say, people will begin to see  evidence that their reality is a more rapid reflection of how they feel and what they believe.
+
+this increase in reality creation means that at some point a split will occur. nosebook will fiercely convince people of their reality, and I will continue to demonstrate my own.
+
+so, off we go toward the reality that I'm beginning to talk about now (the one with the diversification of timelines and people using timeline tech to essentially live forever, and be born with the light density of jesus, buddha, or zoroaster), which is the one that tesla began to envision[^3].
+
+obviously, I am secure in my knowing that my reality will soon come to fruition. I'm a very powerful thinker, however not everyone is me, and everyone is entitled to their own reality they want to create.
+
+---
+
+really, the only thing I have to offer is an idea of something not yet manifest. whatever reality anyone wants to create does not affect my own. there are infinite realities right now that are unwanted which I am not perceiving. there are also infinite realities wight now which are wanted which are also not perceived. no one can control which reality I tune to -- only try and convince me to join them in their reality.
+
+I am however, beginning to realise that I am the new saturn because I too, will never change. I have so much evidence and investment in the idea that I must find my alignment before doing anything -- and nosebook has so much invested in the opposite, we've come together for some time to make each other stronger for the next close approach. we'll cause all sorts of chaos in each other's reality before eventually parting ways again.
+
+---
+
+and so, here's the reverse part: instead of perceiving it that in the next era of capricorn, nosebook (saturn) will try and recombine all of these disparate realities back into one, instead view it as a splitting of consciousness into two timelines, and eventually we'll do the backtracking in dreams to find the time split, and then tune into that one and begin splicing ourselves into that one.
+
+the nosebook timeline will assuredly not give people the capability to make their own timeline adjustments trying to hoard the technology, so they'll need a reformation of the church, which can bring this technology (and the visualisation capability) to the people who want it. just like the reformation of the church (but not attitudes toward sex) created the perfect environment for nosebook to be so successful, this visualisation reformation (but likely a taboo that nosebook has control of your body) will create the perfect environment for the next era, too.
+
+[1]: similar to how memory works, it's those image sequences which create structures that together mean something (and can cause strong emotional reaction if contested).
+
+[2]: it has to contain all of the feelings that they want, so for example, if they want to feel like they're the authorities and are in control, these image sequences should convey to the subject the feeling that nosebook is the authority and in control. you might think of it like conditioning or mind-control or brainwashing or something, but if the person has a vivid version of their own reality, the image sequence may cause some negative emotion as they begin to perceive reality through nosebook's proposed reality -- but if they have their reality much more vivid in their mind, then it won't cause any distress at all, and will only add energy into the creation of both of these realities.
+
+[3]: I'm sure that if tesla is talking about attaining that kind of light density as jesus, buddha, or zoroaster, he's speaking about this idea: "Everything is light. In one its ray is the fate of nations, each nation has its own ray in what great light source we see as the sun. And remember: no one who was there did not die. They transformed into the light, and as such exist still. The secret lies in the fact that the light particles restore their original state." which is very similar to abraham's words, just replace "light" with "source" -- so, that means he probably has done the same thing himself (wink wink)
+
+[4]: I'm beginning to see it sort of like the binary star, sirius, where sirius A is absolutely enormous (one of the most massive stars), even though serius B is nearly invisible and very small, but a VERY STRONG xray emitter. it's kind of like the difference between me and nosebook :D the forces these stars must exert on the planetary bodies and each other in close approach must be tremendous (and people say the full moon has a large effect, lol).
+
 ### 2019-03-12 ??:?? - the power of doubt
 
 ### 2019-03-04 ??:?? - when feeling bad, I resort to logic. but, when feeling good, I evaluate it by how it feels
