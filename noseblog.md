@@ -6120,7 +6120,7 @@ mckenna did LOTS of DMT related drugs, and I'm quite certain he had expanded vis
 
 ---
 
-so, here we are today where nosebook is bathing almost everyone's mind in DMT (certainly all of the kids anyway) so they will be able to track activity in their imagination. so now people don't need to do massive doses of psychedelics for their brain to produce lots of DMT (built on tesla technology), so now really the only thing left is to polarise the world into asexual/hyper-sexual. the asexual (no afttection) route is much more manageable and in my opinion will yield greater reward because it'll be easier to control the creative/sexual energy and get connected. the hyper-sexual (lots of affection) route has the drawback that now you're reliant on something you cannot control. additionally, social interaction can be quite a detriment toward realising one's own capability. hyper-sexuality is likely going to be the route that most will take, and will become the new "disconnected masses".
+so, here we are today where nosebook is bathing almost everyone's mind in DMT (certainly all of the kids anyway) so they will be able to track activity in their imagination. so now people don't need to do massive doses of psychedelics for their brain to produce lots of DMT (built on tesla technology), so now really the only thing left is to polarise the world into asexual/hyper-sexual. the asexual (no afttection) route is much more manageable and in my opinion will yield greater reward because it'll be easier to control the creative/sexual energy and get connected. the hyper-sexual (lots of affection) route has the drawback that now you're reliant on something you cannot control. additionally, social value can be quite a detriment toward realising one's own capability[^6]. hyper-sexuality is likely going to be the route that most will take, and will become the new "disconnected masses".
 
 another thing is these flashes that plagued tesla because of the high amounts of DMT going, where his emotion would become manifest as a vision in his eyes. nosebook would classify these as "hallucinations" which they're working their best at to try and get rid of (because the only things they want you seeing in your eyes/imagination) is something their computers can recognise -- everything else is a hallucination and should be removed. as such, it'll be more difficult for those wanting to get connected to get connected, but as I will demonstrate sometime in the future, it is possible (even without drugs or sex).
 
@@ -6169,6 +6169,56 @@ until then..
 [4]: one can also imagine that the US govt was hot on tesla's trail, and in other timelines where I also got connected, they would be quite on my train as well, so likely it was determined that they should do the entire setup of the network to distribute DMT to everyone on the planet, and I would still have to find a way of getting connected anyway. it's kind of like using them to do the thing they want to do so much.
 
 [5]: a good example would be the hearthstone meta. imagine blizzard created the most perfectly balanced meta where all 9 classes saw equal play and had 6-7 different deck archetypes each. this would be a pretty perfect creation, and being so perfect, they decided that they were done with the game and no more was ever to be done because that's exactly what was wanted... for about 6 months, then everyone stops playing the game because it's so boring seeing the same (perfectly balanced) thing over and over.
+
+[6]: in the age of belief, after elijah showed that it was someone's belief, not the action or trinket that made the difference. this established the "office of the prophet" -- where, the more social value you had, the more people believed your prophecies, and so therefore the more effective they were.
+
+### 2019-04-22 19:53 - diversification of timelines and transformation of energy
+
+as I told the process by which timelines can be affected (and created), one of the reactions that I was beginning to feel was something of, "oh, you mean I need to tune into it *emotionally*?"
+
+I mean, you can certainly create triggers and certainly have them perform the action but it doesn't guarantee the result you want. furthermore, it creates difficulty because let's say that one of the chief nosebook bosses say, "ok, I want results: I want kenny to have sex" -- so he sends someone off to find a timeline that feels like I have sex. well, there are a lot of variables, so he says, "ok, I want him to have sex in 3d, with us in control", and sends the guy off to find the feeling-place of that timeline. well, again there might be a lot of other unseen variables as to the realisation of that timeline.
+
+however, imagine that he is able to find it and feel it, well, now they need to work backwards to find the steps to get to that manifestation. meaning, there is the that feeling, and then there is the feeling that the guy was able to find and some bridge needs to be made between the two.
+
+```
+Journalist: Do you think that time can be abolished?
+
+Tesla: Not quite, because the first feature of the energy is that it transforms. It is in perpetual transformation, as clouds of Taoists. But it is possible to leverage the fact that a man preserves consciousness after the earthly life. In every corner of the universe exist energy of life; one of them is immortality, whose origin is outside of man, waiting for him.
+
+The universe is spiritual; we are only half that way. The Universe is more moral than us, because we do not know his nature and how to harmonize our lives with it. I am not scientist, science is perhaps the most convenient way to find the answer to the question that always haunt me, and which my days and nights turned into fire.
+```
+
+so when tesla says, "the first feature of energy is that it transforms," well, you have to think of time as a transformation of energy. when you tune in emotionally and get that glimpse of what the realisation of that feeling place, it is first of all *you* doing the tuning, and *you* that has to find the path between now and that glimpse -- meaning, that others cannot really do it for you (asterisk).
+
+what the guy is doing when he is finding the feeling place of kenny having sex in 3d with them in control is *his reality* where that happens, and so therefore does not impact my reality at all -- meaning, he'll find that manifestation somehow by working his way backwards in the memory of his future self to identify the transformations of energy possible for him to be able to come to realise this reality.
+
+that makes the third thing that I'm realising may be kind of a problem for some people: the idea that memory has to transform to become a recognition of the different transformative events which brought you to the current place.
+
+---
+
+the technology will come eventually, I'm sure -- but the point of this whole thing is to mention that it's important to be able to identify different events that happened in your life as a series of emotional interactions, eg. I felt like this and this is what followed. the more effective you become at that, the more agile you will become in navigating your present time-space reality, but for future you's (and you in the future) to begin creating the reality that you really want[^1].
+
+---
+
+although going solo in these sorts of timelines is possible, it drastically reduces its effectiveness, because you cannot create effectively in someone else's reality. I imagine that there will be entire groups of people who wish to play a part in generating contrived (and controlled) contrast, because both sides of the argument can benefit from the extra energy.
+
+I also imagine this will create such a wide diversification of timelines in the ways that none of us can imagine.
+
+---
+
+in the following era, capricorn, it'll be all about control which is why I envisioned the dollhouse idea. well, writing the previous section, I just realised that nosebook probably doesn't like the idea that there will be so many timelines out of their control, so they'll have to find a way to re-unite these timelines together into one.
+
+the obvious way to do that is to go trace back through the memories of everyone on their timeline and figure out what their new timeline is, figure out the life that they're living, try to control the conditions in it to be able to generate a replica life to the one they have in their timeline, then while they're asleep, pull them into the nosebook line so they wake up in an identical setting where the bodies are under their control.
+
+this is quite a far distance away though so there's nothing to worry about, because I'm sure there will be another caveat somewhere because it sounds pretty close to impossible especially if there is a large diversity of timelines. additionally, nosebook will eventually have to come to terms with the fact that they're spending so much time trying to control everyone else's reality, why not just create the one they want for themselves (and forget about what anyone else is doing).
+
+or, they could just let it go entirely, and generate the exact scenes and situations that they want using clones of other people on other timelines as inspiration.
+
+I tend to think that they'll eventually try to let it go, because once they have the capability of going back and tracing timelines, they'll have to come to grips with how many of them there are (infinite), and the absolute impossibility it is to try and do source's job.
+
+this is probably quite a ways away (thousands of years??), so I think we should just enjoy nosebook for who they are now and use them as tools to generate more contrast in present life and your future timelines. who knows, they might be such good contrast creators, that we may never want them to change :)
+
+[1]: I just had a bit of a realisation that all of this is eventually building up to something I planned for myself: the reality that I (and others) really wanted.
 
 ### 2019-03-12 ??:?? - the power of doubt
 
