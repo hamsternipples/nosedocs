@@ -6284,6 +6284,42 @@ there was this really weird dream where I was being put in a sexual situation wi
 
 misterios...
 
+### 2019-04-24 08:57 - some thoughts on the speed of light
+
+yesterday after talking with janine, I started to realise that some perceptions of cosmology are limiting and are actually could become a point of contention for a lot of different things -- which is good, because it kind of separates some things.
+
+so, we have this idea that the speed of light is constant -- and to make sure that it stays constant, we've defined the meter in terms of the speed of light (eg. 1 metre is the length light travels in a vacuum in 1/299792458 of a second).
+
+I've never believed it is constant, and so we can eventually try an experiment. the experiment is simply to make a device that can measure the speed of light within an error of let's say 0.1% and is lightweight and can fit on the next extra-planetary mission.
+
+the idea is to simply get a rough measurement of the speed of light (in a vacuum) on another planet.
+
+what I think will happen is, we'll observe that the speed of light in a vacuum is different on different planets. if that's true, that leaves the only possible conclusion that the vacuum is not actually empty.
+
+my theory is that the vacuum has a "conductivity" (I don't know the word) to it which allows light to travel faster or slower. you can see how this would become a huge problem for electricity because electric permittivity and magnetic permeability are related to the speed of light as a constant[^1].
+
+if the speed of light is in fact variable that means that the vacuum is also a type of medium -- and to account for this, the "ether" was used as a way to simulate this.
+
+---
+
+so, what I imagine is happening is that one of the reasons why these guys have to regulate the conductivity of the air so much is because their devices only work at the electric permittivity of the speed of light at that speed. if the speed of light increases too much, their systems will resonate slightly faster/slower and will be out of tune.
+
+when tesla said...
+```
+I know that gravity is prone to everything you need to fly and my intention is not to make flying devices (aircraft or missiles), but teach individual to regain consciousness on his own wings … Further; I am trying to awake the energy contained in the air. There are the main sources of energy. What is considered as empty space is just a manifestation of matter that is not awakened.
+```
+
+... he is referring to what I have often noted when I noticed that the air gets more conductive and LOA responds faster and thoughts become manifest more easily. I see it as a golden glow that permeates the air, and tesla claims that it'll allow people to begin to fly and matter to be able to form out of thin air.
+
+---
+
+obviously though, if electric permittivity and magnetic permeability are not constants, electricity equations become quite a bit more complicated adding another variable. additionally, it's a factor they cannot totally control, so it seems quite reasonable to assume that they have a lot invested in the speed of light remaining constant.
+
+
+[1]: https://www.quora.com/What-is-the-relation-between-the-velocity-of-light-and-the-permittivity-of-free-space
+
+### 2019-04-24 ??:?? - the point of it all is to make iterations on yourself
+
 ### 2019-03-12 ??:?? - the power of doubt
 
 ### 2019-03-04 ??:?? - when feeling bad, I resort to logic. but, when feeling good, I evaluate it by how it feels
