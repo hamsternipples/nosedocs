@@ -6318,6 +6318,29 @@ obviously though, if electric permittivity and magnetic permeability are not con
 
 [1]: https://www.quora.com/What-is-the-relation-between-the-velocity-of-light-and-the-permittivity-of-free-space
 
+### 2019-04-24 18:38 - more thoughts on the speed of light
+
+first, I will call use the term K, to express the dielectric constant, which is derived from the electric permittivity which is derived from the speed of light.
+
+another thought that popped into my head when I woke up is that if it's true that if K is relative to the enclosing shell, I began to see a pattern. there are shells within shells: universe, galaxy, solar system, planet, cell, atom, etc. and we should be able to find that each shell has a different K value.
+
+it seems like all of these shells have something in common: that is, they have a conductor like the ionosphere, then a dielectric medium K, then another conductor.
+
+each of these are essentially a capacitor, which is why I'm talking about the dielectric "constant", K -- but what if it's not constant? if it's different for each shell, then I would hypothesise that the smaller the shell becomes, the more dense this "ether" becomes.
+
+so if K is different in each shell, then it might occur that the force is really strong in a small shell, and much weaker in a larger shell. so perhaps with a little more investigation, this could unify the strong and weak force.
+
+I'll keep thinking about these ideas because I have this feeling that quantum mechanics is really just a look into the inside of an atom where the "light density"[^1] is very high[^2] and so as such LOA inside of the atom is very strong, and things happen at a much more energetic pace there[^3].
+
+[1]: original quote: "The third thing is: Is there an excess Light in the Universe? I discovered a star that by all the astronomical and mathematical laws could disappear, and that nothing seems to be modified. This star is in this galaxy. Its light can occur in such density that fits into a sphere smaller than an apple, a heavier than our Solar System."
+
+[2]: TODO: work out the maths to see if it's a high K value or low K value
+
+[3]: later on in after the previous quote, he says, "Further; I am trying to awake the energy contained in the air. There are the main sources of energy. What is considered as empty space is just a manifestation of matter that is not awakened." -- which gives me the impression that the more "dense" this energy is, the stronger the LOA forces that work on it are. he follows it up with this: "In black holes, what astronomers talk about, are the most powerful sources of energy and life."
+
+### consequences of more conductive air - 1915? - ww2?
+increases visual capability, that's why no one is allowed ho use the device around me
+
 ### 2019-04-24 ??:?? - the point of it all is to make iterations on yourself
 
 ### 2019-03-12 ??:?? - the power of doubt
