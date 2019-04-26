@@ -6338,6 +6338,24 @@ I'll keep thinking about these ideas because I have this feeling that quantum me
 
 [3]: later on in after the previous quote, he says, "Further; I am trying to awake the energy contained in the air. There are the main sources of energy. What is considered as empty space is just a manifestation of matter that is not awakened." -- which gives me the impression that the more "dense" this energy is, the stronger the LOA forces that work on it are. he follows it up with this: "In black holes, what astronomers talk about, are the most powerful sources of energy and life."
 
+### 2019-04-26 06:32 - making the transition into iceman
+
+one of the reactions I got in the previous entries about the iterations was how does the time split work. well, I don't know exactly, but you can imagine that all possible versions of you in all possible circumstances exist, however your consciousness is tuned to only one of those realities at a time. I like to think of them as like save games. they're all you at different stages in the game, but you're only experiencing one of them at a time.
+
+so the actual part about the time split, how would it look like? I toyed with the idea that in the timeline where the energy keeps rising, maybe a bunch of highly resistant people would simply die off from over stimulation of the brain or something. however on the other side, where they manage to find a way to put me in stasis or something, I imagined that possibly even I die, but their strong desire wouldn't make another timeline where I die -- well, I don't know maybe if that's what they're giving their attention to, dunno.
+
+anyway the thought came to me today after a truck came up on the field where I star watch. I suppose it is possible that they could become so desperate to try and protect their superiority, that they essentially push me over the edge in anger and frustration, and they get a manifestation that they have to take action and make sure I am no longer a risk to society, or something.
+
+I was thinking about it, and what I really want is to just continue to watch stars and see the continuing improvement, so I have to setup a structure in my head where I never take action, or ever consider it, when I feel strong negative emotion.
+
+I think I can do that, so what that means is, if they want to attract a very disconnected version of me, then they can do that. if have that logic setup and I remain conscious, then I won't ever experience that reality, yet they want so much to keep whatever it is a secret, they feel justified in creating that reality, then two realities must now exist simultaneously.
+
+---
+
+I'm beginning to really see the value in wanting to find a way to feel good at any cost. in the expectation youtube video, abraham made a comment saying that wanting to feel good is best way to begin to value yourself -- and it really is true, because it's sort of saying that no matter how many excuses I have to feel bad, I value myself so highly that I'm willing to rearrange things to find a better way to feel about the same thing.
+
+some things work better than others at allowing that transformation to happen, and really now that I think about it, those transformations are precisely what allows you to tune into a different reality of yourself.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
