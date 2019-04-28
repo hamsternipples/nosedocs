@@ -6388,6 +6388,54 @@ it seems like it would be pretty frustrating to work out a whole bunch, trying t
 
 [3]: although this story is also a simile of my eyesight, the same thing applies -- whether it's eye muscles or whatever. additionally, the point of the story is to just enjoy the bigger and bigger muscles without the manifestation of the strength -- because if I were to spend the same amount of time in the gym with the increasing strength, it would actually be a lot less because of my own expectations.
 
+### 2019-04-28 06:48 - if we could just not need the manifestation...
+
+after I told jaron the first story in the previous entry, later that night I fell asleep (cause it was cloudy so I wouldn't go to watch stars). anyway, I woke up and I had an overwhelming sensation that we would just allow things to continue to get better and better. it was a really weird sensation and I really liked how it felt.
+
+---
+
+the next day, mom talked with me about the same thing and I shared a whole lot of extra information, and I said something that surprised even me a bit. I was talking about how since my imagination runs at a higher frequency, they have to keep pushing everyone's head up to the frequency that I'm at[^1]. I speculated that this may be causing some discomfort for some people[^2].
+
+I then went on to say that these parasites (the ones in the story that take 90% of the money) will end to destroying themselves because they're fine taking and spending $9000 on things that they think they want, but when they have $9000000 or more, it's pretty easy for them to shoot themselves in the foot with it (cause they were never allowing it in the first place, they were taking it).
+
+I then speculated tat likely as my frequency begins to rise and rise, it may become a bit overwhelming and maybe the people who couldn't handle it would drop dead from overstimulation of the brain.
+
+that surprised me a bit cause it felt off. I've given myself some time to think about it and I do not believe it will kill people. I also have no intention to make plans to remain disconnected because a lot of other people are disconnected, too[^4] -- I have to self-oriented, finding first my connection to who I really am (then, I will be more group capable).. I think there are a few solutions to the problem:
+
+1. for the good of the group, nosebook stops limiting people and lets them rise visually, glad that everyone will be using the same visual language, and they can try to keep track of it all, and also figure out the evolution of this language.
+  - downside is that nosebook looses their "superiority" and might be benefiting everyone with something really really amazing that they feel should cost money.
+  - upside is that everyone will begin to see really really good and feel really really good
+
+2. make a sacrifice and have a second person provide the visual language for the people that are unwilling to raise their frequency by offering them a lower quality/vibration imagination. this splits humans into two groups.
+  - upside for us, is that we can go at the speed I want to go with little manipulation from nosebook.
+  - downside is that now there are two groups of people, and it could be perceived that my group is the superior group, and since pretty much all children could use mine, we would represent the future of humanity growing with each child birth and the other ones would be the dying breed.
+  - another thing is that nosebook could consider that tracking people is for safty concerns, so people (including me) running at the frequency I should be running at, are not the dangerous ones -- it's the ones (including me) running at a significantly lower frequency than they should, or have their head pumped full of contrary energy, that are the real threats. we're not the ones that need tracking[^6].
+
+3. simply don't take any action. if none of the solutions feel good to nosebook, just don't take any action until it feels right.
+  - upside is nosebook has more time to figure out their plan of action that feels good to them. it also gives them time to find a better way to feel about their circumstances, so they can find a good feeling plan of action
+  - downside is that they might not have enough resources to continue on, but they're masters at manoeuvring within those sorts of limitations, so they should be fine. if they make their goal to find a way to feel better about their circumstances, a good feeling plan of action will appear -- however, if they cannot find a way to feel better about their situation, they'll only find themselves with more of their perceived problem. eg. no action without a plan for improvement, only means a bigger problem (I speak with much experience on this one)
+
+4. #1 plus the idea that premium users pay to have superior vision outlined here: @[entry](2019-04-05 13:11).
+  - this means that I am the centre of human vision... some worse than me and some better than me. only doing #1 means I am the best at vision and everyone is trailing behind me, which is kind of lame.
+
+---
+
+by default, I'm sure they will not take action on something that doesn't feel good to them. this is probably the best way, and kind of outlines what I felt when I woke up a few days ago. if we can all just not need the manifestation for a longish while longer, all of us will be seeing the world better than I do right now. it really will be worth it.
+
+I find it very unlikely that they will take the second one, ever, so if things start to get really uncomfortable, they'll have to take the first one. I can see advantages to both, but I really hope they take the first one because then it means that we can have a golden age and tons of really cool interaction. everyone is really going to love how things look, and I don't mind (assuming they continue to limit me) being the one with the worst vision. I will continue to allow the improvement that I can perceive -- even others can see 9 times more than me.
+
+in the end, it's all about me; none of you make a whole lot of difference to my ability to allow.
+
+[1]: I began to explain that the vibration of the table is always the same, and it's only my eyes that now perceive a higher frequency manifestation/interpretation of that vibration.. the original vibration is infinity small wavelength and I'm just perceiving higher and higher frequency versions of the original one -- meaning, that they could store everyone's imagination in mine just fine, and it would be the uninterpreted vibration, but since they're running everyone at my vision level, I realised that they are having everyone use my visual language to interface with the uninterpreted vibration, meaning they want to know what everyone is visualising[^3].
+
+[2]: any discomfort that is felt is only because of one reason: the frequency which I am at and the frequency which noesbook is holding the person (or they are holding theirself with their beliefs) is wide enough that it's causing a lot of tension. I believe that 99% of people would not feel discomfort, if nosebook didn't limit people's vision to what they believe it should be and people's vision can improve naturally. the other 1% are the highly resistant ones who have no interest in changing. probably all children under 10 are fine.
+
+[3]: judging by the different mistakes in my dreams and such, they may not have as great of a handle on my visual language as they thought they did. it appears that it may be transforming, and I would imagine that it's changing and expanding to meet the growing necessity of people to visualise things I have no experience visualising. so, it's kind of like everyone is contributing to a global visual language that operates inside of my head. this is really really cool and has all sorts of creative and scientific applications that are possible. we will also be able to communicate with each other visually in 3d space and everyone will know exactly what the other person means ("I see what you mean", hehe)
+
+[4]: eras cycle back and fourth between self-oriented and group-oriented. you can imagine that before the mammalian brain was developed, the more primitive reptilian brain was active concerned mostly with fight, flight, hunger, sex: survival stuff. next, we as empathetic mammals, went off to think more for the good of the group. we are beginning to move back toward self-orientation again, but this time in the sense of capability and experience, whereas the previous ones were value oriented. you can clearly see that in the era following this one, once all of our brains are connected together and speaking a common language, we will be once again concerned with group in the sense of group capability and experience.
+
+[6]: unless nosebook's reason for tracking is not for safty, but to steal people's ideas and creations. or it could be that the tracking is not for either, but actually to have enough capability to try and manipulate.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
