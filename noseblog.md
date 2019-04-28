@@ -6356,6 +6356,38 @@ I'm beginning to really see the value in wanting to find a way to feel good at a
 
 some things work better than others at allowing that transformation to happen, and really now that I think about it, those transformations are precisely what allows you to tune into a different reality of yourself.
 
+### 2019-04-28 02:25 - a tale of two stories
+
+two days ago (I think) I was telling jaron this idea in response to "flushing money down the toilet" -- whereby, the gist of the story is (for round numbers), imagine that someone is taking 90% of everything I earn, so when I'm making $1000, I only see $100 of it.
+
+what I was explaining to him is that if that's happening, all I have to do is to find a way to allow $1000 into his life: my ability to allow has nothing to do with the person taking 90% -- and in fact, my experience is that if I perceive the person taking that as an excuse for why I'm not receiving $1000, then I feel bad (like anger or frustration) because I'm using them as an excuse for the reason why I'm not perceiving the reality that I should be (receiving $1000)
+
+then, to really begin letting the money flow, I can't compare what I'm making to the other guy, because if I really am capable of receiving $1000, then, when I line up with the $1000, then that person will go away or I'll be making $10000. if I choose to say, well, they're making $9000, and I'm only making $1000, then once again I'll close off that allowance by perceiving the difference[^1].
+
+instead, the right way to shift that perspective is to say, "wow, I'm really capable of creating/making $10000 even though I'm allowing only $1000 of it, so it really shouldn't be too hard for me to find a way of allowing the full $10000" -- and before I know it, I'm making $100000 and receiving $19000.
+
+the process will repeat as many times as you want, and as often as you release the resistance to the comparsion or anything else that anyone is doing. I've found it to be 100% a game where it's only about me and my ability to allow[^2].
+
+---
+
+the next story is the same exact story, however perceived from the opposite interaction of pushing/forcing instead of pulling/taking.
+
+my muscles generate a 100V signal which is well above the normal which is 10V. so, it has been determined that I should have the strength of a normal person. so, they must put -90V into my mesclea every time they flex to lower the voltage they create down to normal levels.
+
+after the initial reaction to the realisation that my strength has been limited to that of a normal person, I begin to realise that it's just more energy into my muscles; it's just going the wrong direction. so, I find a way of mentally rerouting the energy such that it's going the same direction, and so my muscles follow suit and make new circuits to reroute the energy so that it's actually adding to the output.
+
+each time that I reroute the energy to go the same direction, my muscles get used to a new power level and become muscles that summon higher and higher voltages. let's say I figured out how to get 50V going in the other direction, so now my muscles begin to get used to what 150V feels and as they physically change to become stronger 150V muscles, it's the new normal and now my body produces 150V signals for my muscles. so now, they have to counteract my muscle signals with -140V to ensure I am still a normal strength person.
+
+every time that happens, my muscles get used to a stronger and stronger signal, and so mu body continues to generate a stronger and stronger signal as well. in reality I'm way way way stronger than I appear to be, and although my muscles are growing in size, I don't feel that much stronger. if I can just hold off on needing the manifestation of my real muscle strength and enjoy the bigger and bigger muscles, then when I'm finally ready for my strength, it'll be so much more than I could have imagined it to be[^3].
+
+it seems like it would be pretty frustrating to work out a whole bunch, trying to get stronger, and you never get stronger, but that's the point: just find a way to enjoy the moreness of your muscles, without being able to prove to anyone how strong you *really* are.
+
+[1]: I had a similar experience when I was at tuenti, when I basically told zaryn that I would take half of whatever he was getting. it worked out well, because then zaryn could feel like he was making more than me, and I didn't really care so much about the money aspect of it so it made no sense for me to make the comparison game. later on though, with luke and the other guys, there was a lot of comparison going on, so I kind of got sucked into the whole comparison of numbers thing to determine how valuable I was, and one of my main mistakes was to compare myself to rupert, even though this was the majority of luke, maria's and my conversation around the subject. it caused me great distress as I lost sight of my original intentions to just get half of what zaryn was getting. I was reminded of the parable of the men getting paid 1, 2, and 5 skeckles for the same amount of work, and the point of the story is that the agreement is the agreement (or, in the way I'm presenting it her, their payment was proportional to each of their ability to allow)
+
+[2]: this story seems a bit contrived with the ridiculous numbers of a 10/90 split, but that was intitially because jaron was saying that his numbers only work out such that his expenses only add up to a small portion of the money that he received from the indemnity. additionally, at the same time I was telling the story from the perspective of my experience with my eyesight improvements, so that's more what it reflects. however, in light of the previous note[^1], I did also have this exact experience in my life with tuenti where I received half of zaryn's. so, that's two pretty visible evidences -- and I'm sure there are more. abraham also tells a similar story about a man with an ex-wife.
+
+[3]: although this story is also a simile of my eyesight, the same thing applies -- whether it's eye muscles or whatever. additionally, the point of the story is to just enjoy the bigger and bigger muscles without the manifestation of the strength -- because if I were to spend the same amount of time in the gym with the increasing strength, it would actually be a lot less because of my own expectations.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
