@@ -6411,7 +6411,7 @@ that surprised me a bit cause it felt off. I've given myself some time to think 
 2. make a sacrifice and have a second person provide the visual language for the people that are unwilling to raise their frequency by offering them a lower quality/vibration imagination. this splits humans into two groups.
   - upside for us, is that we can go at the speed I want to go with little manipulation from nosebook.
   - downside is that now there are two groups of people, and it could be perceived that my group is the superior group, and since pretty much all children could use mine, we would represent the future of humanity growing with each child birth and the other ones would be the dying breed.
-  - another thing is that nosebook could consider that tracking people is for safty concerns, so people (including me) running at the frequency I should be running at, are not the dangerous ones -- it's the ones (including me) running at a significantly lower frequency than they should, or have their head pumped full of contrary energy, that are the real threats. we're not the ones that need tracking[^6].
+  - another thing is that nosebook could consider that tracking people is for safety concerns, so people (including me) running at the frequency I should be running at, are not the dangerous ones -- it's the ones (including me) running at a significantly lower frequency than they should, or have their head pumped full of contrary energy, that are the real threats. we're not the ones that need tracking[^6].
 
 3. simply don't take any action. if none of the solutions feel good to nosebook, just don't take any action until it feels right.
   - upside is nosebook has more time to figure out their plan of action that feels good to them. it also gives them time to find a better way to feel about their circumstances, so they can find a good feeling plan of action
@@ -6436,7 +6436,45 @@ in the end, it's all about me; none of you make a whole lot of difference to my 
 
 [4]: eras cycle back and fourth between self-oriented and group-oriented. you can imagine that before the mammalian brain was developed, the more primitive reptilian brain was active concerned mostly with fight, flight, hunger, sex: survival stuff. next, we as empathetic mammals, went off to think more for the good of the group. we are beginning to move back toward self-orientation again, but this time in the sense of capability and experience, whereas the previous ones were value oriented. you can clearly see that in the era following this one, once all of our brains are connected together and speaking a common language, we will be once again concerned with group in the sense of group capability and experience.
 
-[6]: unless nosebook's reason for tracking is not for safty, but to steal people's ideas and creations. or it could be that the tracking is not for either, but actually to have enough capability to try and manipulate.
+[6]: unless nosebook's reason for tracking is not for safety, but to steal people's ideas and creations. or it could be that the tracking is not for either, but actually to have enough capability to try and manipulate.
+
+### 2019-04-29 14:16 - I'm watching stars so you don't have to
+
+I was trying to think of a third different way to tell the same story, but instead I think I'd actually rather speak plainly about it. I also had some reactions to when I said, "any discomfort that is felt is only because of one reason: the frequency which I am at and the frequency which noesbook is holding the person (or they are holding theirself with their beliefs) is wide enough that it's causing a lot of tension."
+
+this is my take on how the whole thing works. if I am correct, nosebook is holding a lot of people's vision at some level for some reason they feel very justified to do that. that means that essentially everyone is kind of like watching low-dosage stars all the time. when I watch stars, it's creating a whole lot of extra energy which nosebook has to neutralise for fear that I begin to hallucinate. the same thing is happening to everyone else as well, just on a much smaller scale.
+
+so here's a third story, which is my experience: there really only is two types of energy, energy that makes me feel good and energy that makes me feel bad. I modelled them in the form of volts in the muscle analogy, however, I simplified the results by saying your muscles would get bigger but you wouldn't get any stronger. the reality is, that is not the case.
+
+imagine that to hold my vision at a certain level, they have to perform the opposite of the signal that I see. well, the opposite of the signal is opposite from what I am allowing and so manifests itself as a bad feeling.
+
+I imagine that for people feeling discomfort looking through my eyes or whatever, there are also a lot of other things in their lives that bother them. well, just how I had different things in my life that bothered me, I had to find a way of feeling better about them in order to feel better -- and, when I did, it almost always was accompanied with a visual upgrade.
+
+the reason for this is, and I tried to model it (probably unsuccessfully) in the muscles example with circuitry that converts the signal from a negative to a positive. however, that's only part of the story [^1].
+
+if you think about things that make you feel kinda good as signals that are +10V, and things that make you feel really good as +100V, well, then things that make you feel kinda bad would be -10V and things that make you feel really bad are -100V. so, if nosebook is putting -50V in you to keep your eyes at some level, you are now resonant with a lot of things that make you feel moderately bad, and these sorts of things will begin to become more and more manifest in your life. these are the things that bother you.
+
+what that has inspired in me is the capability to turn something that used to make me feel pretty bad (-50V) into something that no longer bothers me (0V), and you can see that as I progress forward, the things that previously made me feel pretty bad, are now actually beginning to make me laugh and feel sorta good (+20V).
+
+so what I'm saying here is that with the power of my own perception, I've figured out a way to turn -50V into 20V -- and that difference is why I'm capable of making so much progress in my visual upgrades lately. (eg. if I'm at +60V, they want me at +10V, so they put -50V in to counter it, but I find a way of making that -50V into 20V, so now I'm at +70V and they have to put -60V, and I find a way of turning that into +30V, etc. ad infinitum)
+
+---
+
+this gives all of us a chance to begin releasing resistance toward things that bother us. I suppose that a lot of people will continue to try and hold on to the things that don't feel good for as long as they can, and there's nothing I can do about any of it.
+
+however, imagine that my vision is at 100 and the star is at 100000, so when I look into it, I'm attempting to sync up my vision to 100000, but obviously that's way too much of a jump for me to make all at once, so I have to figure out how to allow more and more energy to pass through me (my inner being is at 10000000 or something).
+
+as I begin to allow more and more energy through, my numbers will rise really high toward the levels that a person could receive while looking into a star, so it would be as if everyone is actually watching stars because the same process is occurring in everyone.
+
+the nice thing is that none of you guys have to endure star watching weather to receive the benefits of it. nosebook doesn't need to change for you to figure out how to find a way of turning something that bothers you into something that that can make you feel good -- and, even if they do stop limiting people's vision, there will still be a difference between where I am and where you are, so the same scenario is still taking place, just less dramatically[^2].
+
+[1]: I decided to simplify the explanation with just positive and negative voltages, when in reality it's more like higher and lower frequency vibrations. this comparison is sufficient for now, but you can see that this is eventually leading to an understanding that nosebook can counteract your low frequency signals, but their technology limits their capability to counteract your high frequency signals.
+
+[2]: I imagine that if they did remove the limitation, I would quickly rise to star level outputs[^3], so the exact same situation would still be occurring just at a higher intensity[^4].
+
+[3]: I have also noticed another line of evidence that what I'm saying is true, which is that my visual level is actually somewhat determined by people's ability to allow. I have often times noticed vision upgrades without even watching stars on a saturday afternoon after an abraham workshop. my theory as to why that is, is that they're able to help people soothe some of the discomfort that people feel and when people make the perception change, likely they begin to see better, and so do I. meaning, that as the gap between me and the median of people's ability to allow closes a bit, I see better.
+
+[4]: actually now that I think about it, it *might* behoove those working at nosebook who don't don't want to make the effort to find a way of feeling better to try and convince more and more people to remain as resistant as possible. it would slow down the non-star watching vision upgrades that I receive because the median gap would remain quite wide. however they may not want that because it makes no change to me and my ability to allow, and it probably would cause a whole lot of extra tension, so everyday interactions might get more violent as that tension continues to rise (although, that's a good way to maintain and justify a lot of (new) jobs for the police, too).
 
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
