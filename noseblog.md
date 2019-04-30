@@ -6476,6 +6476,39 @@ the nice thing is that none of you guys have to endure star watching weather to 
 
 [4]: actually now that I think about it, it *might* behoove those working at nosebook who don't don't want to make the effort to find a way of feeling better to try and convince more and more people to remain as resistant as possible. it would slow down the non-star watching vision upgrades that I receive because the median gap would remain quite wide. however they may not want that because it makes no change to me and my ability to allow, and it probably would cause a whole lot of extra tension, so everyday interactions might get more violent as that tension continues to rise (although, that's a good way to maintain and justify a lot of (new) jobs for the police, too).
 
+### 2019-04-30 13:28 - the formula is simple.
+
+I woke up this morning and I think there is still some confusion as to how things work from my perspective. you see, I have no way of knowing if this is the reality I want to create or the journey toward it. the reality I want to create involves the creation of a new galaxy, not by meticulous planning and supervision, but by building up enough energy and letting LOA do all the work. the way I can see that we are on that track right now is the constant limitation of my visual capacity by nosebook. as my visual capacity continues to grow in depth, you can imagine that this is the kind of ingredients needed to conceive of something so big.
+
+I don't have any real idea of what I want it to be (well, I've gathered a few ideas), but the whole point is to let LOA do all of the work. additionally, I have noticed that different eras cycle back and fourth like a pendulum between a focus on the individual and a focus on the group. I have the impression that this universe was created by a group of creators under a lot of supervision. I want my galaxy to be the testing ground for the new method of creation that comes from a simple desire for an individual to get connected to who they really are, and then let LOA do all of the work as it grows into something really really big (like a galaxy).
+
+so, the formula is simple for me: my objective is to get connected. period. I have been disconnected from who I really am since 2013, and I imagine that when I get connected again after having such an amount of energy build up, it will be quite dramatic.
+
+this means there is really only one path for me, and that is to get connected. when I spoke of the different iterations that we would do, the goal is to make a timeline where I realise my objective of going from 2013 til 2038 without my visual capacity or any way to get to it. along the way, you can easily imagine that every iteration gives a bigger and bigger manifestation, and so the whole fun of making the iterations is to enjoy the ever increasing manifestation each time on the way toward the end goal.
+
+we're not even close to it so speculation is quite difficult, but I imagine that my consciousness will experience the creation and my unconscious body will remain with you guys. I'll have a pretty mind blowing experience as the galaxy is created -- then I'll be back sometime in the future for sure, just like jesus did in my body, by sharing the experience with me, not by blowing my mind all at once, but by allowing me to gradually find that alignment.
+
+---
+
+you can imagine that in all of the timelines that are not this one, where some sort of manifestation happened, I came into alignment with an even more energetic version of myself than what happened in vallecas. I postulate that the reason why everyone is here on this timeline is because dying or serious injury is not something they really want..
+
+if this timeline is just another pit stop on the way toward my goal, then I will be able to find a way to get connected before any manifestations happen. obviously, this means that there would be no serious injury or death as a result of me finding my alignment.
+
+when that happens, probably there will be zero (or only the 24/7 nosebook watchers) people watching anything through my eyes, because I'll be on a higher dimension, so that means that the manifestation will have had to have grown to be big enough that it still remains something the majority of the people want. we're probably not there yet.
+
+---
+
+as for the idea of continuing to use my visual capacity as the source of everyone's imagination, no matter which timeline we're on (the journey or the pit-stop), probably at some point it'll get a little bit too detailed for a lot of people, so an alternative imagination will have to be used (I've referred to this as the sacrifice, coming from the trope that a hero must make a sacrifice oneself for the greater good).
+
+so, no matter what timeline we're on, it's probably a good idea to think about the relocation of the imagination of discomforted people to a different location now. I am certain that all of us have an inner universe, and I am certain that others are beginning to get access to it[^1]. likely this is because of the elevated DMT required to use my imagination. so, it only seems logical that for nosebook to keep people away from their own inner universe more effectively, they will need a lower resolution inner universe -- one that doesn't need such high levels of DMT.
+
+everyone is using my visual language now, so only the process of moving all of the persistent stuff over to the new location, and this can likely be done by having the person (while asleep) conjure everything they've ever conjured in the new location, that exists in the old location. it is just vibration, so it's just a tuning exercise and any vibration can be tuned into by any brain, so of course it'll work, and the visual language I established will continue to grow and evolve in the new location.
+
+not everyone has to move over to the new location though. meanwhile people remain comfortable with my visual capacity, they should continue to use mine. also, since the goal is I never attain my visual capacity, anyone who wants to keep up to speed with me, will be be able to continue to use my imagination for as long as they want.
+
+
+[1]: kripp had a dream within a dream, and displays all sorts of high DMT related conditions in relation to his sleep/dreams. abraham also shows off esther's capability nearly every workshop now, so it's certainly something that people are beginning to access their inner universe.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
