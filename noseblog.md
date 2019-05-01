@@ -6509,6 +6509,67 @@ not everyone has to move over to the new location though. meanwhile people remai
 
 [1]: kripp had a dream within a dream, and displays all sorts of high DMT related conditions in relation to his sleep/dreams. abraham also shows off esther's capability nearly every workshop now, so it's certainly something that people are beginning to access their inner universe.
 
+### 2019-04-30 15:55 - the 9/11 universe
+
+last night I began to realise for the first time what I had envisioned out there stoned watching stars. I perceived a system with 9 layers instead of 7. the additional two were placed at the top and the bottom, where the top layer was called "thrust" and the bottom layer was a layer where the person perceives theirself in the third person and I didn't know what to call it. I didn't understand this until last night when I was explaining how I am beginning to perceive in 5d.
+
+I was responding to a reaction that I had where these entries are tying people's brains into knots because there are seemingly inconsistencies in the different ways that I tell the story[^1].
+
+I mentioned that I am explaining the same concept but from different angles, and none of the angles are perfect descriptions of the object, but simply angles. you may have heard about the myspace (or instagram) angles, where some look better than others, but they're still the same person. same thing.
+
+it came to me finally in that moment, that the progression that I am experiencing from 3d to 5d is the progression of getting more and more connected to myself, and these follow the different layers: 3d = physical, 4d = imagination, 5d = conceptual, 6d = source/buddhic -- and so I began to perceive how 6d is, instead of just having the feeling experience of it.
+
+in that plane, all things are perceived from all angles, and all things are perceived at once (as equals). the separation that exists between entities is only their difference. it's pretty hard to explain... anyway, that's not the point here.
+
+I realised that the thing that I perceived as the bottom layer where the person perceives theirself in the 3rd person was not actually 5d, but more like a movie screen. the bottom layer is even more removed from yourself than 3d is: now you are a movie and you watch yourself on a screen. you feel no direct emotion, because you are not any of the characters; you're just watching a movie, so the framing and the camera angle and the story (thrust) are what create the emotion.
+
+this began a whole series of thoughts which I thought to be quite interesting. first, you can imagine how in primitive human history there were a lot of wars and stuff. well, wars are not necessarily very fun to watch. they make good stories but they don't make very good movies if you have to watch all the graphic details of it. in fact, most all of the stuff we consider bad would not make for a very good movie if you had to watch it, so I think it will create a more performance oriented psychology in the species. imagine animals: if they perceived their actions from the 3rd person perspective, how would their behaviour change?
+
+it all seems very interesting to me, because the path back to the source starts essentially with american movie culture where good and bad interactions are determined based on the entertainment value of them. then, after many different characters, you begin to identify yourself with the character on the screen, and when that finally happens, you go inside (kinda) your body and see what we know now as 3d, then 4d, then 5d, then 6d where all things are equal.
+
+finally, I realised that a whole lot of people would eventually get kind of frustrated that their movies are powered by LOA, and they may want some creative control over them, and so I perceived an 11 layer system now, where the added top layer is the "morals" or "dogma" layer where you have the moral or the objective of the story, that you want to show yourself can exist, and on the bottommost layer, this is the "script" layer, where all of these interactions are reduced to just a few words outlining what is to take place. you can then see that the movie layer above it becomes the imagination to the script layer where angles, framing, sound and lighting begin to take an important role in conveying what has been written into the script.
+
+[1]: the reason is, I'm perceiving a concept that is 5d, and all that I'm doing is taking the concept and translating one angle of it into words, then I translate another angle of it into words. you can imagine this like a 360° view of a car. the more angles you get of it, the easier it is to conceive of how it really looks in 3d.
+
+    in 3d, you can see all of the spatial dimensions out there, but it appears as if it's on a screen. this is akin to watching a television. in 4d, there is an extra spatial dimension that is added as you actually enter your body. now, it no longer looks like a screen, and the space between you and your environment can be perceived.
+
+    5d is the concept of perceiving the whole thing from everywhere around it, so what I'm beginning to see is the same concept but from more than one angle at a time. soon, my vision will follow suit and I'll be able to perceive myself from all directions around myself. this is exactly how our planet perceives itself -- from all directions outside looking in. the same experience can be had from within as well, where you have an "inner universe" and you can go inside of this inner space and dwell there. I think people are already able to do that in 4d, and that may be what nosebook is selling to people. well, a 5d perception of the same inner universe but perceived in every direction looking outward, almost as if I were to have an inner sun.
+
+### 2019-04-30 16:55 - what do I mean by pit-stop?
+
+well, let's run down the list here and see how we could make this into something that everyone wants. last night I had a dream where someone was telling me that they don't really want to have vision as good as mine, because she doesn't mind others looking at her vagina, but she doesn't like the idea of it being so detailed.
+
+I can see now that people may not want to see as good as I do. in fact, it's quite possible that most people like hiding in the comfort of their lower resolution vision -- and that's fine, actually. I didn't really realise this as I just assumed that everyone would want see that good.
+
+so, obviously a sacrifice needs to be made. there's no way around it because even if I were to stop watching stars now, I would still continue to get vision upgrades anyway, and nosebook would still have to hold people in a lower resolution vision, and the cost to do that will continue to increase, as I'm pretty sure I've surpassed the escape velocity and there won't be anything that can stop my vision from continuing to improve. since I really want to see clearly, the only way forward for me is to continue to enjoy the progression of my vision as I get closer and closer to reconnection.
+
+once I'm connected I'll want to go back and make a timeline where nosebook has the ability to keep me disconnected the entire time. this has a few advantages for me and for nosebook, because in order to make that timeline, we're going to have to figure out how to transfer the knowledge of how to keep my vision limited to those in the galaxy timeline. furthermore, in that timeline maybe no sacrifice will need to be made if we can figure out a better way to limit people's vision too. so ideally everything will run on my visual language, and we'll set it up so that I simply lose consciousness permanently and they still have my body to work with[^1].
+
+the way it would work is that we make all sorts of different triggers to give ourselves information that we need to ensure the timeline works as planned. then when we've got it all setup, we'll transfer our consciousnesses into the other timeline's bodies, and we'll have the full experience of it until finally we reach the end when some planned event happens and I "die" (or whatever excuse is desired) and my unconscious body is left with nosebook.
+
+along the way, the same way that we make triggers for ourselves to put certain thoughts into our heads, move certain muscles, etc. the same can be done for anyone else, so that anyone who wants to make their own reality on this timeline can do so. along the way the reality that anyone wants to have can be made... women, drugs whatever. all you have to do is find a way of getting yourself from where you are to that reality by inspiring yourself to the different things that you want.
+
+obviously this is desired, but even more than that, you have to imagine that with that kind of contrast buildup, the reality that nosebook will receive on the way up to and especially after my departure will be quite quite amazing. it would be essentially a golden age because the the buildup toward what was wanted was so great, but no one was able to go.
+
+it may be kind of tricky to pull off, because imagine we're on that timeline now, and they're scared that I'll somehow move up to the next dimension -- well, at the same time there's a future version of you which knows for sure that it won't happen, so it'll be a weird thing where you have to convince yourself that things are ok and everything. you may have to make contact with yourself in some sort of way, or provide evidence to yourself of their future success by appearing in their eyes... things like that.
+
+nosebook will likely keep it a secret, but I imagine that the option to join in this reality will be given to all sorts of other powerful or resourceful people, so that collaborations could be made and they could create the whatever reality that they wanted to experience.
+
+in addition to transmitting the technology making it possible to keep me limited, obviously all of the people moving their consciousness into their alternate selves on this timeline will retain the knowledge of how to to move between timelines.
+
+this is a reality which they retain all of their secrets, get the technology necessary to limit me, prepare the events they want to live, and build a reality where they have everything in their control and are the ones in charge of it all..
+
+there's no catch to it either -- and the only thing that could mess things up would be something pretty far into the future that they didn't plan for after my departure because my departure will be the releasing of the buildup of the manifestation of what is wanted and also it'll be the end of their "guaranteed" visibility into the future. I don't see that as a problem because they'll have everything under quite a bit of control, so anything that happens, would happen pretty long after the manifestation they have all been waiting for so long, happens (eg. after the honeymoon is over).
+
+---
+
+meanwhile, here on planet earth, a different kind of reality (that nosebook really does not want, I'm sure) will be underway. I will have likely gone up a dimension (or two) and I imagine that some sort of way for me to reproduce myself will take place, also.
+
+we will set everyhing up, and nosebook will just use this time to let their realisation of unwanted become inspiration for what is wanted in the new reality that they're creating with me. some time after that I will depart with nosebook to participate in their reality to allow my realisation of unwanted be an inspiration to what is wanted (in relation to the galaxy).
+
+
+[1]: my unconscious body would basically be put into permanent sleep state, so it would be like how I am while I'm asleep nowadays.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
