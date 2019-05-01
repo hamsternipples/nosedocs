@@ -6567,8 +6567,39 @@ meanwhile, here on planet earth, a different kind of reality (that nosebook real
 
 we will set everyhing up, and nosebook will just use this time to let their realisation of unwanted become inspiration for what is wanted in the new reality that they're creating with me. some time after that I will depart with nosebook to participate in their reality to allow my realisation of unwanted be an inspiration to what is wanted (in relation to the galaxy).
 
-
 [1]: my unconscious body would basically be put into permanent sleep state, so it would be like how I am while I'm asleep nowadays.
+
+### 2019-05-01 05:39 - when going to the new timeline why relive your same life?
+
+it's not necessary to live the same life you had in the previous timeline. so, for example, maybe the nosebook guys don't want to live out the pain and suffering that they will put themselves through with the triggers necessary to make the my desired timeline possible -- and instead, they may might want to share a body instead with a newborn baby and grow up there. the advantages are obvious such that additional triggers can be made so that the boy will grow up and experience the desired life that they want to live in their 20's when I make my departure.
+
+sorry, let me rephrase that in a different way: imagine that nosebook doesn't want to make two separate timelines and wants to remain in control of everyone, so what they do is in the new timeline where I am the backbone (eg. events can be calculated and will by relative to my experience)[^1]. so then nosebook sets up their ideal lives in the children and the families that they want to grow up in, and then as each of us is asleep nosebook is accustoming our vibrations to a newborn body[^2] in the new timeline and as the bodies become accustomed to the new bodies, their consciousness moves over there.
+
+the amount of control that nosebook wants to give people to create triggers for their selves on the new timeline is entirely up to nosebook. it doesn't matter really. the point is to make iterations (because that's the "almost unattainable" part of increasing human energy that tesla was talking about), so it doesn't really matter -- just as long as nosebook has interest in staying in charge of the timeline and keeps wanting to relive their 20's again.
+
+obviously it would be planned that these kids would grow up in a certain way such that by the time they're in their 20's, they're working for nosebook, have gained the power they need and are living the life that they want to be living in their 20's. by the time they get into power, it would be time to make another iteration, so the process repeats and everyone nosebook puts everyone in the new timeline.
+
+this is essentially immortality.
+
+---
+
+the consciousness will only accept the body as it gets more and more similar to in vibration. I suspect that newborns will be the easiest transition, but that would mean on a 20 year timeline, that they would only experience their teenage years. however, I can easily see that each iteration it will be possible to live and older and older life because your consciousness could begin to accept and be similar to an older child, say 5-10 years old.
+
+while writing this I was reminded of the landscape architect, because one of the things he said really stuck out to me when he went out of his way to mention that he had somehow climbed to a high rank inside of nosebook and he was only in his 20's.
+
+also, there is the other aspect of it which is my own where I get to relive over and over this mess, however it doesn't bother me at all to know this because I am sure that next time I will make huge advances in my emotional control -- because I can remember numerous times when I had a small voice inside of me telling me it was alright, but I chose to feel the negative emotion anyway. in future iterations, I am sure that I will be more and more capable of listening to that voice instead of feeling the emotion so strongly like is normal for me.
+
+so, in a way this is even a proper chance for me to "clean up my vibration" iteratively (reminds me of the turtle lasers), because as the backbone I relive the same life -- which is fine for me because I really like me, and each time I am sure that I will be able to find my connection even more easily.
+
+for everyone else, this is a way for them to let their old self experience the difficulties of the previous timeline and instead live a new life in a young newer body[^3].
+
+the "ideal" would be to have everyone's life perfectly planned out so that there was no room for error (essentially everyone is a backbone now), and then just go into the body and live out what you planned for yourself. 
+
+[1]: it's essential that I'm the backbone because there will be no other way to easily make a calculated timeline. it's quite likely that 2038 would be when I can no longer be used as a backbone because things in my experience begin to become incomprehensible
+
+[2]: it has to be a newborn because the vibration of the "stand-in" would have to be similar enough to the body for it to work, so the stand-in will experience the childhood of this kid in their dreams sufficiently until it feels natural for the person's consciousness to make the transition into the new body on the other timeline.
+
+[3]: the idea of planning and creating triggers to ensure the life that they want to live will probably be a nosebook-only feature. however, that means everyone else will be using LOA to create the new life that they want. the trend will probably be toward giving people more control though, because the more controlled the future is of everyone, the less chance for the unexpected to happen.
 
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
