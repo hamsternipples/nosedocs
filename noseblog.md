@@ -6633,7 +6633,19 @@ the symmetry is beautiful here because a concept will be transmitted as a signal
 
 the other beautiful symmetry here is that emotion and structure are connected and can be seen one as a product of the other. a structure (flashes in the imagination) can make emotion. emotion (communicated physically) can create structure. concept and symbol are opposites from each other.
 
-there are number of other symmetries with this concept as well. 
+I started the visual trend, but soon I think I my visual capacity will become pretty intense for a lot of people, so likely people will no longer see what my eyes see, physically, but nosebook will have to begin sending the different concepts that I think, see and recognise to you guys and each person will translate those concepts the way that their brain sees fit to do so. so, I will become non-physical communication. my experience will be perceived conceptually or through the physical experience of others.
+
+there are number of other symmetries with this concept as well.
+
+---
+
+all of this spawned as a result of some different reactions that came to me yesterday essentially giving the idea that nosebook can't allow other people like me to get connected either, so they will have to make sure that any "gnomitos" that come to exist, must also be ensured (from birth) that they never have a visual capacity.
+
+at first I thought that it may give me a bad feeling about this, but in the end I'm pretty sure it's the best plan, actually. I am absolutely sure that interfacing with LOA on an emotional/conceptual level is superior to a visual/meaning-filled way. it is true that visuals make emotion, but I'm pretty sure that emotion makes visuals too.
+
+team visual will soon be so inundated with visual flashes causing uncontrolled emotion (like tesla), they will have to gain better visualisation of them to gain emotional control.
+
+team non-visual will gain so much sensitivity, they (like me) will be inundated with all sorts of foreign signals/symbols causing uncontrolled emotion at first. so, they too will have learn emotional control and better physical communication/expression of those symbols.
 
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
