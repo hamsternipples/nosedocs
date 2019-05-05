@@ -6647,6 +6647,38 @@ team visual will soon be so inundated with visual flashes causing uncontrolled e
 
 team non-visual will gain so much sensitivity, they (like me) will be inundated with all sorts of foreign signals/symbols causing uncontrolled emotion at first. so, they too will have learn emotional control and better physical communication/expression of those symbols.
 
+### 2019-05-05 13:09 - the same story from a different angle
+
+imagine that nosebook decides that they will have to keep all "gnomitos" held away from their visual capacity... well, then that means that timeline now exists and I can believe that they now have sufficient capability to hold my perception in this dimension for much longer.
+
+this is really good news because that means that quite a few (all?) people from that timeline are now here with us, and they have planned the futures of the bodies they are residing in to be what they want.
+
+---
+
+I hadn't really realised it this way before, and that is what is so special about this entry, because every time that nosebook decides they want to try and limit me in some way, their desire to limit me creates a timeline where they are successful in limiting me, however I imagine on those timelines the ultra-resistant guys eventually drop dead and finally when that happens, there is so much anticipation/desire to see what I've been talking about with this whole time with the timeline tech, that finally it is explored.
+
+where my consciousness resides (here on this one), there would be such a density of consciousness which has allowed all of this to happen, this is clearly the timeline that everyone wants to be on. having lived much further into the future, these other timelines are capable of perceiving much further into our future than we are, so they know that eventually once the ultra-resistant guys finally exit the scene, it'll allow one of the most epic manifestations for everyone on the planet. none of us could even possibly comprehend what it would be, because the energetic buildup will be such that so much withheld desire will finally become realised.
+
+---
+
+another big mental breakthrough for me is to to realise that I'm to just keep going without the manifestation for the duration of this whole thing. I would estimate that they will be able to hold my perception in this dimension for the duration of the time. the entire time, I will continue to gain more and more levels more and more rapidly (as has been seen the last few months). I find it likely that they will have to create an alternative imagination for some people as things might start getting really intense.
+
+there will probably be others that wish to continue on using my imagination and that's going to be pretty fine with me. I'm not sure how to say this, but I'll keep gaining more and more levels, so for those who remain with me, as tension begins to rise, they'll need to find a way of perceiving whatever it is that's bothering them in a different way like I mentioned in the muscle analogy: @[entry](2019-04-28 02:25). the reason why I say that is because let's say in 5 years or so you decide it's actually too much and want to go to the alternative imagination... well, it would be like the equivalent of going 100mph and then throwing it into 1st gear to see what happens. you thought you had tension before, wait till you try the alternative[^1].
+
+I also find it likely that one of the "I'll never change" guys will try and hold out till the very very end. if you think about it, the more people and the stronger the desire is, that do *not* want me to continue to get levels, the more difficult it is for me to get levels because it requires more power. so this last holdout will actually be the main reason why I don't go up a dimension. probably the guys at nosebook need to find a way of making sure he continues to reinforce his beliefs that I should not be able to go up and that he cannot allow it, etc. -- continuing to build stronger and stronger contrary energy to what I want.
+
+this guy will have such a strong negative belief system in place which is holding him away from such a high frequency, you can imagine the energy buildup for him as well. the entire time he will insist that he must remain on my (rising) frequency, all the while not actually letting himself go up to that frequency. we will become very similar in energy, however I'll see that energy in a beneficial way and he'll continue to see it as something unwanted and continue to push against it.
+
+I also imagine that his energy will be the energy which when finally put in the direction of wanted, will become the next version of me in the following era.
+
+nosebook will likely have great fears that someone ever come into alignment with who they really are (like I'm about to do shortly), for fear that it disrupt their "business as usual" mentality[^2], and this will attract *our* return sometime in the future.
+
+the point is, if we could all just not need the manifestation for quite a while longer. let's just wait for the ultra resistant ones to drop dead and we'll *really* have a nice manifestation -- and all of this will be possible because I'm so heart set on getting to the next dimension. the two symbolic/conceptual languages thing might still happen, because my vision is going to start getting pretty nuts here shortly and these languages will become the key factor in everyone communicating effectively and creating all sorts of amazing things.
+
+[1]: this experience would be similar to what happened to me when I was in valverde and I was getting quite accustomed to perceiving 3d with all of the high frequencies in it, but then after my future self appeared in my eyes, nosebook decided they needed to make sure I no longer saw through my own eyes again -- I now only got to see the image that nosebook wanted me to see, to ensure that I am not capable of seeing any images in 3d space. well, nosebook's image runs at a much lower frequency than my eyes do, and that felt like incredible amounts of frustration and tension. it took me a bit to adjust to the new lower frequency, but since then I have found a way of using this lower frequency as a form to generate more desire to see higher frequencies. I still see lower frequencies, but my new power level now looks better and has more detail now than the high frequencies then. this is probably also why it seems to me like I keep getting the same levels over and over again.
+
+[2]: it may not be the "business as usual" mentality, but the opposite one where anything goes ultra loose don't chain me down cause I'm a wild (wo)man. and the fear is that the old nosebook mentality will return and make things unfun again. it's really hard to tell because there's no way I can have that far of perception into the future. it seems there may be a few more plot twists coming as well.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
