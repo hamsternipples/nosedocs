@@ -6679,6 +6679,34 @@ the point is, if we could all just not need the manifestation for quite a while 
 
 [2]: it may not be the "business as usual" mentality, but the opposite one where anything goes ultra loose don't chain me down cause I'm a wild (wo)man. and the fear is that the old nosebook mentality will return and make things unfun again. it's really hard to tell because there's no way I can have that far of perception into the future. it seems there may be a few more plot twists coming as well.
 
+### 2019-05-05 15:03 - timelines like lightning
+
+@[vimeo](https://vimeo.com/28457062)
+
+it's always struck me as very interesting that the stepped leaders of lightning take so much time. electricity goes at roughly the speed of light, so why does it take so much time for the stepped leaders to find their way to where they want go to?
+
+I realised today that this can be a very good analogy of how timelines work, and it requires that you believe there is some sort of rudimentary conscious navigation to a lightning. when watching that video you will notice there is a bright initial flash, which then spreads out to a bunch of step leaders. the step leaders take all sorts of different directions until what is wanted is found (ground) and the connection is made for all the current to flow through.
+
+first, why don't we see all sorts of flashes all the time like the very beginning of the video and step leaders go out, but no connection is made[^1]? this seems evident that somehow the lightning knows that eventually somewhere a connection will be made from cloud to ground.
+
+second, you will notice all sorts of paths the step leaders take which are not pursued further. this seems evidence to me that there is some sort of metric that each leader takes which gauges its proximity toward wanted.
+
+third, the step leaders often make long branches down paths which come quite close to the objective, but they're abandoned completely, and often times a longer route will be taken toward the ground. if it were a brute force measurement of resistance between the furthest the step leader has gone and the ground, then why would the lightning abandon these large branches?
+
+these last two make it seem obvious to me that the shortest path is not always the least resistant path, and also that some sort of very basic consciousness is capable making decisions about the desired path toward what is wanted.
+
+---
+
+if you think about timelines now, imagine trying to tune into a future timeline right now. the further you go into the future, the less understandable it is, because you wouldn't understand the technology or the environmental conditions which lead to such a state. to make this simpler, imagine that we wanted to plan out 20 years in our future... well, we would need to live 20-30 years further than we are now and then we would be able to comprehend a similar future and tune into that one.
+
+if you look at the lightning the step leaders distance from the origin increases linearly, but from time to time, entire paths are abandoned because their resistance is higher than the other one. the process seems to be to send out many different possibilities and then abandon the one with the higher resistance when it is sure that the path is not the optimum route. this sureness factor is what I have spoken of in the process of tuning into the futures based on how they feel.
+
+when the lightning finally makes its connection, the route isn't the shortest path. later, if lightening had the ability to iteratively smooth out the pockets of higher resistance air, it could eventually arrive at a straight line. this is what I have referred to as "straightening out the timeline" -- and this is done by making less and less bigger jumps, smoothing out the influx of contrast[^2].
+
+[1]: I have seen these sorts of flashes where no connection is made when nosebook is making clouds really rapidly. they're overcharging the sky with energy but it has no place to go, so the beginning of lightning happens, but no connection can be made to the ground, so it just looks like bright flashes in the clouds.
+
+[2]: this is why I postulate that as we iteratively get closer and closer to going the full 22 years without me gaining my visual capacity, there will be less and less conflict, because I will have more and more emotional control and big events make things feel like they're getting out of control because they keep summoning more energy.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
