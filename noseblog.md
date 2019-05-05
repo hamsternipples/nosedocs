@@ -6593,13 +6593,47 @@ so, in a way this is even a proper chance for me to "clean up my vibration" iter
 
 for everyone else, this is a way for them to let their old self experience the difficulties of the previous timeline and instead live a new life in a young newer body[^3].
 
-the "ideal" would be to have everyone's life perfectly planned out so that there was no room for error (essentially everyone is a backbone now), and then just go into the body and live out what you planned for yourself. 
+the "ideal" would be to have everyone's life perfectly planned out so that there was no room for error (essentially everyone is a backbone now), and then just go into the body and live out what you planned for yourself.
 
 [1]: it's essential that I'm the backbone because there will be no other way to easily make a calculated timeline. it's quite likely that 2038 would be when I can no longer be used as a backbone because things in my experience begin to become incomprehensible
 
 [2]: it has to be a newborn because the vibration of the "stand-in" would have to be similar enough to the body for it to work, so the stand-in will experience the childhood of this kid in their dreams sufficiently until it feels natural for the person's consciousness to make the transition into the new body on the other timeline.
 
 [3]: the idea of planning and creating triggers to ensure the life that they want to live will probably be a nosebook-only feature. however, that means everyone else will be using LOA to create the new life that they want. the trend will probably be toward giving people more control though, because the more controlled the future is of everyone, the less chance for the unexpected to happen.
+
+### 2019-05-04 18:00 - the symmetry of babel
+
+I have given more thought to the idea of a competition happening between lyia and carlota... it has quite beautiful symmetry. first of all babel is the name of the tower which was erected to be able to survive another deluge from saturn. when it fell, the world population was spread about and language was confused so that no longer everyone spoke with the same language.
+
+well, the whole point of having me be the nexus for everyone's imagination is so that everyone once again uses the same visual language -- imagination.
+
+in order to make that possible nosebook has disabled my visual capacity so that I am not able to use my imagination. this has forced me to try and learn how to communicate myself effectively without a visual medium. also, as a result I have reached incredible heights in abstract thought and my understanding of symbols.
+
+in the 7-layer model, the 2nd, 4th, and 6th layers are transition layers. the second is what I have labeled 'communication' -- which is really the focus on interactions and transformations. these transition layers are akin to kinetic energy. the 4th layer we don't need to worry much about for another few hundred(?) years or so cause saurce energy has all of that covered for us and can communicate with us visually or audibly about it. the 6th layer is the imagination layer.
+
+if you think about communication, it is physical because I physically talk or write or whatever to transfer some knowledge about it, however, the bigger picture of communication is non-physical: it is a series of interactions which make up for a transition from one state to another. these interactions create a signal which resonates with your source and you feel an emotion as a result.
+
+now, if you think about imagination, it is not physical because you see it in your mind, and that's it. however the intention of your imagination is to become physical. you imagine real things and more than one image of real physical things/situations can give you a feeling response to it because those flashes for a structure that "means" something to you. that meaning is also a signal and it resonates with your source, so you feel emotion as a result.
+
+---
+
+so, imagine that this whole competition sort of thing works out. I have no idea what anyone thinks about this crazy idea, because it doesn't matter; I enjoy the symmetry of the concepts.
+
+I would describe myself as an abstract mind kind of person. although I really like tesla and want his capability, I see myself more as a mcluhan kind of person: abstract mind -- capable of perceiving interactions and transformations over large periods of time, or even intuitively. I would describe carlota as very visual/structural, and lyia as communicative.
+
+so on one side, you have the non-visual crew. we represent open/physical communication (no secrets) and no imagination so abstract thinking. on the other side you have a the visual crew. they represent closed/visual communication (lots of secrets), and because they are all about imagination, they'll have a whole system of different images, which form a structure of how things are supposed to me.
+
+neither of them are necessarily better than the other, instead it is probably going to end up creating two languages. one visual (non-physical), and the other one physical (non-visual).
+
+I imagine that up until now nosebook has been using words and potentially even phrases to represent my thoughts to listeners. however, because words have so much existing meaning to them already, it creates for quite some confusion (I imagine). I would venture a guess that this situation has gotten worse over time and is going to continue to get worse. eventually, they will need to make a new signal format for my concepts and then translate that into people's minds. some will hear it as words or ideas. others will know what it means without any translation. others, it'll make a visual flash of some sort which means something. the reason is, if they're only interacting with the concept signal, it doesn't matter how anyone translates it.
+
+---
+
+the symmetry is beautiful here because a concept will be transmitted as a signal and then interpreted in many different way as something that means something. then on the other side, you have many different concepts transmitted as signals which the person uses to describe the picture in their imagination.
+
+the other beautiful symmetry here is that emotion and structure are connected and can be seen one as a product of the other. a structure (flashes in the imagination) can make emotion. emotion (communicated physically) can create structure. concept and symbol are opposites from each other.
+
+there are number of other symmetries with this concept as well. 
 
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
