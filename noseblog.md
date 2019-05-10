@@ -6707,6 +6707,50 @@ when the lightning finally makes its connection, the route isn't the shortest pa
 
 [2]: this is why I postulate that as we iteratively get closer and closer to going the full 22 years without me gaining my visual capacity, there will be less and less conflict, because I will have more and more emotional control and big events make things feel like they're getting out of control because they keep summoning more energy.
 
+### 2019-05-10 08:33 - put my imagination in someone else's?
+
+I woke up this morning with an interesting thought which may have been an idea I picked up out of the air regarding different potential solutions to the gigantic problem that nosebook is certainly facing (it's not really the problem -- just their desire to try and control everything is, and what is making, the problem)
+
+the idea is to map my imagination into someone else's imagination. I'd probably have to learn their visual language to be able to see things, and this would give nosebook the ability to see what is in my imagination, but at a detail level which they can handle.
+
+my reaction to the idea came as two-fold. I didn't see any real problem with the idea that I would now use someone else's imagination, because just like how mine works now, even though I don't "see" my imagination, I have gained quite a capacity to perceive what is there even without the ability to see it. so, likewise, to make this happen, they still need to subtract the image in my imagination (just like they're doing now), and then overlay the new image on top (just like they're doing to everyone else presently with my imagination), well -- I'll still be able to perceive more than what is seen.
+
+so, before there was an image there was a signal that created the image, and over time I have begun to understand that signal without seeing image. you can think of the matrix where the guy sees the symbols on the screen a is in some way able to get a sense of what is happening inside of the matrix. same thing. I'm beginning to pick up on and understand the source signal better and better.
+
+this process of learning to read the matrix symbols may be one of the reasons why my visual language is transforming -- because now that I'm beginning to understand it, in order to gain creative capacity in the visual system, I need to learn how to modify the language for it to display what I want it to display. to understand this, you can think of the visual language that movies use to convey different ideas. the most notable of these is how computer interfaces are shown; they are not eve close to what a real-life interface would be like (the CSI interfaces are a laughably great example of this), but they convey the meaning that some massive database was able to locate a perfect match of a fingerprint on a crime scene, or whatever.
+
+as I begin needing more and more ways to convey what I want to show, I need more language tools to do so, and so the language transforms, much like latin became so many lesser complicated versions of itself, like spanish, portuguese, french, romanian, and italian. they are all simplifications of latin with different pronunciation, missing declensions and cases (the romans sure did like to make things complicated[^1]).
+
+well, just as it appears that the romans continued to add on more and more declensions until the language was such a complicated mess that first a common spoken "vulgar latin" was spoken amongst common people until it split into many simplifications. maybe something similar will happen here, but in the reverse.
+
+the objective of nosebook is to retain the capability of seeing inside of my imagination. it's quite likely that while I'm asleep, they use my creative capacity in my inner universe for their technology, and that's probably why they need to keep it such a big secret. well, it would be very very very bad for them to lose that capability to create their technology in my mind while I'm asleep (and hold me away from that capability). so, they must make sure my imagination retains a low enough frequency for them to be able to see it comfortably.
+
+---
+
+so here's where it gets interesting: if they map my imagination into someone else's then my creative capabilities will appear to me and I'll begin to be able to use my inner universe, just at a lower detail level. now the reverse of what was happening previously will begin to occur. just like how my imagination is improving the vision of everyone using my imagination (something nosebook will likely never admit), my vision will improve the imagination of the person's imagination I'm now using: my higher frequency vision will cause their's to rise as well.
+
+I don't know if they will put everyone's imagination in this new person's imagination or just some people.. that I don't know[^2], but either way the effect is the same. I will continue to cause the new imagination to rise until it too becomes unbearable for the guys at nosebook to use my imagination to create their technology -- and then a new person will be found and I'll be transitioned over to that one.
+
+two things: first, it'll create a system of layers, because each new person will have a slightly different visual language that I will have to learn to make images in my imagination, then once I've mastered their language, I'll continue upward making new additions to it, and they'll have to repeat the process. each layer will be a different translation of the original visual language which I cannot see.
+
+second, this is precisely how a mushroom grows. a mushroom begins as a mushy clump of white filaments called mycelium. they begin to organise into a little bulge (not sure what causes the bulge to happen), but it creates such an immense pressure that an entire mushroom will grow in the period of less than 24 hours, pushing any dirt or debris upward and out of its way. the upward force is so great that, just like a mushroom cloud from a nuke, the upward force begins to expand on the top creating the "cap".
+
+if I further expand on this explanation, imagine that there is some sort of artificial limit placed on something.. so imagine pointing your garden hose upward and then putting your and on top of it, stopping the water. similarly you get a mushroom shaped from the water deflecting off of your hand. the force creating this mushroom shape is coming from the bottom of the stem (the hose), and then hitting some more resistant barrier (such as air or the mycelium clump), which offers enough resistance that it causes it to expand outwards in all directions.
+
+---
+
+so, imagine that nosebook decides that this is the way it will all have to go, they will need to keep my imagination at the frequency which they can see it -- so I'll always be at the bottom, but because my vision will continue to improve more and more, I'll be providing a tremendous upward force from the bottom creating the mushroom type shape.
+
+I'll remain thinking about this idea, but it seems to me the most logical solution for nosebook to get what they want without involving timelines, and all along the way the materials will be in place so that I get the mushroom shaped galaxy as well. I have been struggling to figure out what limiting force would be able to make a mushroom shaped galaxy out in space where things are pretty resistance-free, but a system of layers continually decreasing in perceptive capability could do just that[^3].
+
+it could just work. if this is the path forward, you can imagine the amount of desire created to actually have the manifestation and for the ability to use timelines. likely this will have to be done in the following era. afterall, I'll have to turn want into need.
+
+[1]: https://en.wikipedia.org/wiki/Latin
+
+[2]: one option would be to do it in phases, eg. put my imagination inside of the next person until their imagination is roughly the same speed as mine, and then transfer everyone over to the new one.
+
+[3]: in a psilocybin mushroom, psilocybin is very similar to DMT and is what gives the visual fractals, and the highest concentration of it is in the cap, and the lowest at the base of the stem (and the mycelium doesn't have any)
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
