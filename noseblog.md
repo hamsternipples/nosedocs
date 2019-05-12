@@ -6751,6 +6751,46 @@ it could just work. if this is the path forward, you can imagine the amount of d
 
 [3]: in a psilocybin mushroom, psilocybin is very similar to DMT and is what gives the visual fractals, and the highest concentration of it is in the cap, and the lowest at the base of the stem (and the mycelium doesn't have any)
 
+### 2019-05-11 17:55 - another way to perceive the iteration process
+
+so, one of the things I've really noticed is how much hand-holding the nosebook guys have had. second, I just woke up from a strange interaction where the idea was that I was going to essentially be in the middle of all sorts of different girl's arguments, then the final idea was to have andrea collecting a whole bunch of experience, then finally we have sex.
+
+---
+
+my initial reaction to that one was of quite a bit of surprise because that amount of contrast would make for quite an energetic event. I have no idea what would happen, but I would certainly have quite an experience. to illustrate, with susana, I completely lost consciousness and that was only a tiny bit of contrast in comparison to what this would be like. I cannot even begin to try and imagine what that might be like.
+
+anyway, after thinking about that, I imagined that I would likely become so energetic, nosebook would completely lose control. I would probably make some sort of transition as I now would have to figure out a way of regaining my sense of direction with all of this new energy from previous men transferred into me from andrea. I guess that came as a response to my conversation this morning about how I was quite a violent boy growing up, socially and mentally pretty retarded. I recovered from that and managed to get myself going once again in the right direction.
+
+back to the transition bit. if nosebook is intent on making this sort of thing happen, that's their prerogative. it reminded me of jesus' death, when his energy was no longer making everything bright and shiny, glowing a radiant golden colour. when he died, that radiance left him and the earth. this was the main event that impacted me so much so much time ago at augusto's house.
+
+so, I kept thinking about this and I have offerer the previous perspective that this whole thing is a big game to see how long and under the most adverse circumstances I was able to still find my alignment. this theory seems evident to me in the sense that it is all leading up to that sort of ending. the iterative process that I have mentioned is the way to increase consciousness in a person being born by having one or multiple people from the previous iteration also have the same experience, where like my case, there seems to be no real difference between me and the other me transferred in when I was 16.
+
+next, if you imagine all of the reality technicians that are essentially paving a path through where I get as far as I can go without a manifestation, the dead-end to each one of those paths is an unavoidable manifestation. instead, the goal is to to achieve enough units of energy to make whatever it is. this time, I have my sights set on galaxy.
+
+---
+
+well, the flip side to the same story, imagine it now from the negative. imagine that jesus has a similar internal sense of guidance that I have which allowed me to go from from being a retarded violent kid with really poor eyesight to what I am now -- means he has a strong sense that he must always go to find his alignment. there are multiple hints as to this being what is happening when jesus retreats to be alone. well, his death, clearly something, and it may have been his sale for pieces of silver which took him far enough out of his ability to find his alignment that he wept.
+
+when I had my experience in augusto's house I could "see" that one verse when jesus wept as the moment of realisation for him when he realise he had been teaching people about their value all of this time and now they were going to put such a low valuation on him. at that moment, he realised the direction that things were going to go in. following his death christianity became a religion and the roman empire would have to adapt its teachings (easy when the populous is held by the church in illiteracy) and make it into the state religion in effort to control all of these christian sects that were forming which believed in a higher power than caesar.
+
+well, I had a similar realisation when I woke up just now, perceiving that the idea of being stuck in the middle of all of these girls arguments would be similar to solomon who proceeded the fall of jerusalem, and similarly the roman empire. the roman empire is analogous to nosebook and the restriction of ideas by the roman church and outside invaders, plus moronic leadership a dilution of army strength and outside invaders lead to the collapse of the roman empire. well, army strength could easily be seen similarly to how a startup's tech team loses potency rapidly as the company grows, and outside invaders are not barbarians but other companies that want to begin to capitalise on tesla technology.
+
+back to jesus: if we imagine a timeline where jesus did not die, technology would expand rapidly, and in less than a millenium they would have gained tesla technology and timeline technology and are likely many of these "reality technicians" that I perceived and a part of the whole elaborate scheme to make these iterations.
+
+that short verse, "jesus wept" -- I believe is a sign of the opposite timeline -- a timeline where the goal is to make the most grotesque ending to the his alignment to summon the maximum desire for the following era.
+
+what I mean is, in order to have a timeline where someone like me would practice gaining his alignment even under the most adverse of circumstances, then you need to create those circumstances as well. that is created by having this guy lose his alignment in the most grotesque way possible[^1], leading to the collapse of the current system of control in place, spawning a new controlling world view to make for an even more difficult environment for him to try and try and find his alignment in.
+
+---
+
+all of these different interpretations exist at the same time and all of them are different ways (or timelines) to see the same thing. in my perspective all of this is immaterial to my objective of getting connected. I can't possibly know which timeline we are on, because for me it's all the same: find my alignment no matter the cost, and keep it for as long as I can. I definitely exist on all of them, and it's quite likely that my consciousness will go toward the one where I'm able to keep my alignment and come back to make more iterations.
+
+nosebook should keep workshopping their plot to derail their empire as much as they see fit. they (and others they convince) will perceive it as trying to get me under control.
+
+you can't have a happy ending to an unhappy journey.
+
+[1]: the most grotesque way possible is likely also run by the same "reality technicians". each attempt to make a more and more grotesque ending is obviously made possible by iterating in the same way, where each person aimed at making these more and more awful outcomes, will, from the previous timeline be sharing the experience of another one in the present timeline to make the finding alignment more and more difficult, and also to create a more and more grotesque ending and subsequently a more twisted control system for the next iteration.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
