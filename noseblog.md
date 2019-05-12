@@ -6791,6 +6791,18 @@ you can't have a happy ending to an unhappy journey.
 
 [1]: the most grotesque way possible is likely also run by the same "reality technicians". each attempt to make a more and more grotesque ending is obviously made possible by iterating in the same way, where each person aimed at making these more and more awful outcomes, will, from the previous timeline be sharing the experience of another one in the present timeline to make the finding alignment more and more difficult, and also to create a more and more grotesque ending and subsequently a more twisted control system for the next iteration.
 
+### 2019-05-11 19:20 - when did I see those things at augusto's house?
+
+on of the funny reactions from the previous entry is when at augusto's house did I see those things. I honestly don't remember. however, I will say that the mushroom experience started out being somewhat visual, but it's visuals became less and less with time until I experience the visuals similar to how I "see" my imagination now: I don't actually see anything; rather, I perceive it and it's real to me just as if it were there. I talked with many different "entities" -- and I say entites because I could not see them. if I tried to imagine them, I overlaid terence's self-transforming machine elves or whatever.
+
+however, I finally settled on the reality technicians because I could see that they were modifying the vibrations of these different strings by affecting changes in them much like you pluck strings on a guitar. I really had no visual representation for them and they still exist in my mind in this non-visual (non-physical) way. there was no way for me to even attempt to try and make reality sense of them. they adjusted the strings of reality.  I didn't understand timelines then like I do now because I had not fully realised then that someone can tune into someone else's experience like nosebook has made available to everyone -- but across timelines.
+
+---
+
+so my answer is going to be: I probably didn't see them at all. I know now that nosebook was doing all of the seeing and keeping me only seeing the physical stuff my eyes see (just like now). likely, I had gotten so good at perceiving these things that was the most effective way to transmit me information that went under nosebook's radar. since I have no idea what I did see, and it was unnecessary in the drug experience for me to get the information I need, it wouldn't surprise me if the things nosebook saw in my eyes or imagination was merely an illusion or a distraction from the real content.
+
+well played mr. mushroom :)
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
