@@ -6803,6 +6803,46 @@ so my answer is going to be: I probably didn't see them at all. I know now that 
 
 well played mr. mushroom :)
 
+### 2019-05-13 13:52 - last thing
+
+regarding the previous entries, one could simplify them into the following message:
+
+nosebook is pretty determined not to allow me to ever get connected, yet this is an impossibility that nosebook cannot control. in other words it'll eventually happen, and along the way there is a proess of preparation -- of getting ready (something I will talk about more in the next entry).
+
+as we all get ready for whatever it is that we are able to believe, there is a division that is taking place. on one side I am saying that my life is evidence of and it's quite possible to continue to live on forever joining in on the experience of another vibrationally similar body[^1].
+
+however this concept requires the ability to tune into other people's bodies in other moments of time. this means there are no secrets anymore. anyone could know anything about anyone or visit any portion of the history of someoene's life. also, for best results, in order to create the reality you do want to live, some emotional control is necessary, as it's the tuning and discovery process of discovering what reality it is you want to experience in your next body.
+
+---
+
+obviously this is a complete no-go for (most of) nosebook[^2] as it is presently. instead nosebook wishes to do most things without people's permission, so therefore those things (amongst others) need to be keept a secret.
+
+these secrets empower them, because they feel that the more they know (the more data they accumulate) about the way people and things work, the more power they have. as a result they must remain the most powerful by knowing the most. it's a simple superiority complex, and it's not really a big deal because it's all illusory. they could know everything they want to know about someone, and have perfect knowledge of how the human body works, and they still would not be able to prevent someone from their connection or from something they strongly desire.
+
+true empowerment comes from one's own emotional control, as it's basically the funnel through which all reality flows through. the reason why they need so much hand-holding to get the technology and answers they're looking for is because they have not yet learned how to find a way to feel good about something that bothers them (by looking for a different way to perceive it).
+
+so, as a result, they feel they must control their physical experience as best as possible because they still believe their physical experience, not their perception is what is making them feel bad. this creates in them strong desire to control things that they ultimately cannot control. the pinnacle of this struggle is taking place regarding my own connection. they can't allow it, and still feel they need to control it.
+
+since this idea of controlling or regulating someone else's abilities is just the tip of the authoritarian and disempowerment iceberg, there are still quite a few people who also have similar beliefs. everyone is capable of believing whatever they want to believe and no one is going to be able to change that.
+
+---
+
+so, their strong desire to control their conditions to feel good combined with my strong desire to get connected is creating a soon to be realised division. both sides will be right as the people who do not have resistance to the idea of eternal life (and a connection to all-knowing infinite intelligence) will experience a reality where timeline technology becomes a reality. the rest will experience «creation by default», and will go whatever other way they want to go.
+
+we'll be back again together soon enough though as the timeline side (or at least I) will be back for more contrast in the alternative reality.
+
+---
+
+I can't really know much about any of it, but this is a pretty amazing time because of the emergence of timeline technology. I am fairly sure this is far from the last iteration. I am sure that future iterations will compound the light density of everyone on the planet though. each split creates a bigger manifestation and a bunch of nay-bobs. the nay-bobs get put into the next iteration's nay-bobs and we create our own reality we want to live again leading up to the split.
+
+I imagine that at some point in time though (and it may be this iteration), that timeline technology will come on to the scene before the split. this is important because then they can begin to use it and find out for theirselves just how little control they really have[^3], and find out that this entire time they've only been holding their own selves away from what they want and that they are experiencing their own worst timeline -- eg. if things were only slightly worse, they'd be dead, and there are infinitely many improved timelines where they have lost their perceived control of others.
+
+[1]: I often times wondered what fwh said when he said that tesla had reincarnated in 2000. well, it seems obvious to me (and probably to nosebook who talks with him in my dreams) that tesla and I and many others share my body. this is essentially the physical equivalent of your non-physical inner being (the source part of you).
+
+[2]: it is obvious to me that all of nosebook is not the nosebook that I interface with. mostly, people are probably following orders even if they disagree with those orders, so I would imagine that it's a pretty divided and confusing place to work at. they have first hand knowledge that most of the things that society values does not give happiness, and that 99.9999% of people are living the best fabrication they think they can sell to the public. so, when I say nosebook, I am referring to the ideas running nosebook right now. people create these ideas, but I am not concerned with the people. like mom, they are just following directions -- mostly because they still believe in the validity of those ideas.
+
+[3]: actually, I believe the whole nosebook experience with this technology now that they can look into anyone's life (even their foreign adversaries) and it has been a bit of a reality check for them as they have begun to realise just how little control their law-enforcement and military has. it's probably been a pretty eye-opening experience as to how out of control (in their opinion) things really are.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
