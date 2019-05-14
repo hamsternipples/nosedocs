@@ -6843,6 +6843,65 @@ I imagine that at some point in time though (and it may be this iteration), that
 
 [3]: actually, I believe the whole nosebook experience with this technology now that they can look into anyone's life (even their foreign adversaries) and it has been a bit of a reality check for them as they have begun to realise just how little control their law-enforcement and military has. it's probably been a pretty eye-opening experience as to how out of control (in their opinion) things really are.
 
+### 2019-05-13 18:38 - megalithic structures
+
+yesterday I commented on a video with howard crowhurst commenting about the kercado dolman @[youtube](https://www.youtube.com/watch?v=TznzPjLRtYg). anyway, today I was thinking quite a bit more about it and I have a few ideas. I hadn't really given much thought into what purpose these ancient megalithic structures have to the early human until today. I think these dolmans kind of tied it all together for me and I want to share it.
+
+these dolmans seem to have a pattern of two structures or, a single one divided into two parts at the end of a long shaft and that shaft seems to be positioned such that it aligns with the solstices in a geometric way.
+
+one of the dolmans (marchandis) was built with a tablet at the end which was divided into two sections. winter solstice the sun comes down the corridor and hits the left hand side of the stone.
+
+@[youtube](https://youtu.be/tHNf4SLPLPA?t=2079)
+
+following, another one in gavrinis was built similarly so that even as the sun's position changed in future times, it would still hit the end of the corridor at a certain angle illuminating the left hand side... what about the right?
+
+
+@[youtube](https://youtu.be/tHNf4SLPLPA?t=2323)
+
+turns out the right side is illuminated by the full moon.
+
+in my mind, these are clearly the balancing acts of the different hemispheres. the left one being the square and the right one being the circle[^1]. there seems to be much evidence that these two forces needed to be balanced. the egyptians modelled this with squaring the circle with two 3-4-5 triangles, one 11 size square representing the earth, and another 3 size square with a circle inside of it representing the moon. the circe with the same size as the square the earth fits in, goes through the middle of the moon. obviously because the earth is not *really* the size of the square, but of the circle that fits inside, this is evidence of another square going around the circle, infinitely bigger and smaller, representing a step system.
+
+clearly, to me the ancient builders are concerned with the balancing of these two energies, so when I was imaginging how these dolmans were used, it seemed obvious to me that on the solstices these dolmans were collecting the energy from the sun, then each lunar full moon (lunar solstice), collecting the energy from the mon on the right side.
+
+so, I would, on the equinox go into the dolman and position myself either toward the corridor, so my left hemisphere is on the left, or I would position myself looking toward the tablet so that the hemispheres would be reversed. the reason why I would go on the equinox is because that is when these energies are the highest (eg. the rate of change is the most rapid.. on the solstices, rate of change is the slowest). if I had psychoactive substances, I might try those for an even more mind blowing experience, but facing the tablet should feel like a very invigorating sensation coming all over your body as the opposite energies are connected. if you want to visualise this as male and female connecting, squaring the circle, or head (circle) and body (square) being connected, is up to you.
+
+the opposite direction should feel like a strengthening of the two energies as square becomes a bigger square and circle becomes a bigger circle. neither position is better than the other one.
+
+---
+
+I would imagine that all of these different megalithic monuments are just energetic transformers, and I would imagine that all of them have a spot or a chamber designed to place your head such that it is most impacted by the energies on energetic moments[^2].
+
+so, who and how were they built was another question that was asked. well, who -- would be people like me, looking for the next biggest way to receive even more energy from the sky.
+
+how were they built? well, the builder would need to have centimeter precision at distances of kilometres. you can tell that if I did not have so many clouds all of the time and nosebook wasn't obstructing my vision of the star, I would gain visual clarity at an even more rapid rate than I am right now. I think it's certainly possible to have centimetre precision visually at kilometres of distance.
+
+next, they would need some sort of arial vantage point. I don't need to further talk about how if nosebook would let up on me energetically I would be able to levitate quite easily. that seems easy to me.
+
+lastly, there's transport of these stones. levitation requires someone to be able to move around electrostatic forces with their mind. well, if you can move around charge inside of you, just like the hermetic teachings illustrate, you should be able to do it outside of you, too. moving around energy in such a way to cut a rock is probably not that difficult. these same forces could also act on the rock to polish them into impossibly smooth surfaces.
+
+---
+
+so, I would imagine that the builders of these monuments was maybe a couple of people of people total who figured out what I have figured out. these monuments predate language and writing so most communication and structure was very minimal. communication has a dramatic effect on ideas, and language provides a system of definitions and limitations to which the mind of the speaker inherits.
+
+imagine someone who is addicted to energy, someone like me, and they don't have formal mathematics, so in their primitive minds they have very little definition. things seem to work out by fitting things together, so you take the double square concept, you add on to it and get the triple square, then another triple square you get a 3-4-5 triangle, and all sorts of permutations later, a builder could visually use these primitive building blocks to construct a new better receiver of energy than previously to get to the next level of mental clarity.
+
+so like tesla, they would begin construction of this new receiver of energy in their minds testing it out until it received energy just the way they wanted it to be received in the harmonic ranges they wanted to excite in their mind, then they set out to build it. at this time there was no structure in place telling them that something is not possible so they would just build it.
+
+to onlookers, they would appear as gods, and when asked how they could do it, similar to tesla trying to explain how he saw all these inventions in his mind previous to their construction, the construction appeared magical or directed by a supreme being.
+
+some of the things that appear to be random, like for example the many different shaped stoned in the carnac alignments, are likely not random. I would be fairly certain that each of the rocks resonate at a slightly different frequency in the rows and they will follow a pattern such that the highest frequencies are the furthest out, getting lower going toward the dolman (the receiver). you have to imagine a child playing in the dirt when a stick is a machinegun. appearance does not matter; the rocks were taken out of the earth so that their shape was to be the correct frequency.
+
+---
+
+to me these megalithic sites appear to be simple to create once you have your visual capability activated. watch some stars to bump up your energy to insane levels and soon the stars aren't enough.. you gatta make things like pyramids and such to amplify that energy into something really notable.
+
+I've never been able to visit a megalithic site before in my life, but I'm excited to do so one day. I also think that after having seen these and given it some thought, it has evoked a strong desire in me to begin creating my own megalithic energy transformers in the future, too. most of the time will be the fun of learning the geometric concepts and making it in my mind. the actual construction of something even as big as the pyramids shouldn't take more than a few months.
+
+[1]: sometimes, and I think this is evidence of a change in the way of thinking, the moon has been masculine and the sun feminine, and other times the earth is square (four corners, etc.) and the moon is circle.. it seems to have alternated in human perception perhaps at least once. velikovsky claims there is evidence the moon was the greater luminary at a time long ago in human history and at that time, the moon was masculine. similarly the square and the circle I have noticed there to be confusion, but clearly these are the two forces: the yin and yang the ancient builders worked with.
+
+[2]: different people will have different results obviously based on their sensitivity. some people may be able to be in these energies and not have any effects, however, I can lay on the ground during an eclipse and begin to see visions. it also happens during sunrise or sunset.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
