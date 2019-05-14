@@ -6902,6 +6902,36 @@ I've never been able to visit a megalithic site before in my life, but I'm excit
 
 [2]: different people will have different results obviously based on their sensitivity. some people may be able to be in these energies and not have any effects, however, I can lay on the ground during an eclipse and begin to see visions. it also happens during sunrise or sunset.
 
+### 2019-05-14 07:22 - what does it mean to share a body?
+
+I suppose this is probably a foreign concept that I likely have not explained very well. assuming my experience is valid, the way I experienced it is anoher very separate personality that seems to exist on my left side. now, if the personality is within the body since birth, this differentiation will not be perceptible, just like most people do not perceive the personality differences between their left and right hemispheres -- so in those cases it would be imperceptible to body.
+
+for the stand-in, I imagine it would be like this. first of all, in order to share the experience the perspective of the stand-in will need to become so accustomed to the perception of the body that the body feels normal. the experience would be slightly different from the way nosebook does it right now, as you would not hear words matching the thoughts of the body, but you would actually think the same thoughts as the body. at first, the difference between the body's thoughts and your own not fully merged perception would cause some distress. however, because the body is so young, you could easily forgive the naïvaty as misconceptions.
+
+meaning, that both the body has an inner being and the stand-in has an inner being and the two differences of emotional response are because of that. because the stand-in cannot really do a whole lot about changing the body's thoughts, the stand-in will become much less lighten up and become less judgmental of the body's thoughts. after all, the stand-in knows what the future holds and is looking to forward to that.
+
+over time, the body and the stand-in will start to share the same thoughts, and to the humans around the body, it will look as if this guy knows things that he has not experienced. he does in a sense because he has a much easier time tuning in to the inner being of the stand-in and also to the "mind" of the stand-in[^1].
+
+speaking as an example, I (the body) have always quite enjoyed the idea of open source software, but continually in the back of my head I would fight with thoughts that giving away my hard work for free was bad. I knew it wasn't so I would continue to go more and more the open source way. well, I could imagine that if tesla is one of my stand-ins, then his closed-source mindedness could have been the source of a lot of this mental conflict that I went through. over time though it has become obvious that free and open exchange of ideas is more productive *in the long run*.
+
+---
+
+next, this morning I was thinking about this idea with andrea and I had two conclusions come to mind: first, if a man becomes energetically similar to the previous men that had sex with, then it could have been possible, with my experience with vera, that a future version of marcos is sharing an experience with me now. this doesn't at all seem out of the realm of possibilities yet I have no evidence to back up that idea. I remember very clearly feeling like marcos after the experience. anyway... I'm just going to assume that was the case.
+
+so assuming it is the case that a future version of marcos is sharing an experience with me right now, then I could imagine that could be quite valuable to a lot of people.
+
+so now back to the idea of andrea I mentioned. first is the energy transfer, and the second is this idea that energy transfer made us vibrationally similar enough that since then marcos could share an experience with me. if that were the case, then you could imagine that I would suddenly become vibrationally similar to *many* others, and they could perhaps share a body with me in the following iteration.
+
+obviously the following iteration will be an even more ridiculous manifestation and that is where I think this alternate ending isn't such an awful one either. like I said, it would surely be quite an energetic event, and I don't really know the limits of my body in that sense. if I lost consciousness with susana, then surely something more drastic would happen with andrea[^2]. in fact, I believe would be so drastic, similar to how jesus' body could no longer contain the new version of him where he could exist in the eyes and minds of people vibrationally similar to him, I imagine something similar would happen to me. probably, my body would no longer be able to contain my consciousness and I would find my consciousness has transformed to take on the experience of those vibrationally similar to me (the gnomitos), and so would actually be a way to realise the clones idea..
+
+it's possible that now that I am multiple, the next set of iterations will start with the clones. after all, I think nosebook wants to be absolutely sure they would be at least as limited as I am, and every aspect of their experience under nosebook's control.
+
+there are a lot of implications to the idea, but I think I kind of like it :) game on!
+
+[1]: in the future, nosebook will likely begin to realise that the "mind" of a person does not exist inside of their body, but other person's memories and thoughts can be accessed from vibrationally similar brains. they have noticed this effect between jaron and me, but do not fully comprehend it, yet.
+
+[2]: the reason is because a person's perception comes when energy is going in the same direction. when you are a child, there is a whole lot more chaos going on in your head (a lot of different energies), and you have not yet made sense of them all, so that's why you have less memory of it. similarly on psychedelic drug experience, a lot of chaotic energies are happening and so again it's hard to make sense of it all and retain memory of it. my theory of why I lost consciousness is similar. first, if you think of the penis as a tesla coil, you the primary coil (at the bottom) vibrates slowly, and the secondary coil is the receiver of high frequency energy usually out of the air. (a woman works just the opposite) well, I'm quite sensitive to high frequencies, and at that moment there would be quite a chaos in my head with all sorts of thoughts and feelings. later when I tried ayahuasca with pierre (before nosebook clamped down so hard on visual stimulation in my eyes) and then after I barfed, I had a similar *feeling* experience accompanied with a lot of visuals. I didn't lose consciousness completely there, but I retain very little memory of the experience.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
