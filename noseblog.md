@@ -6932,6 +6932,79 @@ there are a lot of implications to the idea, but I think I kind of like it :) ga
 
 [2]: the reason is because a person's perception comes when energy is going in the same direction. when you are a child, there is a whole lot more chaos going on in your head (a lot of different energies), and you have not yet made sense of them all, so that's why you have less memory of it. similarly on psychedelic drug experience, a lot of chaotic energies are happening and so again it's hard to make sense of it all and retain memory of it. my theory of why I lost consciousness is similar. first, if you think of the penis as a tesla coil, you the primary coil (at the bottom) vibrates slowly, and the secondary coil is the receiver of high frequency energy usually out of the air. (a woman works just the opposite) well, I'm quite sensitive to high frequencies, and at that moment there would be quite a chaos in my head with all sorts of thoughts and feelings. later when I tried ayahuasca with pierre (before nosebook clamped down so hard on visual stimulation in my eyes) and then after I barfed, I had a similar *feeling* experience accompanied with a lot of visuals. I didn't lose consciousness completely there, but I retain very little memory of the experience.
 
+### 2019-05-15 06:38 - gnomitos v1.0
+
+I've begun to think about the logistics of the gnomitos idea. first of all, I consider this the most complete version of the idea that I've had so far. it probably will change again so consider it more of a proposal or an rough direction.
+
+first of all, I think nosebook should make this into a production so they can recover their costs or whatever; it should be quite lucrative. ok, so on to some of the ideas I had.
+
+#### general order of events (key ingredients to my proposed implemntation of this idea)
+
+I would definitely want to verify these things with infinite intelligence before heading off, however I'm fairly certain as to their validity. these are my proposed order of events.
+
+##### make gnomitos
+
+this is fairly obvious. I envision this happening and their growth and development to be sort of a group effort. the idea is to find girls with no previous relations that want to have babies (I'll call them maidens). those babies will grow up as children and the boys will eventually also have relations with other maidens. the objective being that the maidens tranfer my energy to the boys (hence the name gnomitos).
+
+##### grow them up with the education preferred
+
+with enough girls in this effort, it should be quite easy for them to gain an education similar to how the early pioneers did, where education was much less systematic. I don't perceive the form it'll take right now, but I'm sure lots of different ideas and things will be tried until something that works well is found.
+
+##### at some point I make my transition
+
+this is the main idea here that interests me the most and it comes off of the andrea idea in the previous entries. it's implementation could also be potentially done with an ultra high dosage of mushrooms (or other psychedelic)
+
+what I need is a strong enough influx of chaotic energy such that my conscoiusness leaves my body because it cannot make a valid perception. when this happens, I will begin to organise the chaos into something that makes enough sense such that I'm able to regain consciousness. however, when I regain consciousness, my consciousness will not return into my body, but into the the bodies of the gnomitos.
+
+this is some 20 years or so away I'm sure, but at that time, I could imagine that each of these gnomitos will have quite a following by then. in the production, I'm sure that many people will gain favourites and will enjoy sharing the experience of each of them as they interact with others in the colony
+
+probably they will be pretty strong will little buggers so most of the boys will likely go on to start their own colonies with probably a very similar format. this allows other girls to find the boys that they like and eventually want to form a part of his new colony.
+
+#### colonies as a building block
+
+I'm sure that other colonies can and will exist in different ways, and that is not my concern. however, we need to realise this new structure into 4 groups:
+
+* colony members
+* colony liaisons
+* everyone else (consumers of the content)
+
+which are:
+
+* people who work for nosebook
+* people who don't work for nosebook
+
+ok, now I'm not saying that countries will cease to exist and the recognised financial structure to be upended at all. I'm sure they will either not change or change just the same as they are now. for my mental organisation of this idea, the structure of the world system is not of my concern. likely, it will continue on just how it is right now. this is why there are colony liaisons to create a sort of buffer or interface to the outside world.
+
+you could imagine countries as a big colony with the government system as its set of rules if you want, but the reality is colonies are more like a movie production than anything else. they exist inside of a country, and pay taxes to the country to which the movie studio belongs. in this case nosebook is the studio and the US is the country. this is getting a bit too technical here, only as an example.
+
+next, the reason why I say the people who work do/don't work for nosebook is because I can imagine that there will be a general trend toward this kind of lifestyle over the span of the next 100-200 years. someone still needs to run nosebook though. so you could imagine that nosebook may begin to make a sort of transition some time in the future toward being recognised as the owners and maintainers of the infrastructure upon which these productions are built (studios)[^1].
+
+[1]: now that I think about it, the colony system may be a beneficial idea for nosebook to adopt in order to keep all of their secrets and such under control and have selective education of the nosebook stuff.
+
+#### no need for timeline technology for this
+
+people in the world system wanting to make a transition into one of the colonies could do that with the same idea I mentioned in the timeline technology version, but without timeline technology.
+
+imagine a person is getting older in their life and they decide that they would like to one day wake up as a member of one of the colonies, so they find a colony that they like and a child that has just been born. while sleeping, they spend their time inside of the child's body until one day they get so used to the child's experience, that they simply wake up in the child's body and ride along inside it, until eventually the child's experience is perceived as if it were their own.
+
+I'm not sure the details on this, but I know it would be possible to begin living forever without timeline technology, jumping from body to body. this alows another thing for nosebook to profit off of and control by givng people a way to, instead of dying, simply transfer their consciousness into a more desirable environment and grow up once again.
+
+also, it gives kind of a return on investment for the liaisons. I imagine that they will put effort into making the colony into somewhere they would personally like to live. and then, with the implementation of this, it will become possible for them to actually wake up in the environment that they helped to create.
+
+#### how much isolation?
+
+most children grow up in a little bit of isolation. I don't intend to really be using a whole lot of electronic devices myself. I will have the internet and stuff, but like presently I don't really want to be very involved in what the world has to offer. the reason why is obvious: I don't want there to be a difference of opinion about things. I simply don't care enough for it to be useful to me. I don't really want to get involved so much either -- so, to some extent there will already be somewhat of an isolation happening.
+
+this makes for a unique scenario to develop where nosebook really will have essentially full control to present the bits of the outside world that leak through in the way that they want it to be perceived.
+
+#### conclusion
+
+I've been working on this idea trying to get all the angles so that it works out in such a way that it's the one which is most desirable for everyone.
+
+hopefully it'll be amended soon as I gain more of a sense of what is wanted.
+
+this is a sufficient first complete rendering of the concept
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
