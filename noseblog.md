@@ -7005,6 +7005,18 @@ hopefully it'll be amended soon as I gain more of a sense of what is wanted.
 
 this is a sufficient first complete rendering of the concept
 
+### 2019-05-15 08:33 - gnomitos investors
+
+if you think about the concept as a production, like a film or a tv series, the production looks for financial backing, a budget is established, then costs are recouped by the investors and profit divided. I think a similar concept could be applied here to this one. I am familiar with funding a startup, so perceive it in that light.
+
+if a feasibility study were to be performed about the projected performance of such a production, looking for a angel round of funding for the production, high risk investors could jump on the idea, shareholders created, dividends, etc.. I'm sure the viability is there.
+
+these shareholders, would make the investment, setting the budget of production, then just like a film production, all of these implementation details are essentially transparent to the cast.
+
+in my case though, I do not want the cast to be paid, as money tends to create a lot of problems. I really think that nosebook should do all the stuff they want with the money. the benefit we receive is not monetary, but of living in different situation that does not involve these ties (like money) to reality -- much like a movie set is different from the present: maybe set in the wild west, future, mars, etc.
+
+who knows, maybe these sorts of start up productions will be eventually even become publicly traded on some sort of market similar to how google and facebook are now publicly traded entities.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
