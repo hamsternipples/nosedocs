@@ -7017,6 +7017,32 @@ in my case though, I do not want the cast to be paid, as money tends to create a
 
 who knows, maybe these sorts of start up productions will be eventually even become publicly traded on some sort of market similar to how google and facebook are now publicly traded entities.
 
+### 2019-05-15 11:10 - maybe, I'll make my own way
+
+it occurred to me feeling the reactions to this, that although it is up until now the most reasonable idea that has emerged, likely there will be all sorts of feet dragging on the nosebook side of things.
+
+I think I remember (and I have no idea how I know this) andrea begging marcos (saturn) to just find a way to let it happen, offering as many different ideas as she could, like living at her house, etc. -- and marcos just couldn't allow it for some reason. he dragged his feet delaying it forever. finally after some time she decided she would find her own way.
+
+probably this will be a similar situation with nosebook (saturn) forever dragging their feet on the execution of the idea. I actually don't really want to try and figure out what holds them back toward going toward something they want. I honestly am having quite a difficult time wrapping my head around the complicated reasons they hold theirselves in such agony.
+
+so, it seems very likely to me that no progress will be made on nosebook's side of things over the next year. as a result I will be preparing to find my own way on this thing. first and foremost, my first step is to get connected, so I will be continuing on with this effort as I already am. I really feel I'm making quite a bit of progress; I'm much more lucid now than I ever have been and it's increasing rapidly. I have no idea the time frame for when I might be able to get it, so I won't even try to estimate when it will be.
+
+after that though, I imagine that nosebook will still be hemming and hawing, so I'll just go find the investors myself. I don't believe it'll be a difficult to convince investors of anything, because the load up to it will be quite dramatic and I'll be pretty prepared as well[^2].
+
+there's a lot I can be doing now to begin preparing for that, so one of my goals will be to formalise the plan that I started out: @[entry](2019-05-15 06:38). obviously with nosebook not in a cooperative state, this creates a HUGE market opening. HUUUGE I tell you.. it has been my intention to begin creating some of this technology that I've begun to understand recently and I'm pretty sure that there are quite a few different projects that can become real useful things for people. some of those ideas I'd like to begin to document as well.
+
+probably I'll have to use code words to say what I want to say, so for example the gnomitos idea is something akin to setting up an ice cream stand. everyone will know what I'm really talking about, so I can actually converse with people about the idea without muttering the forbidden name of nosebook (god). after all, we're just talking about an ice cream stand...
+
+---
+
+one of the things I want to try and avoid is to make this into too much of a business plan. I have a good sensor and can feel what people want pretty well and I'm pretty good at translating into words too. nosebook has likely completely nailed the sales of what they have to offer to men, but this idea is geared a little bit more toward women so I really want to find a way to improve the feedback I get on this idea. I have some ideas, and little by little I'll begin moving toward them. this feels like the right way forward. like andrea, I'll figure out how to do it my way.
+
+my way will probably be a bit of a slower buildup though so don't expect anything to happen immediately. the gnomitos operation to me is on a time scale of 50+ years, so I'm not in a terrible rush. once energy starts to get moving though, it will feel like things are all of a sudden moving very quickly[^1].
+
+[1]: interestingly this difference is is also evident of the difference between how women experience arousal :)
+
+[2]: I'm going to make a bold claim here, but when I get connected, you will see tesla operating my body right along with me (as if we were one) and all his knowledge of these subjects will be available to me and mine to him. I have a strong feeling that edison is in the mix as well as I'm all about the practicality of interface and usability. as a bonus, I've already begun to realise pulsed DC and a 3d current and similar to my capacities that will begin to manifest themselves, this realisation can do things that would be considered impossible (I'm referring to my periodic exponential curves on a vector making a spiral conversation I had with mom).
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
