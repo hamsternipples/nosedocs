@@ -100,6 +100,8 @@ anyway... there are many different ways for me to begin to experience the world,
 
 you can imagine that with nosebook gaining so much experience learning to control the human experience, they will become quite the experts at limiting and controlling people with their machines. however, they will certainly get better at controlling things, I am also certain that it'll become easier and easier for us find our alignment each time.
 
+in a sense, it would become a bit of a rite of passage.
+
 ---
 
 OMG! I just realised something! if we implement the idea that people will be able to make their transition into our bodies in their sleep, then you could imagine that this also creates a mushroom shape when I think of the concept visually. the creation of this shape, while having the form of a mushroom it's created exactly opposite of how the mushroom is formed.
