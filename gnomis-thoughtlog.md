@@ -108,4 +108,6 @@ OMG! I just realised something! if we implement the idea that people will be abl
 
 you have the common people all being born and watching these different colonies. eventually at the end of their lives, they decide in which body they want to wake up the following morning (realistically more planning is done than that), and then they can live out the experience they wish to have... each of these colonies creates kind of a tower, but if you flip it over it *could* be a mushroom :)
 
+actually, I believe a better way to perceive it would like a stadium with a stem underneath it. the colony is the stadium, and the audience is around it.. the stem shows the duration of the colony though time. actually, we could call them cultures instead of colonies. I don't really like the name colony very much.
+
 [1]: I know there is all kinds of baggage with the word earning and it is a very american concept too. it may be a latent rebellion to the british crown that is kind of built into us: that they can't just sit high and mighty back at the castle and collect taxes and resources from something they are putting no effort into to create. that same rebellion to the british crown was most likely the primary motivating force behind their desire to declare independence.
