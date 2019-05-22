@@ -7083,6 +7083,22 @@ who knows what this means really, but I may have derailed the gnomitos idea enti
 
 [1]: interestingly enough, this is one of the things that I loved about mdma. although it makes me more sensitive to feelings in general, I found other people's feelings to feel kind of bad in comparison to my own. mdma is like a super amplifier of my own feelings, which is why it drowned out my logic (something I kind of relearned at marcos' house). being so enthralled with my own feeling experience, you could imagine how much calmer I felt and how much I enjoyed being me again.
 
+### 2019-05-21 21:55 - what I meant by "derailed the gnomitos idea"
+
+well, what I mean is this sort of technology is kind of like a two-edged sword: at the same time as it could allow everyone to delay and get up to speed at their their own pace with the increased sensitivity, it also would allow them to essentially make any sort of manifestation nearly impossible. being able to kind of regulate which concepts appear in someone's mind has the potential of essentially exerting an enormous influence on the perception of any thing. this means they would be able to manipulate the way someone perceives something quite easily.
+
+so, if they wanted to, they could completely tank the whole thing. I don't really know what they want, and perhaps the organisation itself is quite divided. with the implementation of this, they would have the ability to make sure that no manifestation occurs, or they could do something else. it really is up to them.
+
+---
+
+so, with that in mind, I began to kindof think that perhaps this is instead almost kind of a checkpoint in the timeline or something. you see, it seems like we've reached a path where both (all) paths lead toward wanted for me. if they tank the whole thing we're going to continue on to the galaxy idea where I go the whole way without a manifestation. however, if a different path is taken, it looks like we're probably on the path toward the realisation of the gnomitos idea.
+
+this kind of bothered me at first because I thought that maybe it would be the end of the timeline... but upon thinking about it more (mushrooms help), I think that it may not end the timeline at all, but actually strengthen it further. assuming I will be able to make my transition into multiple bodies that are vibrationally similar to me (and I'm nearly certain that it's possible), then actually when we go back to ensure that nosebook tanks the operation, many of the bodies that I will soon occupy will go into the body that I occupy now (along with a few others).
+
+this is kind of an interesting idea to me because it really breaks the rules in my mind about timelines. if I exist in say 100 bodies, then 50 of them go to live in galaxy kenny, 10 stay on the present timeline, and 40 go to be in various other bodies that will be a part of the plan to ensure the success -- why then, I'm a one man army in the sense that now I can have multiple points of perception in multiple different timelines -- at the same time. woah
+
+lol, I know it's a bit weird to wrap your heads around what I'm saying, but it seems like a really cool idea to me and I seem to be pretty chilled out about the whole thing in general. I think it's all working out just fine :)
+
 ### bird interaction
 
 ### consequences of more conductive air - 1915? - ww2?
