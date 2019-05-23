@@ -7099,6 +7099,48 @@ this is kind of an interesting idea to me because it really breaks the rules in 
 
 lol, I know it's a bit weird to wrap your heads around what I'm saying, but it seems like a really cool idea to me and I seem to be pretty chilled out about the whole thing in general. I think it's all working out just fine :)
 
+### 2019-05-23 08:44 - creating a new language
+
+I had a series of interesting things begin to happen this morning, but one of the notable one was that I've started to become semi-lucid in my dreams. I've figured out how to just observe the dream and not react to it so much.
+
+I think this whole series kind of kicked off when I had a dream where I was capable of flying again. this seemed hugely disastrous to them which is why the wanted me to tell them what I said about how I'm capable of becoming lucid in my dreams.
+
+following this one, I'm in a new dream now where I'm watching myself be experimented on[^1]. I immediately become violent because I do not want to be experimented on. I wanted to go and remove myself from the machinery they had me connected to, but every time I tried to get into the room, another barrier was put in place. this is when I started realising that other people's thoughts were becoming manifest and affecting the reality of my dreams. eg. the tech didn't want me to disturb myself, so he would create barriers with his mind.
+
+I found some screwdrivers and a knife. the screwdrivers I could stab him, but no blood would come out, and I could feel it penetrating his skin but it did not seem to hurt him. the knife seemed much more effective, as I was capable of tearing the skin open with the knife. I seemed aware that there was a contradicting thought that the screwdriver wouldn't hurt him so I conjured the knife. he couldn't block the knife thought though, so I created problems and they had to end the dream.
+
+well, I'm glad I have not been very lucid in my dreams because it's clear to me that just like in real-life, if they're trying to force me to do something I don't want to do, the dream is like a prison. I can't just create my own reality and fly out of there or go somewhere else or whatever; I have to do what they put in my head in the dream. well, the only way I knew of up until this morning was resorting to violence to end the dream.
+
+I have learned though that I can also create new concepts which arrive to the same result. in fact I would imagine that there are infinite ways to conceptualise the same result. they are results oriented, so they do not want me flying or escaping from their dream prisons though, so they block thoughts that achieve those results.
+
+---
+
+ok so back to this conceptual space thing again. the same way that they're blocking the thoughts that they don't want me to have, they'll probably be beginning to do this more and more with other people. obviously some concepts are taboos like flight or whatever and they cannot have those.
+
+when I said that they could control the perception of a lot of things, you can see this both in a positive or negative way. like I said, these signals could be used to create psychedelic-like visuals, allow communication across a common syntax and allow everyone to translate it how they choose, or it could allow people to not be so tuned in to the thoughts of people around them, putting everyone in a more meditative state.
+
+I am extremely optimistic when I'm stoned, and just like my previous failures in spain, it's quite unlikely that the positive side of things will be implemented and my optimistic perception will get taken advantage of. don't expect those things to happen, cept maybe behind a pay-wall or something.
+
+anyway, more than likely you could imagine that if they have the power to erase thoughts (or make them difficult to think), then as energy levels continue to rise, in order to hold people away from realising their own visual creativity, they may want to do like they do with me and block anything that results in a good feeling (because good feelings = visions). or, they may want to take existing concepts and associate other concepts with them. for example, if I think of programming, instead of it feeling good to me, maybe instead it's associated with difficulty or frustration or something like that.
+
+the idea of getting everyone into the same conceptual space means that they will be able to remove or reassociate entire clumps of concepts from people's minds in masse. essentially this idea only streamlines their capability to do to the whole world, what they're already doing to me.
+
+big problem though: what if the concepts begin to change or morph like my realisation of how to fly in my dreams? they will have to go back and make another association or block it or whatever they were doing (this is likely what was happening when I was perceiving myself being experimented on).
+
+the good news is that this whole process is making me stronger and stronger. I will hopefully soon overcome their efforts to keep me limited. the bad news is, most people are not like me, so they'll never find a way to change their concept of how things are to make it what they want.
+
+this is where I think a new language will begin to develop. kids will come out more and more energetic, but they won't have the drive or the motivation to fly like I do. kids mostly just copy what they see, so this conceptual method will be pretty effective at blocking their flight (unless they can watch someone flying). however, many different ideas they want to render in their mind in regards to how they feel will become stifled. so, many new ones which mean the same thing will be created.
+
+---
+
+lastly, I can't really figure it all out, but I was thinking about it this morning and I'm pretty sure that I'm going to figure out a way to get connected. my newest idea on how things are working out would be that most likely nosebook will have to give up trying to control the physical aspect of our bodies like they are doing with me. the reason I believe this is so, is because it's simply impractical for them to go around putting new inserts in kids while they sleep. a more practical approach will be a conceptual one, meaning that if they never allow the kid to arrive to a belief that he can fly, he will never fly. the inserts have a power transfer limit to them and blocking a thought is a whole lot less power than draining his body of energy like they are doing with mine.
+
+so, if you think about it, jesus' life "forced" the romans to take measures to try and get this christianity thing under control. my life will likely "force" them to relinquish attempts to control things physically (they'll try to control conceptually). so that would mean that the following era, I will return once again and I'll blast through their conceptual roadblocks and find my alignment again, this time "forcing" them to once again try and control things physically.
+
+it's easy to see why that might be so. at the beginning, there will be very little evolution in the conceptual language, however as time continues, there will be more and more changes (which require humans which understand meaning to evaluate them), that eventually new concepts will exist which are not understandable to the adults running the show, and/or there will be such an influx of new concepts, it'll become impractical to keep up with them all... so now with advances in efficiency to tesla's "world system" it'll once again be practical to try and control physically.
+
+[1]: I believe both of my hemispheres are visually creative now, so when I'm consciously watching myself be experimented on, my consciousness is in my left hemisphere, and I'm watching them run experiments on my right hemisphere.
+
 ### bird interaction
 
 ### consequences of more conductive air - 1915? - ww2?
