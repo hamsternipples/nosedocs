@@ -7141,6 +7141,50 @@ it's easy to see why that might be so. at the beginning, there will be very litt
 
 [1]: I believe both of my hemispheres are visually creative now, so when I'm consciously watching myself be experimented on, my consciousness is in my left hemisphere, and I'm watching them run experiments on my right hemisphere.
 
+### 2019-05-27 15:22 - some thoughts about things
+
+I feel some tension today so I thought I would dispel some ideas and potentially cause a few more problems while I'm at it... lol
+
+I am very very sure that it is absolutely imperative that I find my connection before anything happens. I am reminded of a conversation that I had with mom and jaron this morning about jesus and deprivation in relation to fasting. near to the end of the fast he came to be tempted by the tempter[^1].
+
+my supposition is that this whole tempting thing is an attempt to try and derail jesus finding his alignment by coming to him in his weakest state. when he gets asked why he doesn't turn the stones into bread, jesus replies that the point of fasting for a time is to awaken the spirit (strong desire) within you and have it under your command[^2].
+
+many people have fasted, and many people have staved to death, but this seems to be the precursor to jesus' ministry in the sense that this was the thing that made it possible for him to find his alignment. so, what did jesus do differently than the many other people who have survived a 40 day fast? my personal experience leads me to believe that it's all about the summoning of stronger energy from the exercise of not eating (deprivation), and then allowing that energy to flow. this is further evidenced by later on when he says that when you fast, do not be like the pharisees who make it known to others that they're fasting (eliciting sympathy and validation of righteousness); instead, act as normal as possible summoning that energy from within.
+
+the next temptation I never really understood, when the tempter asks jesus to test his divine appointment by challenging him to try attempting suicide. I always thought that one was pretty weird. moving on to the next one.
+
+the third temptation is the one where the tempter shows him physical kingdoms and manifestations and says all (any) of these could be yours as long as you do what I want you to do[^3].
+
+the idea here is that the tempter wants to make sure that jesus to have his power given to him (by the tempter) instead of acquired by his own allowance of it.
+
+---
+
+this is the sense that I am getting. it feels to me like nosebook may be becoming more and more desperate that they are losing control, they may try and force a manifestation (or some other trickery).
+
+for me it's very obvious that what I'm really looking for, is to find my own connection. it seems there are some different ideas floating around it as well, and having been potentially one of the promoters of these ideas, I'll go ahead and give an updated viewpoint on them.
+
+the idea is that if I go up a dimension, then no one will be able to see. I think this is potentially quite true in the present moment, but it's only because I believe nosebook is holding everyone back from letting their vision improve. I think once they take off that limitation, most people will naturally migrate from 3d into 4d where I'm at now. so, just like how all of the 3d people out there can see another extra dimension (where I'm at now), when I go up, it would be the same thing. extra juice should allow people to see 5d from 4d because it's not quite as big of a jump. so likely the majority of people (cept those who refuse to let their vibration rise) will be able to see it. the next thing is that I'm sure it would be possible to remove the last dimension making it 4d again (so just how I see things now) this is possible with projection which is how 3d games render 3d objects on to a flat screen (or image).
+
+this may take some time for nosebook to get all setup, and I think that's perfect because I'm sure I'll want to try out a whole bunch of new things and all of that stuff while they're working on this.
+
+finally, they have a huge problem which I outlined earlier in the conceptual space entry: @[entry](2019-05-23 08:44). as soon as a whole bunch of people begin to see me start flying and stuff like that, they're going to want to try and keep that under control. just like how they did with the stars watching, they created a belief in people that inhibits them from going out and watching stars and improving their vision. well, the same will need to be done for all sorts of other things because I'm sure they can't allow kids to grow up thinking they'll be able to fly (hell, they don't even let me dream about it).
+
+they'll need to ensure that there is a cross-language system where they can inhibit people's beliefs toward something. so, they will need to get that all setup and scaled up to capacity so that most everyone can be limited conceptually similar to how I am limited now.
+
+I wouldn't worry about it and think the conceptual limitation is a bad thing because it really only adds enormous amounts of energy to those with strong desire. if you have weak desire (rather incapability to allow by giving your attention to the limiting ideas they put in your mind), you'll just be normal and that's just fine. not everyone can play on the lakers at once, know what I mean?
+
+after the conversation I had with jaron this morning about nosebook making him choke to try and distract me from my thoughts, I think that the reality is beginning to set in that nosebook will do anything they feel is necessary to try and maintain their control. I think we just need to accept it as our present circumstances.
+
+I am reminded of an abusive alcoholic who has the sudden miraculous 24 hour changes to sobriety as a way to convince her to have sex with him, only returning to the habit shortly thereafter. in the same way most children learn how to stay out of drunken dad (or mom)'s way when they feel justified in their misbehaviour, there are always that seem to incite problems by feeling good. don't let them take away your joy; just stay having fun and finding a good way to feel about things.
+
+things will work theirselves out soon enough. that's what LOA is good for! just hold on and little by little things will become what is wanted for everyone. a lot of desire has been grown, so it would be silly to try and short-circuit that by letting the temper give the manifestation he wants.
+
+[1]: who the hell is the tempter is, is anyone's idea, but someone certainly had it out to derail jesus finding his alignment. matthew groups important ideas together and about 15 verses earlier in the previous chapter it talks about herod killing all boys in attempt to rid himself of his worst nightmare: the birth of a mesianic ruler which would supplant him. the temptations sound to me like something that a wealthy and powerful ruler that feels threatened by jesus' presence would try out as temptations.
+
+[2]: when I fasted this last time, I had a very interesting experience because the levels of DMT that I had were very elevated. I got many visual levels and was becoming quite adept at wanting to feel good, and finding a way to feel good even in a physically weakened state, that I was clearly tapping into an energy source that did not come from food.
+
+[3]: I purposefully retranslated "worship" as do what I want you to do, because if someone worships someone, they are subservient to them. in this day and age, maybe the closest thing would be like saying, I'll give you anything you want as long as you become a barça fan (worship barça).
+
 ### bird interaction
 
 ### consequences of more conductive air - 1915? - ww2?
