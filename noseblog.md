@@ -7175,7 +7175,7 @@ I wouldn't worry about it and think the conceptual limitation is a bad thing bec
 
 after the conversation I had with jaron this morning about nosebook making him choke to try and distract me from my thoughts, I think that the reality is beginning to set in that nosebook will do anything they feel is necessary to try and maintain their control. I think we just need to accept it as our present circumstances.
 
-I am reminded of an abusive alcoholic who has the sudden miraculous 24 hour changes to sobriety as a way to convince her to have sex with him, only returning to the habit shortly thereafter. in the same way most children learn how to stay out of drunken dad (or mom)'s way when they feel justified in their misbehaviour, there are always that seem to incite problems by feeling good. don't let them take away your joy; just stay having fun and finding a good way to feel about things.
+I am reminded of an abusive alcoholic who has the sudden miraculous 24 hour changes to sobriety as a way to convince her to have sex with him, only returning to the habit shortly thereafter. in the same way most children learn how to stay out of drunken dad (or mom)'s way when they feel justified in their misbehaviour ("this is my house..." etc.), there are always that seem to incite problems by feeling good. don't let them take away your joy; just stay having fun and finding a good way to feel about things.
 
 things will work theirselves out soon enough. that's what LOA is good for! just hold on and little by little things will become what is wanted for everyone. a lot of desire has been grown, so it would be silly to try and short-circuit that by letting the temper give the manifestation he wants.
 
@@ -7183,9 +7183,33 @@ things will work theirselves out soon enough. that's what LOA is good for! just 
 
 [2]: when I fasted this last time, I had a very interesting experience because the levels of DMT that I had were very elevated. I got many visual levels and was becoming quite adept at wanting to feel good, and finding a way to feel good even in a physically weakened state, that I was clearly tapping into an energy source that did not come from food.
 
-[3]: I purposefully retranslated "worship" as do what I want you to do, because if someone worships someone, they are subservient to them. in this day and age, maybe the closest thing would be like saying, I'll give you anything you want as long as you become a barça fan (worship barça).
+[3]: I purposefully retranslated "worship" as "do what I want you to do", because if someone worships someone, they are subservient to them. in this day and age, maybe the closest thing would be like saying, I'll give you anything you want as long as you become a barça fan (worship barça).
 
-### bird interaction
+### 2019-05-27 17:10 - bird interaction
+
+the other day I had a bird that was harassing me. it caused me a whole lot of negative emotion in the time, and the one thing that I was insistent on trying to communicate to the bird was that it should do what it wants to. it has wings after all, so it can go wherever it wants to go, yet instead it decided to follow the guidance of the signal in its head.
+
+I want to say this to so many people: do what you want to do! terence always had a saying that stuck in my head: "have a plan [for what you want to do], because if you don't you'll become a part of someone else's plan."
+
+I thought about this concept many times as I was beginning to map out different possible futures, arriving finally on the gnomitos idea. I think I should be saying the same thing to nosebook: have a plan, because if you don't you become a part of someone else's plan -- meaning, that I have a plan and I'm sticking to it, so they should have a plan too.
+
+however, the same applies to everyone else, too. instead of saying plan, perhaps I should say, "find out what feels good to you (and doesn't involve anyone else). this is your plan. if someone comes around that you enjoy being around, enjoy their company while they're there, but have your plan."
+
+---
+
+what I'm talking about is strengthening someone's desire to do things for theirself. out of a powerful desire to do things for yourself, you will encounter others compatible with your plan. this is the funnest and it feels very different than following someone else's plan.
+
+---
+
+I'm reminded of the sunday drivers' song: @[youtube](https://www.youtube.com/watch?v=RHWbF5H2aOQ)
+
+"my plan is just to do to you the things you deserve to be done"
+
+now, I'm thinking about how incompatible this plan idea is for a organisation like nosebook. you can already see this shift beginning to occur where less and less organisations do to people what they deserve to be done..
+
+take, for example, youtubers... most of them have a plan, and others with a compatible plan (watching their content) join in. it works for most content creation, such as games, any any production really. in a way, I think this is one of the reason's why film is so successful -- because the part can be played by many actors and so most scripts do not make plans for a single person[^1].
+
+[1]: cept the exception that comes to my mind is robin williams playing aladdin: @[youtube](https://www.youtube.com/watch?v=nyiBdccfNkg).
 
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
