@@ -7278,6 +7278,12 @@ in my opinion, those not jumping through their hoops will have a more rich lifes
 
 [5]: the other day I woke up from having a dream where I had a strong sense that there would be a dividing into two types of people. at the time I perceived it as "working for nosebook (doing what they say)" or "not working for nosebook" -- and this was in relation to the whole idea of physical or conceptual limitation and how physical limitation was impractical cept for those who are quite energetic, which nosebook will need to employ people to put inserts into them. I'll return to this idea sometime soon. anyway, the two types of people could better be expressed as nosebook approved or not, in that this is similar to "confirmation" where the approved ones have earned their ability to gain their connection. the ones that are not approved, they will be those who have found a way to allow their connection and those who have not.
 
+### 2019-05-28 07:57 - sorry for the high volume...
+
+I write what comes to me. I think perhaps the idea is that because of the high volume, it'll cause an over saturation of the mind's ability to organise all of the concepts, and so some ideas will kind of slip through under the radar.
+
+I'll take a break for a while. I have some programming that I'll be occupied with that's burning through me now..
+
 ### maintaining physical limitation on people.
 
 ### consequences of more conductive air - 1915? - ww2?
