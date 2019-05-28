@@ -7211,6 +7211,31 @@ take, for example, youtubers... most of them have a plan, and others with a comp
 
 [1]: cept the exception that comes to my mind is robin williams playing aladdin: @[youtube](https://www.youtube.com/watch?v=nyiBdccfNkg).
 
+### 2019-05-27 17:51 - moar plans
+
+I wish we could open our eyes
+To see in all directions at the same
+Oh what a beautiful view
+If you were never aware of what was around you
+
+---
+
+those are the lyrics of the first song on the album. I think that's the only really non-depresssing part of the song -- but, I really like those lyrics :) so, I decided to look at their other lyrics.. man there is some seriously depressing stuff on that album.
+
+I used to really really really like this album with my favourite song being soul meets body. relistening to the album for the first time in like 10 years or more, I recognise just how depressed I was back then. I had a really negative outlook on love, and this album pretty perfectly captured my perception back then.
+
+I guess this kind of depression is a result of what happens when you make plans that involve someone else and neglect to make plans for yourself...
+
+---
+
+I also have this tendency to make up my own lyrics... I also really liked the "someday you will be loved" song song as well. now that I'm looking back at a lot of these things (like the beastie boys songs), I realise I kind of heard what I wanted to hear. I really liked the idea that he could wolk away from her and know that one day she'll (really) be loved. that idea seemed really grown up and mature.
+
+you'll be loved you'll be loved like you never have known
+when the memories of being seem more like a dream
+just a series of blurs like you never occurred[^1]
+
+[1]: I translated in my mind the word occurred to mean something like, "like never could have occured to you"
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
