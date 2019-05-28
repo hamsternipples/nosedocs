@@ -7234,7 +7234,51 @@ you'll be loved you'll be loved like you never have known
 when the memories of being seem more like a dream
 just a series of blurs like you never occurred[^1]
 
-[1]: I translated in my mind the word occurred to mean something like, "like never could have occured to you"
+[1]: I translated in my mind the word occurred to mean something like, "like never could have occurred to you"
+
+### 2019-05-28 06:08 - some ideas on why conceptual limitation is a good things
+
+first example, I had the idea to write out the bird interaction entry, but when I felt like writing it yesterday, I couldn't really remember what I wanted to write. so I began where I could remember about wanting to tell the bird to do what it wants to do, then I was reminded of what terence said which launched me off toward what I really wanted to say, which was the whole thing about having your own plan. in the end, their efforts to block that concept produced a better result.
+
+the second example I had of this happened right afterward, I was mentioning how having your own plan that doesn't directly involve someone else is really good for making productions. which curved directly into lindsay's latest video on aladdin. you see, when I first watched the video I felt really good about it but I didn't really know what I had just watched. I didn't make the petty asshole connection until later. anyway, when I woke up the next day the video felt bad to me and I was thinking weird thoughts like apologies aren't good (I personally don't believe in apologies so it was weird for me to think that) and that giving attention to petty asshole will just get more of it. I decided I wanted to leave it alone and just wait to see what comes of it.
+
+the days following that the petty asshole angle magically disappeared and seemed to fade into nothingness. I don't know if they blocked it, but I did notice missing bits in my mind about that concept. I believe they influenced it somewhat, but again the result turned out better: the petty asshole angle wasn't what I wanted to focus on. instead, I wanted to illustrate that when someone makes a plan for someone else, that is what causes the discord.
+
+---
+
+in addition to all of that, I want to mention a concept that I got from nancy. she often taught that satan (the devil) is just there to consume the dust of the earth -- that is, to remove the "carnal nature" that adam/we were made out of in the garden. the idea is that you are light but you have this fleshy external layer. which represents all of the earthy ideas which keep your light from shining outward.
+
+she explains that the serpent or the tempter of adam in the garden after adam fell for the temptation to discover the knowledge of good and evil and to become like one of *us*[^1]. after that, the tempter was banished to the ground and was to consume the dust of the earth (from which adam was made flesh[^2]).
+
+the idea here that nancy presents is one that stuck with me quite well, and it's this idea that this devil or earthly focused tempter is just there to consume your dust which hides the raiment of who yeu really are.
+
+if I look back at my life, I would have to admit there has been some difficulty, but these tempters who have tried to get me to follow their plan or get me to see things the way they want me to see them, has only motivated me more toward what I'm really looking for, and that is for that raiment of who I really am to be seen, and not hidden behind a bunch of definitions of good and evil.
+
+---
+
+finally, I imagine that one could perceive (and I'm going to set a trap here) that what I'm really trying to do is to get nosebook to conceptually limit everyone else, while I having overcome their perceptual and conceptual limitations, now reign superior -- that this whole thing is just a big scheme for me to incite nosebook to make me superior by limiting you guys.
+
+I do not believe(?) this is the case. if I came up to you and told you that I was planning on giving you my truck for free, but now I am not, that wouldn't make a whole lot of sense to you because you never wanted my truck in the first place. in the same way, those who do not desire something are not sad to have missed whatever it was. in fact, if you think about it, there could be hundreds of benevolent people out there who wanted to give you something amazing but then changed their mind later.
+
+for those that do want it, here's nosebook's opportunity to shine: they love the idea that you've got to earn something or be justified in having whatever it is. just like they do not feel that I am worthy enough to have my own connection that they must go out of their way to keep me from it.. in a sense, I had to earn my connection, but not by garnering nosebook's approval, but by learning to allow it myself[^5]. so, in a sense I have also earned it. I have earned my connection by finding a way to allow it myself and not needing nosebook to be any different than they are to do it.
+
+this gives nosebook all the control here. there will be people who want it, but are incapable of jumping through nosebook's hoops to get it (money, blowjobs or other forms of service) and those people are people wanting really bad to get their connection but their kept from it or can't jump the hoops: they will be (like I was) either in the worst of depression with no way to find it, or they will steadily begin to find ways to allow more and more of it.
+
+there will also be people who don't want it or don't care, but the rest will find a way of jumping through nosebook's hoops to earn it.
+
+in my opinion, those not jumping through their hoops will have a more rich lifestyle and a sense of freedom like no other. these people I tell you will be brilliant with all of their dust consumed and replaced with more performant concepts.
+
+[1]: in food of the gods, terence alludes to the idea that this forbidden food was probably a psychedelic (tree mushroom?) after all, it is still forbidden, and will teach you and will allow you to see what comes before what is considered "good" or "evil".
+
+[2]: there is this idea that before the "fall" adam and eve were raiment or light, and they didn't know about their nakedness or their skin. things were likely pretty psychedelic in those days[^3]. most likely almost all communication was telepathic [^4] and probably perception was pretty similar to what we would experience on extremely high levels of DMT: very abstract and not physically very concrete. so this transition of perception of being able to now perceive something as good or bad, put flesh on him and disconnected him from the psychedelic (vibrational source-like) state where everything feels connected and there is no good or bad or right or wrong.
+
+[3]: one time during an ayahuasca (or mushroom) experience I remember noticing how very strange it was that I had skin. I believed that I should be seeing only light and this skin covering was hiding a brilliant luminance of who I really am.
+
+[4]: which is why adam having been granted this ability to perceive beyond, is accredited to having invented many languages for the people of his time.
+
+[5]: the other day I woke up from having a dream where I had a strong sense that there would be a dividing into two types of people. at the time I perceived it as "working for nosebook (doing what they say)" or "not working for nosebook" -- and this was in relation to the whole idea of physical or conceptual limitation and how physical limitation was impractical cept for those who are quite energetic, which nosebook will need to employ people to put inserts into them. I'll return to this idea sometime soon. anyway, the two types of people could better be expressed as nosebook approved or not, in that this is similar to "confirmation" where the approved ones have earned their ability to gain their connection. the ones that are not approved, they will be those who have found a way to allow their connection and those who have not.
+
+### maintaining physical limitation on people.
 
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
