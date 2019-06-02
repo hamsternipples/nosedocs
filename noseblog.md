@@ -7284,6 +7284,43 @@ I write what comes to me. I think perhaps the idea is that because of the high v
 
 I'll take a break for a while. I have some programming that I'll be occupied with that's burning through me now..
 
+### 2019-06-01 18:25 - a redefinition of male / female control structures
+
+I was thinking about quite a few things when I woke up just now but I used the term masculine / feminine control structures and got a bit of a reaction to it. I fumbled around a moment but decided I would try and translate this concept into english. it turned out better than I imagined so I'm writing it here for reference (even thoungh I'm sure I now will never forget it). here's v1.0
+
+#### masculine control structure
+
+the masculine control structure is primarily involved with controlling the imagination of their victim, and they're two main resources to do so are affecting the physical conditions and the conceptual model. a quite visible example of this is the roman catholic church's effect on people in the middle ages. they also attempted to control a bit the relational aspect of things but mostly this was done conceptually in the area of sexual repression by involving all kinds of crazy ideas about what is right and wrong there.
+
+the imagination connects to the structure layer, and if you remember, the structure layer is a bunch of flashes (imaginations) which collectively mean something. this creates a belief which forms the logic upon which an action is justified or repressed.
+
+#### feminine control structure
+
+the feminine control structure is primarily involver with controlling the relationship aspect of their victim. the relational layer is (in the passive sense) a series of interactions or the syntax upon which things are done which make the most sense. these are used to inhibit/block desire, or to conjure it (think dance). on the active side, these series of interactions is what is used to motivate a person.
+
+their main resources for controlling the relational layer is by affecting the desire and the structural layer. this is probably why typically romance (structure), and attractiveness (desire) seem to be so important for woman.
+
+we have no really good examples of a strong matriarchal control structure like can be seen so clearly of a patriarchal versions that have existed all over the place, but the best one I can come up with is a strong family-orientated family. there's always a very strong matriarchal woman on the top which will display most of these characteristics.
+
+the relational layer connects to the conceptual layer in the sense that these series of interactions or syntax are what describe a concept.
+
+---
+
+I'd like to expand on this concept in the future because I can see how these two forces essentially create an increasingly more energetic thing. neither one is "the right way(tm)" and probably one should strive to have both of these forces dominated ***within*** instead of trying to affect them externally.
+
+they both have their advantages and both are superior to the other because of how they work out: the feminine side being able to affect the conceptual layer more easily means they have superior control over the imagination. put a concept in someone's head like mine, and it conjures an image. yet, in the same way the imagination exerts tremendous effect on the structure layer, and so therefore is superior because if you can control how something is interpreted to mean by controlling the imagery surrounding it, then the series of interactions are never perceived (think 9/11). meaning trumps relation and concept trumps imagination.
+
+also, you can clearly see that in today's society, the masculine control structure tends to be quite deficient in actually controlling the conceptual layer. it is their weak point. clearly the opposite is true for the feminine control structure, where their weak point is the structure (meaning) layer. also it seems obvious that when these weaknesses have been overcome, then they gain their power.
+
+lastly, it seems the "secret weapon" of the feminine is the ability to control desire, and the secret weapon of the masculine is to control the physical. if someone like me shows up capable of affecting desire in such a strong way, I'm notable to the feminine control structure. if someone shows up with control over their physical layer, they become very notable to the masculine control structure[^1].
+
+dominance of both of these forces within oneself, I believe is essential. once they have been achieved within, they begin to have a strong effect externally.
+
+[1]: andrea, I think this may be an answer to a question you had. you learn to control the physical layer by learning to control your energy. I'll have to think more on how I did that, but it came about largely as a result of not caring what other people think (conceptual control). this allowed me to begin moving energy around inside of my body, and as I kept increasing the energy, I began to notice that I could affect the energy in other people's body as well. I practiced with raquel, but this has a physical manifestation associated to it and is most easily be manifested in the weather.
+
+### seems like getting connected *permanently* is all about...
+...when dream-state you is the same as awake you.
+
 ### maintaining physical limitation on people.
 
 ### consequences of more conductive air - 1915? - ww2?
@@ -7306,7 +7343,6 @@ increases visual capability, that's why no one is allowed ho use the device arou
 #### michael ba(b)y effect
 
 ### 2019-02-20 ??:?? - the solution to increasing human energy
-### 2019-02-20 ??:?? - a redefinition of male / female control structures
 
 ### 2019-02-16 ??:?? - the structure of the thing is the thing
 ### 2019-02-16 ??:?? - blowing your load doesn't release resistance -- it releases desire
