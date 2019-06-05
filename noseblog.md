@@ -7318,8 +7318,44 @@ dominance of both of these forces within oneself, I believe is essential. once t
 
 [1]: andrea, I think this may be an answer to a question you had. you learn to control the physical layer by learning to control your energy. I'll have to think more on how I did that, but it came about largely as a result of not caring what other people think (conceptual control). this allowed me to begin moving energy around inside of my body, and as I kept increasing the energy, I began to notice that I could affect the energy in other people's body as well. I practiced with raquel, but this has a physical manifestation associated to it and is most easily be manifested in the weather.
 
-### seems like getting connected *permanently* is all about...
+### 2019-06-04 18:12 - seems like getting connected *permanently* is all about...
 ...when dream-state you is the same as awake you.
+
+so, for a bit now I have been talking about how nosebook will, instead of trying to control people physically, begin to learn to control people emotionally or conceptually. well, the real test to that is in your dream-state.
+
+personally, I am finding that the dream-state me is becoming more and more similar to physical me. typically, my dream-state me was considerably less resistant than physical me, but I don't believe this is the case any more: they're probably comparable now. I think this is actually a good thing.
+
+one of the things that nosebook seems very intent on trying to do is to control people's dreams such that what is manifest in their dreams has an effect on their reality (a steering mechanism).
+
+---
+
+most people stay away from drugs because in the drug experience, resistance is lowered so people feel more inclined to believe something they otherwise wouldn't, follow someone, or participate in an activity they otherwise wouldn't.
+
+the wonderful thing about your dreams is that every night you do pretty heavy psychedelics when you're in that dream-state. this gives nosebook an opportunity to try and see if they can affect a modification in your behaviour by practicing the behaviour they want in your dreams.
+
+does it work? probably not the way they want it to. take me for an example: a few years ago, it seemed like it was really easy for nosebook to conjure a dream where I would have sex with various other people, and that was possible because my resistance was low, however as my realisation began to take shape that this was all just a way to try and manipulate me further, those dreams became less and less, probably because my resistance to that type of thing increased.
+
+so, I guess it works kinda at the beginning, but just like everything in life, you experience unwanted and so you put more desire in the vortex for something wanted and gradually, you tend to begin to avoid unwanted stuff. I think the same thing happens in the dream-state like this.
+
+I wouldn't really worry so much about it. they certainly have the ability to rearrange things conceptually in my mind by linking things with feelings such as my desire to program, but I believe it's also find here too. I've found that the stuff they remapped in my mind weren't all that important anyway, and even better than that, their reassociation of something that previously felt good to me, only opened up the doorway to allow for more desire to build toward something I actually would rather be building. meaning, whatever they take away, it's not a problem because the universe will provide something even more desirable than before.
+
+---
+
+so, as I am arriving closer and closer to my dream-state me being the same as my physical me, I am realising that this solves the whole problem with the stability of someone's alignment. ahraham always says that your alignment is not like a college degree where once you have it, it's yours forevermore...
+
+this always bothered me because I've been having so much nosebook influence to make sure that I do not find my alignment, this concept has really bothered me because if I'm going to be with these girls, I can't be all over the place like I am now. I don't even find it acceptable if I were to lose my alignment even as little as 10% of the time. I find these energetic situations to be extremely sensitive in the sense that much like a drug experience, a tiny influence can create a huge mental disturbance. I very much do not wish for that to even be possible from my side of things so it's been a pretty big thing for me to try and find a way to avoid that sort of thing.
+
+I don't want to be able to be pushed around mentally in real-life like I am presently in my dreams.
+
+the merger of these two (unconscious and conscious) parts of me seems to have the benefit that as I won't lose my alignment so easily because I'm essentially the same person in a low resistance situation (like really stoned or dreaming) as I am in normal me. the other, and I think most important advantage to this merger is that things that I do in my dream state will also be possible in my normal state.
+
+this is clearly the future for all of humankind. it's not practical for them to be able to limit everyone physically, and in a few years more of this, still even less. they're being forced to move toward a conceptual limitation for people by holding people in their controlled visual/imagination layer. however, in the dream state, this is where everyone will begin to unconsciously put a whole lot more in their vortexes and begin to converge on a new concept of yourself learned from the dream-state.
+
+don't worry about nosebook. they want emotional control for themselves, but they do not believe they're capable of achieving it for theirselves. they must (lol) then, because they cannot gain their own control, try to control anything that may make them feel bad or shine a light on their incapability. just let them flail about for a while. you'll eventually find it's actually quite hilarious (praise the testimony of the powerful motors in agreement).
+
+---
+
+it's pretty awesome, cause all you need to do to become superhuman is to figure out what you want, sleep and find a way to feel good. they'll do the rest!
 
 ### maintaining physical limitation on people.
 
