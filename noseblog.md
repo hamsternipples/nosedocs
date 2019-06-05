@@ -7357,7 +7357,41 @@ don't worry about nosebook. they want emotional control for themselves, but they
 
 it's pretty awesome, cause all you need to do to become superhuman is to figure out what you want, sleep and find a way to feel good. they'll do the rest!
 
-### maintaining physical limitation on people.
+### 2019-06-05 05:58 - consistency of consciousness
+
+having read the sirian documents a few times I noticed this topic seemed to be important to them and they wanted to make sure it was presented. next, I noticed that various times tesla references the fact that he no longer slept but simply rested. I thought that was pretty cool and noticed that this must be what the sun does during it's 11 years of lower activity resting period.
+
+additionally, there seems to be an energetic thing involved with sleep, because peole describing the "kundalini" experienced related that they did not sleep for many days at a time. I have also noticed that when I am experiencing heightened creative energy, I also do not need to sleep. also notably, nancy has described this effect, and so has frank chester in relation to his chestahedron meditation apparatus.
+
+my theory of how that works is during sleep you essentially get connected up to your source. this has to happen while you're unconscious because usually we're not able to *allow* that energy consciously. all those different examples, sex, meditation chambers, the holy spirit, etc. are different methods of allowing that energy to flow.
+
+so, the way I think it's supposed to work is at some point you start to become conscious in your dreams. when you dream, it's when your consciousness is coming back into your body and they're hard to remember, much like a psychedelic experience because that experience in the dream is still quite different from your consciousness vibrational level, so they tend to be interpreted abstractly. so, as your vibration rises, not only will you gain more creative control inside of your dreams, but also because you're more vibrationally similar, you will maintain consciousness inside of your dreams.
+
+after gaining consciousness in your dreams, *the way I think it's supposed to work* is that you begin to learn from your lower resistance dream-state self and begin to merge those qualities into your normal self.
+
+however, nosebook has had this setup for me in exactly the opposite way. they absolutely do not want me becoming conscious in my dream state so they hold me as far away from that as possible. so, instead of my normal self learning from my dream-state self in a low-resistance environment, they instead put my dream-state self in a resistant environment of whatever they are doing in my dreams.
+
+this creates the exact opposite effect as now what is happening is my dream-state self has to become more resistant. for example, the other night I had a series of 3-4 different dreams where in each one there were different people trying to get me to drink alcohol, and my dream-state self was learning to avoid people trying to get something out of me by getting me intoxicated[^1].
+
+so, you could say that my dream-state self is becoming more resistant, and that is true, however, resistance happens everywhere when you are focused on wanted, you are resistant to unwanted. for example, if I'm focused on well-being, I am resistant to sickness.
+
+so, a more apt way to look at it would be like when they found my dream-state self, he was really young (11 years old) and so very easily manipulatable. however, he has been growing up in their resistant environment for quite some time learning what sorts of things are enjoyable and what sorts of things are not, and so like every child he begins to apply resistance toward the things that don't feel good.
+
+so even though the path is slightly different than how it was intended to be, the effect will be the same -- actually likely more dramatic because of all of the extra contrast. it seems clear to me that as my dream-state (optimistic) self[^2] and my physical self begin to converge in vibrational similarity, neither one is really the dominant one, as they are both learning to give their focus to what is wanted and become resistant to unwanted. this is resiliency if you look at it in the sense of resistance/allowance, but if you look at it as tuning, it's simply both are learning to tune theirselves into what is wanted (and out of unwanted) by achieving stronger focus.
+
+---
+
+assuredly there will be more and more people with their creative capacity opening up, like me, I am sure that nosebook will not allow anyone access to it (because it's uncontrollable for them), and also like me, it's pretty likely that these people's dream-state creativity will be used by the authorities to make their military machines giving nosebook an endless supply of people to use, and give many people the opportunity to more easily start become conscious of their dream-state self[^3].
+
+this is all really amazing, and as I begin to become conscious of this "astral self", I am realising that I have quite a bit of consciousness in my conceptual self alraedy as well, regarding telepathy type things and conceptual recognition of different things. it seems to me that there is a visual correlation to these different levels of consciousness. when I became aware of my astral self, nosebook did not let me experience it, but that was when my vision changed to 4d. we're still converging on a similar vibrational frequency so gain full consciousness there. then after that, when I gain consciousness on the conceptual plane, I'll see 5d, source in 6d, etc[^4]. the eventual goal is to become conscious on all of them at once.
+
+[1]: this is an interesting irony because when I get intoxicated, I tend to let me more optimistic dream-state self through, so the act of getting me intoxicated will make me less resistant and more of a "sure man, whatever" kind of guy. so, it sounds like maybe they are trying to find a way to get my old dream-state self back online in my dream-state by trying to intoxicate me.
+
+[2]: I don't really know what to call this different self. I would consider it the "astral self" as it's extremely optimistic and I become conscious of it in drug experiences, in dreams, in certain other situations as well. the sirians teach that you have a self on each plane of the 7 planes, and your path begins with your return back to your source, eg. that is, becoming conscious on the astral plane, then the conceptual, then the source plane -- then I assume on up from there.
+
+[3]: you can imagine that nosebook will learn to be more polite in people's dream-state so as to not cause so much disturbance, meaning the process of the astral self realising what is unwanted will not be as rapid as mine, however it is impossible that nosebook would only be doing things that are wanted in people's dream-state, so nevertheless the person will learn to focus even in their dream-state. that's a really good thing!
+
+[4]: fwh claimed he (me) had achieved 11d, which always puzzled me because if physical is 3d, and source is 6d, then desire would be 9d. that means there are two dimensions still missing that I cannot account for. having given so much thought to it, I postulated that maybe after 6d, the dimensions went up in pairs, but in reality it seems more likely that explanation is that I finally realised my goal of adding two more layers on as outlined here: @[entry](2019-04-30 15:55).
 
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
