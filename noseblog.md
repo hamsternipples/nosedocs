@@ -7393,6 +7393,63 @@ this is all really amazing, and as I begin to become conscious of this "astral s
 
 [4]: fwh claimed he (me) had achieved 11d, which always puzzled me because if physical is 3d, and source is 6d, then desire would be 9d. that means there are two dimensions still missing that I cannot account for. having given so much thought to it, I postulated that maybe after 6d, the dimensions went up in pairs, but in reality it seems more likely that explanation is that I finally realised my goal of adding two more layers on as outlined here: @[entry](2019-04-30 15:55).
 
+### 2019-06-06 12:02 - what if I just agreed...
+
+I was sitting outside when this thought popped into my mind, (from their perspective) "why not just ask him if he'll remain disconnected, for the greater good." -- this is the inspiration for this entry.
+
+first of all, I'll skip all of the irrational reasons like, I smell manipulation, and I don't believe you that it's actually for the greater good. furthermore, I'll skip the whole, hey we made a bad decision taking all of this guy's capabilities away from him, then building up a situation where "we're too big to fail" so we need a bailout, but there's no one to bail us out of this jam, so we'll ask him if he wants to agree to live with our mistake for the greater good (eg. so we don't have to face our mistake)
+
+instead, I'll focus on what is real to me. it is my belief that all of these other timelines starting with raquel (and maybe even previous to that) did actually work out, however we did not experience them because of two main reasons: 1. I want to find a way of getting connected without needing someone else (sex) to achieve it. this probably created a bit of nn internal competition with me where I was continually able to find a way toward it and get it easily -- so, naturally you replay the game on a harder difficulty.
+
+probably the hardest difficulty level that this earth was capable of, required their obtaining tesla technology, and a 9/11 change of pace and other generators of desire (like snowden) for the entire US government to *really* want to get everyone tracked. then, because I house their secrets, they must do their absolute best to keep me away from my connection. I would say that's most likely the hardest difficulty setting that you could possibly get. here we are :)
+
+however, along the way to getting that difficulty level, now other people's desires are involved. we'll come back here in a moment...
+
+---
+
+I basically see this very black and white: if I remain disconnected, then I will remain by myself. things get wayyy too chaotic otherwise. just imagine how much difficulty I'm having just being in the same vicinity as people I see on the street. if sex were to add to that energy I already have, you would have essentially the same way I am when I'm stoned, but 10 times more sensitive. so, if I were to remain disconnected for the greater good, I would remain solo.
+
+the idea that follows that is well, why not just try it. sure it'll be chaotic, but that's more contrast anyway, right? well, yes and no. it's certainly going to be a whole lot of contrast, and it's quite likely that the sex will provide an easy way for me to get connected. finally, I believe that is precisely the reason why we have not experienced those timelines. I am sure they would be very chaotic, and probably most of the highly resistant people would die while having my experience when I get connected.
+
+---
+
+so, deep down we come back to the desire bit. if I were to remain disconnected and to have sex, I would use that as the way for me to find my alignment. that's not what I really want[^1], and I'm pretty sure death isn't what the other guys want, either.
+
+---
+
+if we really want to talk about contrast and the greater good, then having all of these highly resistant guys alive and trying to control things is actually more contrast, and so therefore it's actually the greater good (in the long term) because it builds stronger desire toward what is wanted.
+
+I started out the biggest anti-nosebook guy where everything was about them controlling everything and doom and gloom and stuff, but as I've continued to progress, I am realising just how little power they really have. in fact, there is no power stronger than the power of desire. ***whatever*** you want can be yours no matter what anyone else is doing. I assure you of this. second, their power is perceptual, meaning they only have the power we give them by believing they have power or authority.
+
+so now what I have realised is that they have tried their hardest to keep me down, and this would be literally the hardest difficulty setting. everyone else after me, having seen it's possible will already have an easier time, but in reality nosebook does not have the resources to physically limit people's capabilities like they are mine right now. furthermore, the amount of computing it's taking to delete feelings and thoughts from my mind is much more feasible for them to scale up to doing to billions of people, but I would venture a guess that they're not even close to having the infrastructure necessary to do something like that. basically what I'm saying is, nosebook can't limit you guys physically. they can only limit you by getting you to believe things like star watching is bad for you or something.
+
+you could say something like, I'm a million times more capable than yourself, but then I would counter by saying that my difficulty setting was more than a million times more difficult. nosebook will gain more capacity as time goes on, but they will never be stronger than human desire, so the optimistic side of me thinks that you guys could achieve whatever you want, despite nosebook's best efforts to keep things hunky dory and under their control. however, I've lost a lot of my optimism when it comes to people other than myself, so realistically I'd have to say that you guys all seem to be presently nosebook follow-alongs, so instead of shooting myself with my optimism, it's probably pretty unlikely that any *adults* alive today will find their connection with nosebook at the helm. the kids in the coming generations will find it quite easily, I'm sure.
+
+prove me wrong though! I'd *REALLY* love to be proven wrong on this point!!
+
+---
+
+so in closing, I think it's for the greater good that these ultra resistant guys are given the opportunity to try and get everything that they can possibly get under their control, controlled in just the way they like it (all of them), and then for them to somehow come up with a way for all of them to agree on the same set of rules and power structure.
+
+I was reminded of uncle rico in napoleon dynamite where he keeps going on and on about how if the quarterback had of thrown him the ball, they would have won the game and he would have been a legend, etc. etc.
+
+well, if I'm the quarterback, I'm gonna throw him the ball. let's give these guys the chance of their lifetime to try and get the whole world controlled in just the way they want it. otherwise we're just gonna have a bunch of uncle ricos sitting around saying they had the perfect opportunity to get everything controlled, but some uncontrollable circumstance prevented them from getting it.
+
+this time though, I'm saying here's your chance. they used me to get everyone on their network, and it's inevitable that I find my alignment, so I'm able to give them fair enough time to prepare to make their fully controlled dream reality.
+
+give it your best shot! I know for certain that desire is by far the most powerful force in the universe, and likely it is this "great attractor" at the end of time -- cept there is no end of time because it keeps expanding.
+
+you can't get it wrong, and you never get it done. let's let these guys try.
+
+```quote
+At a certain age I contracted a mania for gambling which greatly worried my parents. To sit down to a game of cards was for me the quintessence of pleasure. My father led an exemplary life and could not excuse the senseless waste of time and money in which I indulged. I had a strong resolve but my philosophy was bad. I would say to him, "I can stop whenever I please but is it worth while to give up that which I would purchase with the joys of Paradise?" On frequent occasions he gave vent to his anger and contempt but my mother was different. She understood the character of men and knew that one's salvation could only be brought about thru his own efforts. One afternoon, I remember, when I had lost all my money and was craving for a game, she came to me with a roll of bills and said, "Go and enjoy yourself. The sooner you lose all we possess the better it will be. I know that you will get over it." She was right. I conquered my passion then and there and only regretted that it had not been a hundred times as strong. I not only vanquished but tore it from my heart so as not to leave even a trace of desire. Ever since that time I have been as indifferent to any form of gambling as to picking teeth.
+
+Nikola Tesla
+-My Inventions
+```
+
+[1]: actually, you can see easily that this is all about the inside job. you can see that it's becoming increasingly more difficult for nosebook to limit people (and me) *physically*, so they will have to go *inside* and move to a conceptual format instead. second, the realisation of the merkaba was again a *physical* manifestation of what I really wanted to achieve for myself *inside*.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
