@@ -7448,7 +7448,61 @@ Nikola Tesla
 -My Inventions
 ```
 
+@[youtube](https://www.youtube.com/watch?v=3Kk_b-rV5qQ)
+
 [1]: actually, you can see easily that this is all about the inside job. you can see that it's becoming increasingly more difficult for nosebook to limit people (and me) *physically*, so they will have to go *inside* and move to a conceptual format instead. second, the realisation of the merkaba was again a *physical* manifestation of what I really wanted to achieve for myself *inside*.
+
+### 2019-06-07 00:44 - what do I mean by "let's give these guys the chance..."
+
+"...of their lifetime to try and get the whole world controlled in just the way they want it"
+
+well, when I first wrote it, my intention was to express the idea that you could imagine that somewhere there will be conflict surrounding my physical condition and stuff like that, and the tendency is to try and push back or to somehow implement a power structure to limit their capability. I don't think that's a good idea. they're going to do what they want to do no matter what. if we were to try and push against it, they'll use the conflict as further justification for whatever.
+
+so, because I have come to the realisation that they do not actually have very much power at all -- really, it's only the power that we perceive them to have. I have come to the conclusion that it is in our best interest to, like tesla's mother give them the roll of bills, because "She understood the character of men and knew that one's salvation could only be brought about thru his own efforts."
+
+I'm the same way. no amount of outside pressure from people like zaryn, luke, or raquel could get me to see the folly of my ways. I had to lose it all to really understand the things. these guys are the same way. if they're not given the chance let their fantasy fail, they'll remain living the fantasy that they things would be paradise if only some seemingly uncontrollable thing was different. for me, that was erik and the whole tuenti situation. I believed I would have lead tuenti to world domination of the social networking sites. for uncle rico that if he won that one special game, he would have been able to go pro and be rich. for tesla, he doesn't say exactly what his attraction to the game was, but tesla loves to predict things and having some assets (cards) which may or may not be exactly what he is presenting them to be. my guess is that he was on a conquest to have a greater knowledge of what is happening in a game where everyone's hand is a secret[^1].
+
+as you can see, tesla, me, and senior hardass all have similar personalities in that respect. in fact, I believe this is true for most men so were not alone -- I'm sure many can relate.
+
+the idea is, to instead of trying to push against them, let's just give them the resources they need to see if they can actually achieve their goal of getting everything and everyone under their control. I am 100% certain that it's not possible (for all the reasons outlined in the last entry), and even in the segment following the man wanting to put an end to WMD's abraham even said the same thing (but I had to find it out for myself), which is why I suggest we should just give them the resources (like tesla's mother with the roll of bills) so they can try their hardest to attain their dream reality.
+
+that idea sounds really good and all, but I didn't really think about the implementation of it much. I went to sleep.
+
+---
+
+I woke up thinking about the implementation of the idea and while doing so I discovered a golden perception nugget. if I reframe the previous entry, I can give a different illusion altogether.
+
+the idea came about when I was thinking about how all of you are already yielding to nosebook's guidance for you. for me, they do not give me guidance because they do not exist. so, I am only bound by the laws of the land. I can yield in that way most certainly -- or I could not. this leads us to a brilliant new fork in the road.
+
+no matter how this goes, I will be yielding to the laws of the land in the sense that underage sex is definitely prohibited, and star watching is not and never can it be. neither is there any law prohibiting me from finding my own connection. this puts me right where I am right now saying that I plan on yielding to their laws and have no plan to do otherwise.
+
+now, once I reestablish my connection and I'm rocking and rolling things will be quite different. this is the fork in the road. personally, I do not believe that the government (or anyone) can dictate or restrict what someone does with their body. this definitely includes sex or drugs or electronic devices, however some of those are regulated still. it seems pretty obvious to me that the easy thing to do will be to just go (fly) to another country like portugal where drugs are legal.
+
+so the right-hand path here is to continue to follow the rules of the land and just go (fly) to the location that best suits my activity. the left-hand path would be to decide that I am going to break the rules and somehow because I get preferential treatment, I am above the law.
+
+considering this, I realised that up until now this whole thing about me breaking the law is a huge sham. they figured out that since they're breaking the law by selling my brain capacity to other people, they to even the score, they would allow me to break the law by having underage sex. I didn't make that connection before.
+
+you see, the way this whole thing is being presented is that nosebook has the power to give preferential treatment to some people because of some arbitrary set of justifications. they can justify limiting my capabilities because they're selling them, and they can justify selling them because they can allow someone to do what they want with their body (which should have never been disallowed in the first place). gotcha.
+
+I didn't really realise it either until tonight when I started to think this through, but zaryn *LOVES* preferential treatment. actually, that preferential treatment is one of the key factors to him believing he is superior.
+
+so, think about it.. all of the laws that exist today are laws that the US govt has also done under some justification (murder, etc.), just they get that preferential treatment so those laws are basically to create an elite group of people who can do the illegal things. the rest of the people will be punished if they do. it's just a power structure.
+
+so back to where I was. right now it is agreed that I get preferential treatment because people are using my capabilities, and if that were to be lost, it would be very bad. however, once I find my connection, that will no longer be the case. I have no idea what will happen but there are some different interpretations which can be thought of:
+
+one is the book of revelation: the two witnesses were seen by everyone for 3.5 years, then for 3.5 years they were dead. depending where you count it off from, we're approaching 3.5 years from 2016 when this all began. this could mean that it'll take them 3.5 years to figure out how to decode the signal or something.
+
+another way is to think of the transformers movies. there is uncanny symbolic correlation between these movies and what is happening. shia represents nosebook. he like nosebook acquired alien (tesla) technology and it is a coming of age with this technology. I am megan. she is the object of affection for shia. the script has her presented as an intelligent woman influence on shia as he comes of age. bay's framing of it presents her much more as a sex symbol than an intelligent woman. it wouldn't surprise me that nosebook's framing of me is more in the direction of a sex symbol than an intelligent person.
+
+anyway, at some point megan did something that was unacceptable to bay so he had to dismiss her. in true masculine form, she is seen as easily replaceable and was quickly replaced as if she was sidenote to shia's maturation with his technology[^2]. I would expect that to be their response. they would likely discontinue my broadcast and find a replacement for me, probably in both regards: someone to provide a visual capacity for people that they can track and someone else to be their hot new stud.
+
+---
+
+after having talked it through a bit, it seem, considering that my goal is to take away their excuse to give me preferential treatment, my implementation of giving them the control they want, I will yield to the law. I will not be engaging in any illegal activity such as underage sex, and will stick to legal utilisations of my time, like watching stars. it would probably be too disastrous to break their laws while at the same time leaving them in a lurch.
+
+[1]: this theme comes up quite a few times in his autobiography as he attempts to predict many things, where the most humorous of them all was when he predicted that the man at the door as come to lavish validation of his inventive genius, when really it was a man doing a survey of people who think they're psychic. tesla is always predicting, and it seems like his patents and things were largely like a game of poker to him. he never shows his full hand. there are always tiny bits of essential information left out which he kept a secret. nosebook's attainment of his technology after many years of trial and error (because tesla never explained *why* things worked a certain way), the arrival of me has a bit of a poetic justice to it.
+
+[2]: it seems likely to me that in the original script for transformers there would have been a scene somewhere, where someone like megan scolds shia for having brilliant alien technology but all he uses it for is to try and pick up chicks with it. that scene, if it existed, likely got the bay reframe.
 
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
