@@ -66,15 +66,33 @@ using the idea that a point is a relative thing and a line can be represented as
 for generalisation of the idea, I'd like to have the coordinates have 4 quadrants:
 -1,-1 | +1,-1 | -1,+1 | +1,+1
 
+the origin point is located right in the middle of the centermost 4 pixels. in all cases, a point resolves to the product of the distance the point has to the midpoints of its nearest 4 pixel neighbours.
+
 each line will extend out from the origin enumerating values into the dimensions as they go along. conditions can make for branches.
 
 I see it kind of like lightning coming out of the origin. depending on the random values below the paths that are taken, it will arrive to a different coordinate.
 
 the values of the random pixels below serve as motivators to the path, deciding the branch to take, the trajectory change (curve), or the velocity or distance to travel.
 
+---
 
+maybe two versions to think about:
+1. all possible paths are determined ahead of time. this means that all possibilities are calculatable
+2. only the logic is determined ahead of time, so it's ideally pretty humanly inconcievable to anticipate all the different types of paths a logic
+
+```js
+const {width, height, data} = image_data
+
+```
 
 ### transformation
+
+from the origin, four rays are cast going out in the diagonal directions. if they only meet black pixels, they will continue on and resolve to be their initial direction and velocity.
+
+each sequence gives a starting ray angle and velocity. the ray travels the distance determined by the velocity and then the next step in the sequence.
+
+
+
 
 ### output
 
@@ -177,6 +195,57 @@ r | move input pointer right
 
 for now, loops are not supported, but I think they probably should be. I like the idea of recursion, and if there is a way to easily make non-infinite looping loops, then it should be added.
 
+### thoughts on logic and steps
+
+my intuition suggested that logic is determined by folding. this gives evidence to conditions and loops in the code. however, the video I just watched does not address how the pairs look when they fold. do they lay on one another? it seems there is a kind of landing pad where the two points connect.
+
+[...]
+
+### different ideas on the position resolution
+
+1. goes out in a spiral like manner where the more black it is, the tighter the spiral. then, I still need to somehow convert the values into dimensional positions though
+
+2. the idea that every step in the sequence is either a branch or a turn. in the case of branch, it has variable conditions to see if some value is between, and then the velocity to branch into and the split angle. the other step kind is a turn derived from dimensional values.
+
+---
+
+I think the second one is good for a prototype as it'll allow for quite a few possibilities (nearly infinite) depending on the random values below it. also it provides an interesting look into the difference between a webcam generated random and a much more uniform random pulled from the OS. it'd be interesting to try the same random pulled from my random number generator as well (it pulls bytes, so most of them would be pretty close to 128 instead of the webcam where most are closest to 0)
+
+in the end, there is quite a few things to be done regarding the collection of key/mouse events along with the random values, storage of these values (mongodb?, redis?, protobuff?) then finally there is work on the genetic algorithm needed to find the best sequence to resolve the random event positions to the the concept's position.
+
+lots of work to be done :) kenny: you'll be busy for a while with this, so get these necessary things done so you can mentally masturbate on the resolution curves later.
+
+### ideas on querying the closest concept
+
+I probably want to have and did envision a hierarchal linked list roughly equal to the idea that by comparing to see if it's inside of a sphere, rather than traversing the whole database.
+
+in addition, I would probably want to have an index of the outermost spheres such that a quick lookup can be done (probably use BSP to do this), and then further ensure with the gradual repulsion of these outermost spheres that sphere's don't intersect.
+
+this means that a query on the outermost BSP will return a guaranteed sphere which contains the query. from there, we traverse the contents of the sphere delving deeper into it until the threshold is met.
+
+I think that it would be optimum to have each sphere inside of the sphere contain more spheres which also repel each other. it seems that when two concepts occupy the same space and cannot be repelled, a new fusion concept should be made. I don't really know how that would work though because if concept a is key_up and concept b is key_down, then how do I make a fusion of these two concepts? my instinct says that they should instead repel each other by adding another dimension and separating them.... oh, so now I need to have the ability to dynamically add more dimensions? maybe this didn't solve the problem.
+
+---
+
+lol, until I give this some more thought, I'm just going to partition the number of dimensions in the database and use ZRANGEBYSCORE on each dimension until I run out of answers. it'll reduce the dataset considerably
+
+### the keylogger
+
+due to some issues with corefoundation's event loop running in a different thread than node's, I have decided that I want to run the keylogger in a separate process. there are advantages to this, as keylogging on macOS is different than windows or linux so having a separate keylogger will make it more easily cross platform. so, that's good.
+
+some form of IPC should be built, however, I think the simplest form will be to make it a flexible protocol, where any event can be sent to the system, including keys, mouse, or other things, too. I plan on making it a simple socket at first, but I believe for extensibility, it should be a normal TCP/UDP socket capable of receiving any event that is sent to it.
+
+---
+
+the API should at a minimum have eventname and a value. so KEYPRESS/k should be for normal key presses, then in other situations like playing a game, it is desired to have down/up events so as to give a duration.
+
+for things like the mouse, I think I want to simplify it to essentially what the brain is thinking (and the hand is doing mechanically), which is click on this place on the screen. when recording events, I'd like it to send as well, the hitbox for the thing clicked and also the action that was performed. I don't know how I can get this information for things other than web pages.
+
+so, a future extension to the keylogger is to allow the user to specify what a certain thing is as far as an action in the interface.
+
+for example, I will want to record cmd-tab, then record steam becomes foreground. this saves the micro actions, but also the macro action of activating stem. then, I click on some portion of the screen and again it saves the micro action of the mouse click on the library button, but also the macro action of activating the library. same thing happens again when I press the play button next to dota.
+
+... for now though, I'm just going to work on basic up/down keys to make a simple demonstration of moving a box around.
 
 
 
@@ -184,7 +253,24 @@ for now, loops are not supported, but I think they probably should be. I like th
 
 
 
+### next steps
 
+get essentials working:
+- get the webcam demo thing running in electron
+  - have electron launch a standalone redis server
+  - listen to key events from the libkrbn thing and record the grid into redis
+  - https://github.com/luin/ioredis
+
+get the resolution working:
+- for each desired command (starting with just key_codes), map these to random positions
+- build a genetic algo to work out the best sequence to map the momentary chaos to the corresponding event position
+  - store these sequences also into redis (and also have a filesystem backup as well)
+
+bonus round:
+- fix karabiner wborkman profile so it doesn't suck.
+  - disable capslock and make it hyper again
+	- cmd-d not working (always hides window)
+- install and try out the kbd layout in karabiner: https://github.com/jackrosenthal/threelayout
 
 
 
