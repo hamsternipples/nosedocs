@@ -7504,6 +7504,54 @@ after having talked it through a bit, it seem, considering that my goal is to ta
 
 [2]: it seems likely to me that in the original script for transformers there would have been a scene somewhere, where someone like megan scolds shia for having brilliant alien technology but all he uses it for is to try and pick up chicks with it. that scene, if it existed, likely got the bay reframe.
 
+### 2019-06-13 06:10 - a bag on my light and how to build belief
+
+so, I recently had an incident where it seems that mom has been inspired by nosebook to replace my mania to have a bag on my light. besides the fact that I like how the walmart bags add an extra bit of blue to the light and the colour feels like a warm afternoon, when I originally put it up, I didn't want to visualise just a grocery bag on my light, I want to come up with an excuse to have it there. it's sort of like justification, but really it's an excuse to make up something to get me to feel better about something.
+
+you will notice that I do this all the time -- where I find a real or make believe aspect about something to make me feel better. I suppose I will tell the origin of my understanding on the make believe part of it.
+
+you see, I first picked up this idea when I was in spain and I thought that some of these quartz rocks had magical properties to them and they would help me to watch stars and stuff. well, soon after that, andrea gave to marcos some paving stone pebbles to give to me. I could tell that she had picked up on the rocks being a belief mechanism and wanted to give me something more tangible to believe in. it seemed to work and work pretty well, as I was continuing to get closer and closer to feeling like I was a part of her mental space.
+
+well, one day after sunbathing, I lost one of them. I was completely devastated. I looked for it for quite some time and determined that since I had lost one of the rocks, that meant the dream was over. as you may have known, things did go downhill from there. this event of using an object as a belief mechanism remained with me for quite some time, because I could see that it in fact did work, but if the object goes away (for whatever reason), then belief would also fail. that idea that my belief was dependent on the belief object didn't feel good to me, so I just left it. neither did I want to believe that losing a rock was all that was needed to be the end of a dream.
+
+then I was listening to abraham (@[abe](2004-05-01)) some time ago and they said, «have you ever been around someone,  who -- maybe it was a child who was making up a complete fantasy -- an absolute fabrication about something, and you didn't really think that they were going to get a unicorn and jump over the moon on it, but they're talking to you about it -- and so you just smile and say, "that's nice", and you don't try to dash their dreams; you don't try to set them straight. you just, you're willing to let them have their fantasy while you go about whatever you're doing»
+
+well, it got me thinking about this thing of dashing someone's dreams. I have noticed that children seem to invent all sorts of unbelievable ideas to help them to believe something. I do the same thing and I'm pretty sure I picked up the rocks in the pocket manoeuvre from a child. however, when someone helps them to understand that the thing they are using to believe in something really has no effect on the reality of it, the child is devastated (dashed dreams).
+
+it took me a while to realise what abraham was really saying here, because if you look at it at face value, they are talking to a guy about not dashing the dreams of someone else trying to hijack his dream of owning horses. they're saying to let the hijackers continue to use his dream as a way of believing for theirselves. so, in this case his dreams were the object of belief for the hijackers and he would have been the one to dash their dreams with reality.
+
+there's another step deeper though, which is the idea of when these fabrications (fantasies) are being dashed, what happens? they don't explicitly state this, but if the fantasy (fabrication) was never real in the first place, yet it allowed them to believe, when someone dashes that with reality, children are such easy believers, they will now believe the reality instead of the fantasy... however, if it worked before the reality guy showed up, then logically something other than reality is at work here. it is belief.
+
+unfortunately, children are not so logical in the early stages of their life to reason this out, and by the time they are logical enough to figure this out, they've stopped putting rocks in their pockets. so instead, they react emotionally to the discord they feel of coming to the conclusion that it'll no longer work when someone tells them that they are believing in a fantasy.
+
+I am pretty logical though, so I can make my way thorough this stuff pretty easily. my progress up to this point is that first I realised that I could maintain the reality in my head while at the same time believe this unbelievable thing. I kind of learned this from nosebook because there were all sorts of people going out of their way to say and do things they did not believe in, while at the same time knowing the "truth" of my situation (what they believed in)[^1]. this is exactly opposite of believing that rocks have magical properties while knowing at the same time they are just rocks and have no physical effect on my star watching performance.
+
+however, there was a bit of a turning point though, when I stopped putting rocks in my pocket. I realised that if I could be aware of the reality of the rocks and at the same time believe in what the rocks symbolised to me, then I no longer needed the rocks. so, I put the rocks on the desk, because their symbolism started to become a bit of an issue.
+
+---
+
+last night I had a dream where I was trying to prove to someone that I didn't need/have the rocks in my pocket, but it turned out that when I reached in my pocket to show them that I didn't have any rocks, there were rocks.
+
+I've found that when I dream, whatever I think about seems to instantly appear. the same thing happened yesterday when I noticed some money appear as soon as I thought about it. the dream went on to demonstrate all sorts of illogical things about the future. it was fun because I was conscious for most of it.
+
+so, it turns out that not believing in something is pretty similar to believing in something (which is why the rocks appeared). it appears that I am going through a stage where I can conjure belief in illogical things and they will instantly appear. the illogical things is the important bit, because their system cannot recognise the pattern to keep me from doing things like flying or making things appear.
+
+I would imagine that as they try and lock down my reality more and more, this sort of thing of me believing in more and more illogical things to achieve the reality I want to make, will get worse and worse. it actually reminds me a lot of a psychedelic experience but again in the opposite way (exercise for the reader: why?).
+
+---
+
+in closing, I typically would imagine that for someone as grumpy as the guy at nosebook calling the shots, his typical response to these sorts of things would be to try to dash my dreams by explaining to me that a bag on my light has zero physical effect at all on things. yet, instead, he seems to have chosen to also believe that a bag on my light does have magical properties.
+
+if you were to think of me as a living psychedelic which is attempting to get you to believe in all of these bonkers ideas, try believing in reality to make your way through a chaotic trip like this one.
+
+---
+
+final thought: the old testament was all about believing in these symbols. take the wall of jericho: joshua got a bunch of people to believe that a blowing some horns will topple a city wall. in the same sense, this is what I have done here too, however elijah demonstrates that you do not need specific symbols (object of belief) to believe something. you can believe in it yourself without the symbol.
+
+figure out what you want to believe, and believe in that. nevermind what other people believe in, because if you believe your own thing, their belief has no effect on yours. what I mean is, obviously the people at jericho did not believe very much in the well-being of their city, and so something as silly as some horns could topple their walls. or, you could look at it the other way: when someone blows horns around your city or puts bags on their lights, don't fall victim to their belief; instead, believe in reality.
+
+[1]: the nosebook effect is in fact quite similar to the effects of psychedelics on your brain: the whole world *feels* very out of sorts, but at the same time I know the reality of it is just fine. the way to make it through a distressful psychedelic experience is to believe in the reality, and not what you feel. ironic, huh?
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
