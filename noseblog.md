@@ -7552,6 +7552,48 @@ figure out what you want to believe, and believe in that. nevermind what other p
 
 [1]: the nosebook effect is in fact quite similar to the effects of psychedelics on your brain: the whole world *feels* very out of sorts, but at the same time I know the reality of it is just fine. the way to make it through a distressful psychedelic experience is to believe in the reality, and not what you feel. ironic, huh?
 
+### 2019-06-14 06:08 - realistically what I'm sort of expecting for the future
+
+so I mentioned that we should just let these guys try and control everything, but I had not really considered a very important point: even if I make it up another dimension, they may not be able to see through my eyes, but they'll still be able to limit the serotonin in my stomach and the dmt in my brain.
+
+I was reminded this morning while watching stars about the conduit thing I mentioned, and it really applies here. I am sure there will be no real change coming out of nosebook in any tangible way so as to release the limitations they have on me. additionally, I have come to the conclusion that neither will I be engaging in any illegal activity because I really don't like this idea of preferential treatment. it creates a power structure where nosebook now has the authority to give some people preferential treatment and others not.
+
+so, considering that neither of us are really willing to change, and neither should we, since we're both justified in our reasoning, I have to imagine the future playing out in a way where no matter what, my ability to feel good will be independent of whatever nosebook is doing or whatever situation I am in. I am in a sense taking a bit of a lesson from jaron (moreso how he was in the past) where I just have to find a way of being content with whatever situation I am put in -- and you can see that I am little by little accomplishing that.
+
+it's taking me a bit to find a way to feel good, and the more sensitive I become (more visual upgrades), the more I can feel strong emotion from other people. this is good if people feel good emotion in response to what I'm doing, but it's taxing when I feel strong negative emotion like anger or depression or revenge or something. depression isn't really such a big deal for me any more, but anger still affects me quite a lot still (absorption or reflection), and I'm learning to keep my own way no matter the situation. it's difficult but my situation is helping me to learn it. for example, I really hate mom and her stupid lamp thing. it seems stupid to me to go out of her way to force me to change something that I like -- and this made me feel quite strong negative emotion.
+
+so, I threw it in the trash because I find it to be silliness. well, after I a few encounters with mom, I began to understand the reactions I was feeling. it seems quite likely to me that the lamp is actually a special lamp designed by nosebook. I leave my light on at night because I like sleeping with that colour cause it feels like daylight all the time. tesla wanted to turn the earth into a second sun, and I like that idea too. however, once that is done, no one will be able to watch stars anymore and it'll be daylight all of the time, so I wanted to begin to become the a recipient to the thing that I would create.
+
+anyway, it's likely that nosebook doesn't want me to have the light on for whatever reason and wants to be able to control to light in my room or something. it's so frustrating to me that they can't just leave me to do the things that I want to do.
+
+though, what I also realised last night is that maybe they bought into my fantasy about a bag on my light having magical properties. after all, they have obviously bought into the one about peeing taking away the clouds. I have no idea physically how a few cL of pee could have an effect on massive cloud structures. they have to be pumping MW of electricity into the atmosphere to make these clouds, and a few cL of magical urea can completely undo that... lol, they probably bought into it. so they think that by being able to control my light, they'll be able to slow down my star-watching performance.
+
+however, my realisation was that there is no way that the physical properties of the light have any effect[^1], but their mental energy going into trying to push against, and limit the effectiveness of my desire by controlling physical conditions will actually *add* much more energy into the equation than any physical energy the light emitted could have done. I will probably just let the situation play itself out because there's no way that they could possibly believe that it was my silly fantasy that was doing all of the work, not the light.
+
+the next thing I realised is that mom is compelled by them to manipulate these circumstances on their behalf. this is likely not going to change either.
+
+---
+
+place yourself in the future now when one of two things has happened:
+
+1. my power level will have grown to be so much that I will have gone up a dimension. likely, I still will not see my imagination. instead, I will see things that I imagine inside of my environment. if that is the case, that means that in order for them to see what I am imagining, there will need to be someone around me able to see things in their environment. I assume this will be one of the girls. I don't know if they will do to them like they do to me now where they put the image their eyes see in their eyes so they cannot see what their mind is creating in their environment, or if they'll let them see those things and interact with them too. who knows.
+
+2. my power level will have grown so much, that even though I did not go up a dimension, things are REALLY REALLY detailed. I don't know what this would be like, cause I really want to go up a dimension. I really don't like their constant harassment, but imagine that maybe at some time in the future I will have gotten so good feeling good even with a bad situation, that my conduit is actually so large that their harassment no longer bothers me. in that case it would be possible for me to no longer need to go up another dimension, I suppose. I really *REALLY* **REALLY** want to go up another dimension, cause I want to actually see the world I'm living in and feel it. I would also have to have gotten so good at feeling energy movement inside of my body, that I can do it even with their full limitations. we'll see. this may be a viable path, but I still have a long ways to go before I'm this stable.
+
+either way this works out, I imagine that they will still want to try and control things. if it's door #1, then no one will see through my eyes anymore, and if it's door #2, then very few people will be able to see through my eyes. this makes me pretty out of their perceived control, so they'll attempt to regain as much control as they can. so, that would put the girls essentially in the situation that mom is in now. nosebook would have to attempt to control me through them.
+
+I really hope that it's both doors honestly. I really want to be so solid in my emotional output that I'm not concerned about what nosebook, the girls or anyone else is doing, and anything that is not in the frequency range of what is wanted does not affect me. I don't really want to rely on some sort of dimensional advantage to substitute to make it unnecessary to gain control of my emotions.
+
+---
+
+in closing, I did not really realise this but when I said to let them try I didn't really realise that I was meaning for the rest of my foreseeable future.
+
+bonus thought: imagine that nosebook thinks that what I'm trying to do is to create a a new "species" of humans, and so they would want to try and control that as much as possible. then, in their attempts to try and control it by trying to control the girls similar to how they having mom as proxy for their manipulation, so by needing to control it, they will create a bunch of girls that are taught (by them) how to try and control the men -- making their new "species" of humans a bunch of of guys that have to learn next to impossible emotional control in response to a bunch of women trying to micromanage everything[^2].
+
+[1]: in fact, the plasma ball I had emitted more radiant energy than the florescent light, because the plasma ball was able to make the florescent light illuminate wirelessly, and another florescent light cannot.
+
+[2]: I took the most extreme position on that projection that I could come up with. likely it'll be much less than that, but I wanted to illustrate that they are trying to create the thing they fear the most (overbearing women in control) by attempting to maintain their physical superiority.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
