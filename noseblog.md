@@ -7594,6 +7594,42 @@ bonus thought: imagine that nosebook thinks that what I'm trying to do is to cre
 
 [2]: I took the most extreme position on that projection that I could come up with. likely it'll be much less than that, but I wanted to illustrate that they are trying to create the thing they fear the most (overbearing women in control) by attempting to maintain their physical superiority.
 
+### 2019-06-15 23:12 - the age of magick is upon us
+
+when reading the sirian guide to human development, they mention this idea that this is the time the 7th ray comes into power. according to kuthumi, the 7th ray is the physical plane -- the one that was added just below the astral plane to trap the infected ones. nevertheless, the concept still didn't make a whole lot of sense. I knew that the originator of the infected ones was also a 7th ray and his illusions were capable of convincing people of his/their superiority. the 7th ray are magicians.
+
+we know that because of the ubiquity of cameras (every phone and computer has one now) that children are growing up much more in the spotlight than ever before. combine this with the internet and social media, and almost everyone, and certainly all of the children, are performers now. this is a tremendous step forward for humankind because it's the beginning of "specialisation" -- where people specialise in what interests them, instead of everyone being just another cardboard cutout component of society.
+
+that all seems well and good, but I didn't understand the magick part of it. it was so obvious I can't believe I missed it though, and it actually wasn't visible to me until just this last week.
+
+reality no longer needs to be explained logically.
+
+what I've been getting at with some of these things about belief and stuff is just that. you can make up whatever you want to as an excuse to believe something and it begins to make reality. it doesn't need to make logical sense.
+
+however, as with every bit of technology (mental or physical), it is a two sided sword: you may have begun to notice that nosebook's reality doesn't make any logical sense, either. that is the illusion. that is what all of this is about.
+
+when what is perceived to be real, no longer makes logical sense, that is the definition of a psychedelic experience. or, if you're seeing something that doesn't make logical sense, that is a hallucination. it's ok for us to have these sorts of experiences in our dream-state, but it's rather taboo for us to have these experiences in our awake-state[^1].
+
+this of course means that things which are possible in the dream state will become possible in everyday reality. most people reading this now will not understand what I'm talking about, but the concept that has begun to emerge from me harping on this moses and elijah thing is the key to understanding it.
+
+ironically, I actually first learned it from some time travelers that I communicated with on the internet when I lived in berlin. they taught me about how to program with my mind using sequences of 4 symbols (earth, air, fire, water), and then they taught me to begin using symbols as a means of attracting futures. they said to put items around and drawings which would remind me of a future as a way of achieving that reality (in the future).
+
+I actually spent quite a lot of time and energy on this idea of programming with sequences. I tried to jump into action too quickly and make a prototype of it, but I didn't really know what I was doing and I would have just made a poop. shortly right after that, I was in a bar with andreas (meta), and my laptop was stolen will of of their websites and instructions saved on it (it really felt like I had discovered a website built for me to see, and I don't remember how I found it cause I was drunk). when the computer was stolen, I had a very weird sensation that I felt like I had been manipulated by dark forces from another dimension or something[^2]; it was completely illogical that they could have taken the computer and neither of us were really drunk, so andreas and I were quite surprised.
+
+later when I was at augusto's house and I was blitzed on mdma, I could perceive the future very very clearly. I was reminded instantly of these symbols and quickly took to consolidating this future I could perceive so clearly into 3 pictures which I drew on paper.
+
+---
+
+it's not instant magick, because it takes a bit of time for the things to develop, but quite literally anything is possible. really, ***ANYTHING***. I can say for certain that if you can find a way to believe it, you can do it.
+
+to tie this all together, I want to remind the reader of the various dreams that I have had where I was able to have instant manifestation inside of the dream, just by arriving to my belief in the manifestation from an illogical conclusion. for example, I made money appear instantly by believing that I was tithing to (the church of?) trump. they definitely do not want me to be able to create/visualise whatever I want in my dreams, or fly, or whatever -- so, they have all of those concepts on lockdown. my dreams are usually interrogations in an alternate almost as boring as this one reality. it's pretty clear that if they could, they would prefer that I lived in my dream-state which they control and couldn't go watch stars or whatever. if they had a few more years I'd be dreaming in the most bland, utterly under their control situations where I cannot create anything.
+
+finally, and this is the punchline here: remember the whole thing about the matrix and a parent reality nosebook has us all locked into my dream reality? well, it's another belief mechanism that I've been using. I'll prove it to you. if that is the case (and it doesn't need to make logical sense), then I should be able to wiggle my way out of their constraints on my perceived reality (which is just all of us living inside of a very long persistent dream). when I say wiggle, I mean each time I come up with an illogical way of helping me to believe in some physically impossible thing, the more I release myself from parent reality's nosebook's grip on what we all perceive to be reality -- and just like in my dream, instant manifestation should be possible. well, anything really is possible; just have to find a way to believe in it.
+
+[1]: I think the taboo comes from the idea that you are a cog in the machine of society, and if you're having illogical experience, you are not a productive working component, and so therefore -- BAAD. however, we are moving away from the factory human implementation and toward specialisation, so it's only natural that things begin to get a bit illogical.
+
+[2]: the next time I felt that same feeling, like I had been manipulated by dark forces from another dimension, was when raquel had her mobile stolen. it was a landmark event which was (in my opinion), the beginning of a series of events which really put the tombstone on our relationship. additionally, I remember something happening with the berlin computer and patricia as well, because I had to fly to madrid to pick up a new mbp. these weird events man... tellin ya.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
