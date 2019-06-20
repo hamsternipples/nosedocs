@@ -7630,6 +7630,46 @@ finally, and this is the punchline here: remember the whole thing about the matr
 
 [2]: the next time I felt that same feeling, like I had been manipulated by dark forces from another dimension, was when raquel had her mobile stolen. it was a landmark event which was (in my opinion), the beginning of a series of events which really put the tombstone on our relationship. additionally, I remember something happening with the berlin computer and patricia as well, because I had to fly to madrid to pick up a new mbp. these weird events man... tellin ya.
 
+### 2029-06-19-2019 19:55 - I think things are going to work out
+
+last night I had the overwhelming sensation that things were all going to work out just fine. I've noticed a bit of an ebb and flow to my sense of the progression of things in the sense that I seem to really only be convinced that I want to move forward with things when I'm watching stars -- eg. when I have more light in my head. I'm really learning to manage my energy a whole lot better now than ever, so even I found out today that if I just sit down and begin the programming process, then the energy is summoned.
+
+this is monumental because I previously would kind of wait for it to feel like my energy was moving before taking any action. this has served me pretty well up until now, but this idea that I can control my own energy (and I'm not talking about faking it) is just the beginning, it feels.
+
+I have to say that as I begin to realise this more and more, there's really nothing that can stop me anymore. I can just decide, and it moves. it also has interesting implications because it totally puts me in charge of what I'm doing and where I'm going with all of this.
+
+---
+
+after I had that overwhelming sensation that everything was beginning to fit into place, I had some other strange (negative?) perceptions immediately following. I could perceive that what is about to happen was kind of caused by nosebook. they made their own problem by trying to cover up some other stuff, and now they're in a pretty big jam because they probably promised things they thought they had control over, and now it's pretty unlikely they'll actually admit to their mistake, so they'll try and fix it with another patch[^1], and so fourth until ... well who knows what'll happen, right -- probably nothing.
+
+in fact, the sensation that I had is that they're going to just keep trying to hotfix their extremely shaky to support the next big thing, all the while ignoring that the whole thing is built on a pretty shaky power structure. a good example of what I'm talking about is modern politics. it's really difficult to explain the idea, but imagine a whole system of a bunch of really complicated rules, power structures and all sorts of "tiers" and "levels".
+
+then, kind of isolated from the "real-world", which everyone else lives in, (kind of like how I am now) there we are and the thing that we're creating. it gave me the sense that the "reality" of this outer world would be mostly kept a secret from us.. I'm sure you guys (and especially the ones on the premium tiers) will have all sorts of cool stuff that we won't have access to[^2].
+
+---
+
+I'm kind of going out on a limb a little more here recently, and it started ever since I talked with dad and told him what I was working on. when I did, I noticed that a lot of people connected a lot of dots as to some of the things I was talking about and working on. as a result, I noticed that my explanation of what I was working on kind of aborted the idea. I didn't like how that felt so I decided that I wanted to learn how to direct my energy so well that it wouldn't even matter if people knew my development roadmap, as it wouldn't hinder me in any way and only add on to the energy.
+
+I made a few energetic experiments and found that I seem to perform quite well in open-roadmap sort of style of doing things. I think it actually works quite well for me. I don't seem to be bothered by the idea that you guys are all watching me struggle at things for a bit.
+
+you see, I've always known my own capability well enough that I always knew that I could pull through and gain the success I'm looking for in the end. you guys watching doesn't take that away, you know. remember when I was talking about the kid making the realisation that believing rocks had magical properties works, even if the reality is they have no physical effect. same thing, but with my own capability.
+
+the effect is coming on slowly. don't expect any instantaneous changes or anything like that. actually, I anticipate that for me to really begin to get comfortable in this level of self-consciousness[^3], could take up to a year. well, I don't know really how long it'll take. I'm kind of rewriting a whole lot of my personality to accept such a grandiose idea.
+
+you may have noticed me becoming a bit more "bold" with my predictions or statements than usual. I used to keep them to myself because my ability to believe in them was weaker than other people's criticism and disbelief. however since the fallout of that conversation with dad, I've decided to really double-down here.
+
+---
+
+all of this was just an experiment at first, but now it's really a good exercise I'm finding to try this out. I've found that it ebbs and flows. I don't know how many of my crazy ideas nosebook tries to dampen anymore, because a lot of the reduction in energy at times could also be to other's perception of or unbelief in the idea. however, I'm noticing that like my programming, there are ebbs and flows and that whenever there is a reduction, if it is what I really want, it just comes back stronger.
+
+actually, I want to also take the time to mention that I'm sure that nosebook will probably get more and more frantic with their attempts to try and gain control, so maybe expect there to be some ebbs and flows along the way. really, it's quite a good thing because it sort of strips away a lot of the superfluous energy, and if it is something you (the larger part of you) really want, then it'll come back stronger, so don't worry about any of it; it's all part of the getting ready process.
+
+[1]: in tuenti we had these things that we called "hotfixes" which were just another if-statement to hopefully path up a giant failure in the way the underlying system works. maybe something like that :)
+
+[2]: I thought about it some, and the best reason I could find as to why I felt this way, was it would be a sort of way of having something (technology) superior to me (us), and the whole secrecy bit was to generate a feeling of privilege.
+
+[3]: yes self-consciousness!! -- like the thing we had previously thought to be a bad thing. it just clicked recently that the only reason why that self-consciousness had previously felt bad to me when I was growing up, was because in that moment, a comparison or some other consciousness other than my own is being perceived.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
