@@ -7646,6 +7646,8 @@ in fact, the sensation that I had is that they're going to just keep trying to h
 
 then, kind of isolated from the "real-world", which everyone else lives in, (kind of like how I am now) there we are and the thing that we're creating. it gave me the sense that the "reality" of this outer world would be mostly kept a secret from us.. I'm sure you guys (and especially the ones on the premium tiers) will have all sorts of cool stuff that we won't have access to[^2].
 
+the last thing that I came to realise is that I had been going on and on for a bit about time splits, but the other impression that I had is that is that actually there were many time splits that got us to this point where we would find a timeline to cohabit the planet at the same time. this will be the subject of a future discussion undobtedly.
+
 ---
 
 I'm kind of going out on a limb a little more here recently, and it started ever since I talked with dad and told him what I was working on. when I did, I noticed that a lot of people connected a lot of dots as to some of the things I was talking about and working on. as a result, I noticed that my explanation of what I was working on kind of aborted the idea. I didn't like how that felt so I decided that I wanted to learn how to direct my energy so well that it wouldn't even matter if people knew my development roadmap, as it wouldn't hinder me in any way and only add on to the energy.
@@ -7669,6 +7671,9 @@ actually, I want to also take the time to mention that I'm sure that nosebook wi
 [2]: I thought about it some, and the best reason I could find as to why I felt this way, was it would be a sort of way of having something (technology) superior to me (us), and the whole secrecy bit was to generate a feeling of privilege.
 
 [3]: yes self-consciousness!! -- like the thing we had previously thought to be a bad thing. it just clicked recently that the only reason why that self-consciousness had previously felt bad to me when I was growing up, was because in that moment, a comparison or some other consciousness other than my own is being perceived.
+
+### sink or swim!
+we're all in this together, sharing a same time and space reality.
 
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
