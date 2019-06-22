@@ -7690,7 +7690,7 @@ because it's a race against time, another aspect of the gameplay I could foresee
 
 the other part I'm thinking of is the specific one of the economy. the commanders start with a large lump sum to begin with. they only make gold off of killing heroes though, so their economy is always dwindling. the heroes have to pay x gold (say 20% their net worth) to be able to respawn, so if they die too many times, they accumulate too much debt to be able to function properly (respawning just puts your balance into negative numbers, but to purchase items, you need a positive balance). so, if the commanders are capable of killing them enough times to cripple them economically, it they will have secured a win.
 
-I think the best thing will be for the heroes to admit their defeat and concede, or maybe if the combined debt of the heroes exceeds their net worth, then they automatically lose (or something like that). if the heroes fail to concede, they will eventually lose automatically from being killed in the respawn. maybe an inactivity timer will give them fatigue or something, so they must constantly be pushing forward on the objectives (for which they get paid), otherwise they accrue debt from failed objectives.
+I think the best thing will be for the heroes to admit their defeat and concede, or maybe if the combined debt of the heroes exceeds their net worth, then they automatically lose (or something like that)[^2]. if the heroes fail to concede, they will eventually lose automatically from being killed in the respawn. maybe an inactivity timer will give them fatigue or something, so they must constantly be pushing forward on the objectives (for which they get paid), otherwise they accrue debt from failed objectives.
 
 I'll keep thinking about the idea on and off, but this is a game mode where it would be quite fun to have a few different sized maps with more and more ridiculous bases and difficult circumstances that the heroes must overcome to be victorious.
 
@@ -7700,7 +7700,9 @@ after this game mode is developed, personally I would prefer to play the side of
 
 the way I perceive the game mode, I don't personally believe there will ever be a time (or if there is, it'll get nerfed) when the commanders can 100% always shut out the heroes. the game will evolve along with an ever expanding set of tools (software, via interface extensions) which simplify the commanders' efforts, and so will the tactics of the heroes along with it. it shouldn't ever get stale. -- and, the payoff from the ridiculous power level for the heroes when they're able to get to the high levels should be really rewarding for te viewer as well.
 
-[1]: though, I suppose it would be pretty cool for individual people to take command of individual characters, like mini heroes or portions of the army
+[1]: though, I suppose it would be pretty cool for individual people to take command of individual characters, like mini heroes or portions of the army.
+
+[2]: or, to think about it more physically, the heroes will have multiple places they can respawn at (randomly chosen?). so, obviously at the beginning of the game, the commanders cannot get their creeps to the respawn points quick enough, and it would also be pretty foolish for them to park a bunch of their army there at the respawn point in case they respawn (especially when they're higher level), because it'll likely get farmed by the heroes. so, when the game is lost, the very most extreme case would be the commanders have gained enough control that they could make it near to impossible to leave the respawn point alive, so their debt would reach the threshold and they'd lose.
 
 ### sink or swim!
 we're all in this together, sharing a same time and space reality.
