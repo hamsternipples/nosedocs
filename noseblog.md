@@ -7672,6 +7672,36 @@ actually, I want to also take the time to mention that I'm sure that nosebook wi
 
 [3]: yes self-consciousness!! -- like the thing we had previously thought to be a bad thing. it just clicked recently that the only reason why that self-consciousness had previously felt bad to me when I was growing up, was because in that moment, a comparison or some other consciousness other than my own is being perceived.
 
+### 2019-06-21 18:18 - another game mode for dota: objectives
+
+as I was trying to go to sleep, another idea for a game mode for dota came into my mind. it goes something like this: two forces. one side is a few generals controlling something that is existing, big, and established, with virtually unlimited resources -- and the other just a few heroes who must work together to conquer some objective (like an ancient hidden deep inside of the base).
+
+this is different from dota in the sense that the two teams are dissimilarly endowed at the start of the game, so imagine it like this (in the dota sense) the defending (established side) begins with an enormous amount of gold in the bask, and this gold is used by the commanders to construct creeps and and towers for defence. most of these creeps would be the equivalent power level of let's say 5-20. the conquering team's heroes all start out (let's say it's 5 commanders vs. 5 heroes) at level 1, but the commanders each start at level 10. the commanders have a level cap at level 20, however, the heros have their level cap at 50.
+
+in dota, at the start of the game, it's the laning phase where each side competes to gain an economic advantage by achieving more last hits and if possible also scoring a few easy kills. this game, the initial phase would be the avoidance phase, because clearly the commanders have access to quite a formidable army (lvl 10s) which could take out a few lvl 1s. so the objective of the heroes is to farm as much as possible gaining levels meanwhile avoiding the commanders' creeps.
+
+any kills that the commanders score is just like dota. they receive a wealthy bounty based on the hero's net worth and the hero has to wait for a timer to respawn. the commanders don't have a hero type unit. they control everything like an rts[^1], so the heroes get their bounties by killing neutral creeps (farming) or by killing the commander's creeps.
+
+interesting part of the commander's pov is the idea of cooperation in the simultaneous locating of the heroes and finding a way to kill them effectively. money can be spent upgrading the army/towers or for purchasing more units (tall vs. wide).
+
+especially so in the beginning part of the game, the matchup is very favoured for the commanders. however, if the heroes are able to route enough of the commanders' army, farm and secure enough towers to make to to say level 30, then each of them start to become a bit of a one-man army. by the time that they reach level 50, a skilled player could essentially solo the whole thing.
+
+because it's a race against time, another aspect of the gameplay I could foresee is that because the commanders need to have as many observer wards placed as quickly as possible to have enough intelligence on the heroes movement patterns, they have to make as much harassments as possible.
+
+the other part I'm thinking of is the specific one of the economy. the commanders start with a large lump sum to begin with. they only make gold off of killing heroes though, so their economy is always dwindling. the heroes have to pay x gold (say 20% their net worth) to be able to respawn, so if they die too many times, they accumulate too much debt to be able to function properly (respawning just puts your balance into negative numbers, but to purchase items, you need a positive balance). so, if the commanders are capable of killing them enough times to cripple them economically, it they will have secured a win.
+
+I think the best thing will be for the heroes to admit their defeat and concede, or maybe if the combined debt of the heroes exceeds their net worth, then they automatically lose (or something like that). if the heroes fail to concede, they will eventually lose automatically from being killed in the respawn. maybe an inactivity timer will give them fatigue or something, so they must constantly be pushing forward on the objectives (for which they get paid), otherwise they accrue debt from failed objectives.
+
+I'll keep thinking about the idea on and off, but this is a game mode where it would be quite fun to have a few different sized maps with more and more ridiculous bases and difficult circumstances that the heroes must overcome to be victorious.
+
+---
+
+after this game mode is developed, personally I would prefer to play the side of the commander rather than the hero. the reason why is, although I think that the game should be tuned to have more than one commander operating the thing, because unless you've got uber micro, chances are the heroes will slip through pretty easily. to keep the meta fresh, I think the commanders should have a development api to which both the interface can be extended (lua?) to have all sorts of macros or even potentially ML stuff in there too.
+
+the way I perceive the game mode, I don't personally believe there will ever be a time (or if there is, it'll get nerfed) when the commanders can 100% always shut out the heroes. the game will evolve along with an ever expanding set of tools (software, via interface extensions) which simplify the commanders' efforts, and so will the tactics of the heroes along with it. it shouldn't ever get stale. -- and, the payoff from the ridiculous power level for the heroes when they're able to get to the high levels should be really rewarding for te viewer as well.
+
+[1]: though, I suppose it would be pretty cool for individual people to take command of individual characters, like mini heroes or portions of the army
+
 ### sink or swim!
 we're all in this together, sharing a same time and space reality.
 
