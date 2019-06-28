@@ -7778,7 +7778,7 @@ imagine some of them have been in bodies of babies born in 2016, so they would b
 
 ---
 
-if there were to be a timeline split, it would be in 2038, but I don't believe that is anything more of the significance of when I make my transition into having a multi bodied experience[^1][^2]. I'm really excited about this transition for a lot of reasons.
+if there were to be a timeline split, it would be in 2038, but I don't believe that is anything more of the significance of when I make my transition into having a multi bodied experience[^1][^2][^3]. I'm really excited about this transition for a lot of reasons.
 
 anyway, it will make for a very very interesting world to live in where I make my transition into a multi bodied experience all around the same time as a bunch of the previously most resistant people on earth beginning their careers. it's going to be very very interesting that's all I know. it's really going to put the human race into hyper-overdrive.
 
@@ -7788,7 +7788,9 @@ so, sink or swim, the energy is just going to continue to rise :)
 
 [1]: this could be a big transition where a lot of new contrast is made because perhaps my imagination will no longer be used, or something I dunno ... it's *WAY* too soon to try and figure it out.
 
-[2]: it would also mean the end of the timeline because I would no longer be the "backbone" of it. the backbone simply means that everything I am living has been so well optimised and preplanned, there is very little or no variation to certain "major turning points" in my life such that like a string with a standing wave, the variation is in the details or the harmonics the string produces, not its frequency (cause it's a standing wave after all). you can imagine that this will produce many many many never before imsgined realities and circumstances with all sorts of new forms of contrast.
+[2]: it would also mean the end of the timeline because I would no longer be the "backbone" of it. the backbone simply means that everything I am living has been so well optimised and preplanned, there is very little or no variation to certain "major turning points" in my life such that like a string with a standing wave, the variation is in the details or the harmonics the string produces, not its frequency (cause it's a standing wave after all). you can imagine that this will produce many many many never before imagined realities and circumstances with all sorts of new forms of contrast.
+
+[3]: you could also say that I am making a claim that having everyone hooked into my imagination, I am providing predetermined mental and visual stability for humankind during this magnetic excursion event. lol, take it how you want :)
 
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
