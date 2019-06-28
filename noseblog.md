@@ -7722,10 +7722,71 @@ I am very certain that I want to continue to experimenting with mushrooms becaus
 
 [1]: clearly this is what they also do in my stomach with serotonin. likewise, they can remove the overt good feeling, but the high frequency of feeling good still makes its way through. this is why I don't act like I feel as good as I should be feeling.
 
-[2]: this is why you will notice that I can make a lot of mental breakthroughs and it seems that nosebook is pretty good at keeping my vision as low as possible, but when I stare into the star, the star pushes my frequency upwards (closer to where it should be), and if I haven't made the mental breakthrough yet, no upgrade. however, other times it takes almost no effort, because I already should be going at the faster freqency.
+[2]: this is why you will notice that I can make a lot of mental breakthroughs and it seems that nosebook is pretty good at keeping my vision as low as possible, but when I stare into the star, the star pushes my frequency upwards (closer to where it should be), and if I haven't made the mental breakthrough yet, no upgrade. however, other times it takes almost no effort, because I already should be going at the faster frequency.
 
-### sink or swim!
-we're all in this together, sharing a same time and space reality.
+### 2019-06-28 15:42 - sink or swim!
+
+> we're all in this together, sharing a same time and space reality.
+
+this one has been bouncing around in my head for a while now. I've been pondering the thought that perhaps there is actually not a time split coming up. in fact, it is becoming more evident to me that actually what we are living now is actually the culmination of many timelines previous.
+
+so, what I mean by that is that is I think that instead of strong desire causing a split, where more than one reality has to be created to ensure that everyone is manifesting their own perceived reality. I think this coming reality has more than enough to be desired about it that it actually satisfies what is wanted for as many sides as possible.
+
+you may disagree with me because you may be saying that what you perceive to be does not feel good, and I would say, that is precisely the first indication that you are not perceiving what it is that you really want.
+
+---
+
+before I go on, I woke up from a weird dream sequence where there was all sorts of confusion. first, it had to do with jessica, then with melissa, then with amorina and the conclusion was that trump (the streamer) was going to help amorina out with some videos. I remember I felt kind of excited when I woke up because I was looking forward to collaborate with trump. anyway, as I came back to reality, I realised that trump doesn't do videos -- it's actually jens.
+
+I felt around in what I could remember of the dream and it was obvious to me that the dream operators were having a tough time getting the signals right which is why it changed a few times from jessica (she often appears in dreams when they want me to have sex with a girl, so jessica is the symbolic equivalent to their target girl of attraction). then, the trump part was obviously an incorrect translation of a signal as well. it seemed after feeling around a bit that they were wanting to make it seem like there were other dudes trying to "help" out amorina with something video/performance related -- I suppose to make me sort of jealous or something.
+
+it didn't phase me at all, because I have come to a stage in my life where I simply cannot be concerned about anything that anyone else is doing. everyone has the capacity to choose whatever they want to, and that absolutely cannot affect me. this has made me unstoppable, because I only stick to paying attention to what is wanted for *me* -- and that has nothing to do with anyone else.
+
+nosebook believes that I still think like normal person would, where, when I see something that is unwanted, then that will motivate me to do something about it; to try and fix it or to try to influence things so they go in a way that I perceive to be better.
+
+that approach to life has so many flaws in it, I won't even begin. for me, if I only focus on what is wanted for me (and doesn't have anything to do with anyone else) -- and usually that's just finding a better way to think/feel about or perceive some situation -- then I continue to hold my focus on what is wanted. that's it.
+
+---
+
+so when I say that I think this timeline us the culmination of what is wanted for everyone involved in the creation of it, I'm talking about a perspective where each person involved is looking at what is wanted for *them* -- and doesn't contain any emphasis on what is unwanted. I'll give an example.
+
+lately I've been getting a lot of vision upgrades, and it seems to have made some people a little uneasy about things. I can imagine that this discord they are feeling is a result of their wanting something they cannot control to be different. if I were to ask they what they want, they would say, "I want kenny not to continue to get more vision upgrades." -- which is exactly the same as saying, "I don't want kenny to get any more vision upgrades."
+
+those people who may say that are focusing all of their attention on what is not wanted. so, then I might ask them what they want, not what they don't want. I don't believe they could actually answer in any reasonable way because they think that my actions are making them feel bad. cutting though all of the different excuses, justifications, and reasons about why they feel bad, it's obvious that they really want to just feel good.
+
+---
+
+we (especially me) are all going through a process of learning that a focus on what is wanted dose not involve other people. as a result, we are all growing tremendously. I think this idea anyone other than yourself is responsible for you to achieve what is wanted. when I gave up trying to control things around me, I gained a tremendous freedom and power level to go in the direction of what is wanted.
+
+you can imagine that someone who is unwilling to give up their perception of unwanted and focus only on what they want (and doesn't need to involve anyone else), these people will feel growing resistance.
+
+I will imagine that it is going to get worse too, because it seems that nosebook has put a lot of people in a situation where this is a bit more amplified than usual. I believe the majority of people are going to do ok with this coming transition.
+
+ben (from S0's) has been going on an on about this magnetic reversal or excursion for a while now: @[youtube](https://www.youtube.com/watch?v=MvG0hS0BEzc) and I think that something to that effect is certainly taking place.
+
+it seems kind of funny that the earth has timed the excursion to coincide right when nosebook has become a big thing, and now there is a whole lot opportunity for people need other people and things to be different to be able to perceive what is wanted.
+
+what I'm saying is, I think this whole thing (and I don't really have a good name for it) is the pivot point or fulcrum upon which this transition will affect the humans the most.
+
+I think it will continue to get worse, and I think that a lot of people who are unable to perceive what is wanted will probably die off.
+
+---
+
+this may sound undesired, but if you consider that this is the culmination of a whole bunch of timelines, I imagine that most all of these resistant people who will appear to be dying off, are not actually as dead as they would seem. I believe they have utilised timeline technology and and actually present with us today in the form of kids. they would have used the ability to influence a whole bunch of different manipulatable parameters (like I have outlined in other entries) to essentially create the life they want to live.
+
+imagine some of them have been in bodies of babies born in 2016, so they would be 3. by the time they're in their 20's (they would graduate college in 2038), they're working in nosebook with their dream job. obviously growing up the kid isn't concerned with all of the upheaval that is happening right now, so will come in with a fresh perspective.
+
+---
+
+if there were to be a timeline split, it would be in 2038, but I don't believe that is anything more of the significance of when I make my transition into having a multi bodied experience[^1]. I'm really excited about this transition for a lot of reasons.
+
+anyway, it will make for a very very interesting world to live in where I make my transition into a multi bodied experience all around the same time as a bunch of the previously most resistant people on earth beginning their careers. it's going to be very very interesting that's all I know. it's really going to put the human race into hyper-overdrive.
+
+---
+
+so, sink or swim, the energy is just going to continue to rise :)
+
+[1]: this could be a big transition where a lot of new contrast is made because perhaps my imagination will no longer be used, or something I dunno ... it's *WAY* too soon to try and figure it out.
 
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
