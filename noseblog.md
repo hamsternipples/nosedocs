@@ -7835,6 +7835,16 @@ I do not believe that much will change actually. I'll go up a dimension and ever
 
 having thought about it a bit myself, I kind of like that you guys are so stubborn, too -- because that way I can essentially be assured that nosebook will subject all of the gnomitos to a similar thing. it'll be frustrating for me to go from the eyesight I used to have down to the awful eyesight that the gnomitos will surely have, but I think it'll be ok. my transfer into their bodies will only offer me another opportunity to achieve the same thing I am doing now, but through a multitude of different perspectives. after all, if tesla went from the vision he had down into the vision I had when I was 16 (pretty awful, cause I still had reading glasses which I never used) -- then, I can also do it and rediscover how to do that. also, there will be the interesting situation of the environment they will grow up in, which will be a contrast to nosebook's (improved from what I had) ability to limit people. I guess I'm kind of excited to relearn how to not need conditions (vision or whatever) to be optimal for me to find my alignment (through many different perspectives at the same time).
 
+### 2019-07-02 12:51 - try again in simple axioms
+
+the last 4-5 different entries I have had a real difficult time getting the concepts out in english. I don't feel like I've been translating them very well. I think nosebook has been pooping on them as much as they can to avoid me getting that light in my head when I start writing. when watching stars, I can see the concept clearly, however once I sit down to write it, lately it's been a real struggle. I don't feel much flow to it at all.
+
+so, I have decided I will try out a different form of communication: simple axioms, axiom means a truth, but in this case I will define it as something that appears clear or obvious to me. they are not necessarily true, in the definition of universal truth, but more like a piece of my perception. to begin, I will try re-communicating last night's entry in this new simple form.
+
+I think that this is a natural progression because when I found myself physically limited from the brain haemorrhage, I moved to a more emotional / conceptual form of perception. I've added logic and reasoning on as well, especially when I was at marcos' house -- and a lot of what this document is, is a way for me to kind of process some of these concepts into some more tangible logic. however, perhaps that time of my life is coming to a close and I'm once again moving upward to a more simple (childlike) form of expression where I just say things that appear true to me.
+
+coming soon...
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
