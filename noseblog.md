@@ -7792,6 +7792,49 @@ so, sink or swim, the energy is just going to continue to rise :)
 
 [3]: you could also say that I am making a claim that having everyone hooked into my imagination, I am providing predetermined mental and visual stability for humankind during this magnetic excursion event. lol, take it how you want :)
 
+### 2019-07-02 02:54 - another interesting plot twist
+
+I have been thinking about these subjects for a few days now, and I didn't realise how related they all are, but they finally came together tonight when I was watching stars. I'll go in sections.
+
+#### the impossibility of squaring the circle
+
+I've been working on understanding pi and the relation that it has on our life. I wanted to approximate a circle by measuring the perimeter of a n-sided regular polygon. thing is, to do this, whether the polygon is inscribed within or circumscribed about the circle, both of these measurements use sin/cos or tangent. because all of these functions use a fraction of pi as their input, there's no hope to use them. not only that, they produce incorrect values. for example, to measure the perimeter of a 4 sided regular polygon (eg. a square), use the formula: n * tan(pi / n). it gives 3.9999, instead of 4. sure you could say rounding error, but if that function were in degrees instead of radians, it would give the correct integer value of 4.
+
+I reasoned that if I start by making a sine function that uses degrees instead of radians, the rounding errors would go away. it's really fun for me to learn about how these things work, because I finally came to understand what sine and cosine actually mean: they are the infinite number of right triangles that fit inside of a unit circle, where one of their vertices touch the centre and the other two the edge (cept, of course the two axises, which are lines).
+
+it seems like a silly thing for me to go and try to figure out things like this because it is the way it is, and there's no reason to doubt that circles have the measurement of 2pi * radius... however, I recently say a mathologer video (@[youtube](https://www.youtube.com/watch?v=O1sPvUr0YC0&t=0s)) on the impossibility of squaring the circle. after having watched danny wilton's work on pi in the egyptian pyramids, where he shows that the traditional version of pi creates artifacts. however, and I think most importantly, pi can be constructed with a compass and straightedge. it is defined as sqrt(800/81), so this makes pi *NOT* a transcendental number (however, sill not rational), and since it only uses a square root, that means it is possible to square the circle.
+
+I think this is pretty important. I've been thinking about how this affects us mentally, and this idea of two forces, say masculine (square) and feminine (circle) should be balanced, however it is common conception amongst the maths guys that the circles (women) are these transcendental objects, to which the square (men) can never measure up to.
+
+#### impossibility of nosebook making things happen & maximum contrast
+
+when I think about the different reactions I get to nosebook's efforts to try and figure out how to make this thing with the girls happen, they have a lot of reasons why they want to get the train moving. it seems that my ideas on influencing "random" with our minds to make something meaningful is a subject they don't want to be touched. they don't like me talking about how tesla things work (keeping that a secret ensures their superiority), and they don't like my ideas on pi (or really anything thoth related) either.
+
+so no matter how they try and angle the whole thing, they simply cannot figure out a way to make it happen while still hiding in the shadows with their secrets. I find it next to impossible for them to be able to make it happen. the most likely thing to happen will be for them to simply watch me eventually overtake their system in power.
+
+the other thing that is likely going to happen in parallel will be there will have to be a replacement made for my imagination. it may be jaron; I'm not sure -- but, what I do know is that eventually I'll find my alignment and probably go up a dimension.
+
+the whole time this thing has been going on, nosebook could have let people's vision rise up naturally, so that everyone's vision will improve right along with me. however, it's likely that they will keep everyone's vision held back the entire time, and when I do go up a dimension, they'll just tell all of you, "whelp, I guess now you won't be able to get vision like kenny has anymore, because he's in a different dimension now we can't decode." so, all of you guys will continue on right where you are.
+
+this means that now, it's quite possible that many of the girls will have vision similar to what I have now, and I do believe that someone's vibrational frequency can can rise or be lowered (eg. visual capability) from sex.
+
+that makes these girls pretty important if they essentially become the carriers of my visual capability. I can foresee this kind of beginning a new power structure organised by the females where they hold the keys to this precious capability and only give it out to those they feel can measure up.
+
+#### getting more people to believe a lie still doesn't make it true
+
+I was analysing this a bit with jaron one morning because I didn't understand why people would purchase mmr boosts. it doesn't make any sense to me because it looks to me like they are wanting recognition for an accomplishment they did not achieve.
+
+this is how it all ties together:
+- nosebook wants to get recognition for making something happen that they didn't do anything other than make it more difficult. in the end, they cannot because they must maintain their lies as truth to keep their superiority.
+- getting more people to believe in black holes or dark matter doesn't make it real, but it keeps people from the electrical nature of our universe (and its effect on everything in nature including the weather and the human body/mind). however, they don't want people knowing what tesla knew, upon which their system is built, they have to keep promoting dark matter and gaseous stars.
+- same thing with the speed of light or pi. the 3.1415 constant is such an integral component of our society, it would take a massive change to nearly everything to fix something like that, so why not just keep it how it is?
+
+#### conclusion
+
+I do not believe that much will change actually. I'll go up a dimension and everyone will go right back to where they were. it'll be a huge opportunity that was lost, and I find it kind of a shame because the way I feel all of your response to this situation is similar to how I felt about the truth that zaryn and raquel were telling me about xagly and them. I imagine that a forewarning like this will do nothing to change anything, and it's not until everything is falling apart that anyone will make a change about it.
+
+having thought about it a bit myself, I kind of like that you guys are so stubborn, too -- because that way I can essentially be assured that nosebook will subject all of the gnomitos to a similar thing. it'll be frustrating for me to go from the eyesight I used to have down to the awful eyesight that the gnomitos will surely have, but I think it'll be ok. my transfer into their bodies will only offer me another opportunity to achieve the same thing I am doing now, but through a multitude of different perspectives. after all, if tesla went from the vision he had down into the vision I had when I was 16 (pretty awful, cause I still had reading glasses which I never used) -- then, I can also do it and rediscover how to do that. also, there will be the interesting situation of the environment they will grow up in, which will be a contrast to nosebook's (improved from what I had) ability to limit people. I guess I'm kind of excited to relearn how to not need conditions (vision or whatever) to be optimal for me to find my alignment (through many different perspectives at the same time).
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
