@@ -154,7 +154,7 @@ I have been wanting to have a multi-bodied experience for as long as I can remem
 
 ---
 
-so, really what's important for me is the idea that there are some girls that want to be sexually active with some boys (born from other mothers) and also want to be sexually active with me. that's it.
+so, really what's important for me is the idea that there are some girls that want to be sexually active with some boys[^3] (born from other mothers) and also want to be sexually active with me. that's it.
 
 all of the other stuff doesn't really matter so much to me. I've been thinking about the way to practically implement the idea, and essentially it'll just be like a membership (lol) sort of thing where the girl can join and she can leave whenever she wants to. I expect there will be both transients who leave after a short period of time and other ones that are interested in the part of growing up with the boys. obviously there are different synergies between the different girls, and this will take shape with time. I think it may be a bit chaotic at first, but we'll get it eventually. I'll help out as much as they want me to, but I think it may be best to eventually let them have full control of the implementation details.
 
@@ -165,3 +165,5 @@ I like it :)
 [1]: I'm pretty low resistance nowadays, so essentially I'm like a chameleon in the sense that I'm pretty receptive of all sorts of ideas and energy for many different sources. I don't really push much against anything anymore, and instead always try to find the wanted part in everything.
 
 [2]: taking into consideration the idea of timelines, if one of the previous relationships were actually having the experience of one of these girls, it would be like a way for them to not only create the exact relationship they want, but I, when merging with the kids, will learn to see things from their perspective (eg. it'll be the culmination of me learning to see things thorough all of their perspectives at the same time).
+
+[3]: in the previous section, I described it from a singular perspective of one boy matched up with one girl, but I don't really think that's how it'll go. it seems pretty obvious to me there will be a lot of mixing where the whole lot of them will go each with whomever they fancy at the time. in the same way, you could say that each one of the girls will impart a different form of my energy (how they experionced me) on to the boy. so, in the end he will be more rounded. however, there may be ones that may settle into a more singular relationship. doesn't matter at all how this works out.
