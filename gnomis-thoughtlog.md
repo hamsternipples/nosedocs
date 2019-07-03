@@ -139,3 +139,29 @@ I really want to know how all of this works, but it seems to me that I may be ab
 that's all I have envisioned for the first generation so far. I suppose when I think of this in the bigger picture, all of the kids would be pretty well observed and watched by many, and for some of the boys, they may want to do a similar thing. they could easily follow suit and replicate the idea. I am sure they will have captured the hearts of many girls not a part of this, and so it may be desirous for them to join one of the gnomitos which has now grown up, and make a similar thing as this one.
 
 lastly, I didn't really give too much thought to this, as I just assumed it would work itself out, but it seems evident to me that a somewhat wide gene pool would need to be had for this iteration. also, it seems logical to me that an variety of different ages may be necessary to shorten the time, since not all girls are capable of having children until they're a bit older.
+
+### 2019-07-03 06:28 - the things that are important to me
+
+I have been wanting to have a multi-bodied experience for as long as I can remember, and there are a lot of factors that have emerged in the process of understanding what all of this means. to list a few:
+
+1. when I think about myself right now, I have often considered myself a reflection of my mom -- and I've mentioned it more than a few times that I think I am what she would have been like if she had of been a boy. similarly, you can imagine that with the girls essentially growing the boys up and transferring them my energy sexually[^1], so while containing my energy, they will be (in my opinion) much more a refection of their mother and the other girls who they are sexually active with. this is an exciting prospect for me because I will get to discover myself (who I *really* am) in the reflection of these others that have raised them. the variety of experiences will be incredible.
+
+2. in addition to what what I said previously, if I think about it from my perspective, I will know these girls all along this time and will have gotten used to them from kenny's perspective. however, once I make my transition, as I merge with the boy, I will now experience her from an entirely different perspective[^2] -- one which was transmitted to the boy since he was very tiny. that's pretty cool.
+
+3. I really like the idea of being able to work on projects with myself. I often wish that there were another one of me around to ask a question to, because I almost always seem to have some sort of insight into what the person is talking about, and I would love to hear myself consider one of my own ideas from another perspective. additionally, if you consider this from a multi-bodied point of view, imagine one of me is really stuck on something and is so stuck, he's resistant to the solution he's looking for. from a multi-bodied perspective, as I transmit the emotion/concept to them (not the physical solution), the one who is not resistant to the physicality of the solution will be able to hear it and get it communicated (pretty hard to explain what I mean here).
+
+4. nosebook will likely try to fight against the boys (well probably all of us actually) gaining a visual capacity. so, this gives me an opportunity to have a number of different experiences to which I'm able to still connect up. the challenge of doing this will be a bit different because there will be some conditions that are favourable such as sex and stuff from an early on stage in life, yet nosebook will have also improved their technique as well, so it'll be kind of interesting. it makes for an ideal but difficult conditions.
+
+---
+
+so, really what's important for me is the idea that there are some girls that want to be sexually active with some boys (born from other mothers) and also want to be sexually active with me. that's it.
+
+all of the other stuff doesn't really matter so much to me. I've been thinking about the way to practically implement the idea, and essentially it'll just be like a membership (lol) sort of thing where the girl can join and she can leave whenever she wants to. I expect there will be both transients who leave after a short period of time and other ones that are interested in the part of growing up with the boys. obviously there are different synergies between the different girls, and this will take shape with time. I think it may be a bit chaotic at first, but we'll get it eventually. I'll help out as much as they want me to, but I think it may be best to eventually let them have full control of the implementation details.
+
+the sense that I am getting is that the girls have an idea of what they want to create, and my job really is to try and do my best to make that a reality. I've stated what I think is important to me, and there will probably be more things that I discover that I like as well, but this is a good explanation of my intent. now, I guess I'll just begin to let the different pieces fall into place.
+
+I like it :)
+
+[1]: I'm pretty low resistance nowadays, so essentially I'm like a chameleon in the sense that I'm pretty receptive of all sorts of ideas and energy for many different sources. I don't really push much against anything anymore, and instead always try to find the wanted part in everything.
+
+[2]: taking into consideration the idea of timelines, if one of the previous relationships were actually having the experience of one of these girls, it would be like a way for them to not only create the exact relationship they want, but I, when merging with the kids, will learn to see things from their perspective (eg. it'll be the culmination of me learning to see things thorough all of their perspectives at the same time).
