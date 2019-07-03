@@ -247,32 +247,83 @@ for example, I will want to record cmd-tab, then record steam becomes foreground
 
 ... for now though, I'm just going to work on basic up/down keys to make a simple demonstration of moving a box around.
 
+### concept space
+
+concept space is n-dimensional. so, and after some research:
+https://karussell.wordpress.com/2012/05/23/spatial-keys-memory-efficient-geohashes/
+http://blog.notdot.net/2009/11/Damn-Cool-Algorithms-Spatial-indexing-with-Quadtrees-and-Hilbert-Curves
+
+it looks like the best solution is to use this lib:
+https://github.com/FALCONN-LIB/FALCONN
+
+another option is this one:
+https://github.com/spotify/annoy
+
+because it's c++, I'm going to look into making it into a redis module (after I figure out how to use it properly). queries can be done in threads, and a lock can be acuquired in redis: https://redis.io/topics/modules-blocking-ops
+
+finally, this one seems to be quite fast and is a header only implementation:
+
+https://github.com/nmslib/hnswlib
+https://github.com/nmslib/hnswlib/blob/master/ALGO_PARAMS.md
+
+### tesla coil inspired resolution?
+
+another idea would be to "attract" all of the random spots toward the centre of the image. each step along the way, apply some sort of transformation to generate the dimension value. this seems like a good idea to me because it's more similar to a tesla coil.
+
+maybe both in the future, where the attraction serves as the input values to a different function that would expand from the middle.
+
+### redis stuff
+
+store every event grid in its own hash, eg. keyup-k|xxxxxx
 
 
+gridevents - a command which receives a grid, then:
+  - run all sequences on the grid, generating a position for each sequence
+	- return sequence positions that are close enough to an event.
 
-
-
+maybe in the future, it may be better to stream grids to redis with a timestamp and possibly an event.
+- if just the timestamp is found, it will process the grid looking for events, responding with events it's found.
+- if an event is also passed, then it will put it in a "training" queue to close the space to existing grid events by generating more optimal sequences.
 
 ### next steps
 
 get essentials working:
 - get the webcam demo thing running in electron
   - have electron launch a standalone redis server
+	  - limit memory
+		- replicate to disk
   - listen to key events from the libkrbn thing and record the grid into redis
-  - https://github.com/luin/ioredis
+	  - grid format: `struct { u16 width; u16 height; u32 reserved; u8[width * height] data }`
+	  - key event: `redis.hset('keyup-k', 'grid-xxxxxxxx', Buffer.from(grid))`
+	  - mouse event: `redis.hset('mousemove+5-0', 'grid-xxxxxxxx', Buffer.from(grid))`
+		- `redis.hgetBuffer('keyup-k', 'grid-xxxxxxxx')`
+		- `var stream = redis.hscanStream('keyup-k', { match: 'grid-1234????' })`
+
+simple game to record keypresses on:
+(now that I think about it, I could have skipped the whole libkrbn keylogger part just for testing and made the events exist only within electron... lol)
+- copy for packaging: https://github.com/FlorianFe/Elements
+  - ? https://github.com/vincelwt/harmony/blob/v0.5.0/package.json
+- simple svg demo which loads up a square into the screen and moves it around with keys.
+- simple webgl demo which loads up a cube and moves it around with keys.
+- build a simple keybinding interface to allow configuration of the keys (to test more than just wasd)
+  - they should have bindings that go from from generic to complex:
+	  - keyup-w -> +moveforward/-moveforward
+	  - keyup-s -> +movebackward/-movebackward
 
 get the resolution working:
 - for each desired command (starting with just key_codes), map these to random positions
 - build a genetic algo to work out the best sequence to map the momentary chaos to the corresponding event position
   - store these sequences also into redis (and also have a filesystem backup as well)
 
+keyboard/mouse simulator:
+- program which receives key/mouse events, and ensures that they are replicated in the OS
+  - make this into a full blown usb hid that identifies a keyboard and a mouse to give the inputs
+
 bonus round:
 - fix karabiner wborkman profile so it doesn't suck.
   - disable capslock and make it hyper again
 	- cmd-d not working (always hides window)
 - install and try out the kbd layout in karabiner: https://github.com/jackrosenthal/threelayout
-
-
 
 
 
