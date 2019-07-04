@@ -7845,6 +7845,50 @@ I think that this is a natural progression because when I found myself physicall
 
 coming soon...
 
+### 2019-07-04 14:39 - loud motorcycles! (the connection)
+
+one of the interesting reactions to my latest entry in gnomi's thoughtlog was around the idea that nosebook would have to impair all of our vision (including the girls').
+
+last night I was watching stars and I was thinking about this exact thing, when a few *EXTRE* loud "motorcycles" went by. I could feel a strong sense of anger external to me. it seems obvious to me that it comes from whoever is making the motorcycle sounds in response to my thoughts. it doesn't really bother me and I might have even found it humourous.
+
+I was able to, even being in the city instead of out on the prairie, able to sync up with the star (vega) and images started forming in my eyes. the neighbour seemed to call his dog(?) every time that I began to sync up with the star. this time though, the anger came from within me.
+
+when I woke up just now I was reminded of the dramatic transition that occurred after fooling around with vera and she transferred me the energy of marcos sexually. I think this was actually planned, and then what followed was a realisation that previous to this, I was a super chill guy that just sort of went with the flow of whatever I had available to me. when living at marcos' house it didn't bother me to not really have so much (any) money. there wasn't a whole lot I could do about my present monetary circumstances, but I knew that if I just focused and made another website, I would, zat least, have a sizeable income and perhaps much much more. so, I didn't really mind that in that moment I was essentially penniless.
+
+one day we were down at the bar near to the torrelodones cercanias. I think at that time I was not drinking and I just had a few little bits of hash to smoke. we liked to talk out there cause marcos could chill out and drink a few GTs and I could smoke a little. anyway, some mega hotshot decided to drive by on a motorcycle and it was VERY LOUD. I felt an intense sensation of anger like I wanted to rip the guy's head off. I thought it was really strange and I felt like the sensation was external to me. I was always very sensitive to what marcos could feel in relation to me (even at miles of distance away), but this was the first time I really felt it so strongly I nearly acted on the feeling.
+
+I have often postulated that marcos (from a different timeline, probably the one where the andrea gig was successful) is riding along with me in my body right now. like I said, previous to my fooling around with vera, I never had such a reaction before. if he is riding along with me in my body, from his perspective, he would actually experince my experience as if it were his own.
+
+what this kind of means is that while it may have come easy for me to (when I was living at marcos' house) not need to try and control my present economic conditions marcos often had a bit of an admiration of me at how easily I could adjust to things and quickly I could get back to the direction that I want to go (dispite the circumstances).
+
+you could imagine then if he is now here with me experiencing my experience as if it were his own, his thoughts (not so much) and emotions would impact me. so, in a sense even though it came easy for me, and I didn't have those kinds of responses before, now we can kind of learn together a new way of responding to things.
+
+all of this is about not worring about what anyone else is doing.
+
+when I was thinking about what that realisation that nosebook would have to do the same thing they do to the girls' vision as they are doing to mine, caused him (captain hardass) so much distress he felt some very loud motorcycles should go by (see the connection here), I could perceive that with me he can justify all of it because of whatever secrets and stuff, but then with the girls he won't be able to justify it. they don't have any govt secrets hidden in their minds, and so it's plainly obvious that the necessity to limit their visual capacity actually comes from a feeling of inferiority.
+
+it really isn't a problem though and I don't think any of the girls (or anyone else for that matter) should fight against it. nosebook thinks they have power to do things in our physical bodies, but I guarantee you that power is miniscule in comparison to the power of desire.
+
+I will encourage them to not worry about it and focus on what they want. if they want a visual capacity or whatever then that's it... all they have to do is to want it. the reality of it will become manifest as quickly as the power of their desire for it exceeds the power nosebook can exert against it.
+
+since a large part of building desire is actually observing that trait in someone else, having seen me do it, they will have achived already quite a bit of that desire. the only thing remaining will be to stop thinking thoughts that resist the realisation of it.
+
+I am sure all of them will get it quite easily, and in fact I think it will actually be easier for women to get this than men. men tend to have this instinct to want to try and force a change physically, whereas women, having grown up in a man's world are much better at adapting to something not going just how they want it and have less resistance in that regard (generally speaking! there are many exceptions). however, I can see that it is much easier for a woman to just sort of settle into the unwanted and just accept it as "just the way things are" and put up with it. (I'm reminded of trevor noah's story about his mom saying to put his father's mashed potatoes on the side, cause "he likes things on the side")
+
+instead of putting up with it and falling into complacency (now I'm thinking of jaron), if instead just know that desire is building and as soon you can allow it to be different, then it can become your reality. I will encourage all of them to really not focus too much externally at what anyone else is doing, and just keep their focus on what they want. it *always* works.
+
+---
+
+this whole thing kind of ties together nicely, because it is my goal to make this whole thing about living in other people's bodies to be mainstream. it will be the realisation of the san junipero in real life where you essentially select where in which baby's experience do you want to grow up in (as an alternative to death).
+
+considering that, if vera made it possible for marcos' consciousness to ride along in my body, and if andrea will be the way that I make my transition out of single bodied consciousness, that would open up the possibility for quite a few dudes to to able to ride along in the bodies of the different gnomitos.
+
+lastly, imagine how much difficulty marcos (the one in spain, not the one in my body) would be having with this whole situation[^1]. it would be really quite a wonderful thing for him to end his trip in my body finally experiencing andrea (cause in his perception, mine he can't see her and knows nothing about her). of course she will be quite successful in growing up to be someone quite amazing. so, instead of worrying all the time (like perhaps marcos in spain might be doing), from my perspective he will see just the end result, and with quite clear eyesight and a 5d perspective. you could imagine that this would be the most desired outcome.
+
+[1]: unfortunately this opened a whole lot of different unanswered questions that I just felt. I'll try to explain better. they're all him. he perceives himself singularly through his consciousness. there are infinte versions of you that exist all at the same time and all of them are you considering the circumstances they are in and the logical framework (structure) through which they perceive reality. however, you are having this experience right now because of how you *feel*. the way you feel is how you navigate between the infinite number of yous that exist.
+
+    so if marcos' consciousness is here in my body, because he chose to go the andrea route, then abort it so we could create this one and he's along with me, then the marcos that I knew is still marcos. it's one of the infinitely many versions of him that exist, and he can exert influence on this version of himself from even another timeline. he would respond and act just like he would if he were conscious, considering his circumstances and, in that time, logical framework through which he perceives things.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
