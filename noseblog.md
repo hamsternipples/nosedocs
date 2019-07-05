@@ -7889,6 +7889,55 @@ lastly, imagine how much difficulty marcos (the one in spain, not the one in my 
 
     so if marcos' consciousness is here in my body, because he chose to go the andrea route, then abort it so we could create this one and he's along with me, then the marcos that I knew is still marcos. it's one of the infinitely many versions of him that exist, and he can exert influence on this version of himself from even another timeline. he would respond and act just like he would if he were conscious, considering his circumstances and, in that time, logical framework through which he perceives things.
 
+### 2019-07-05 06:29 - it's going to be a while...
+
+after yesterday's 4th celebration I went to go watch stars. some of the reactions were kind of interesting. it sounded to me like they were trying to (they have everything turned off normally), then stop blocking the signals between me and one of the girls (dunno which one, cause it doesn't matter). I guess it didn't work because they apparently tried to overwhelm me with their desire(?)[^1] but I aparently didn't feel it.
+
+I explained to them that it seemed obvious to me that I wouldn't feel it because my heart is all blocked off. normally, my heart receives all kinds of emotional feedback from people and it's usually where I feel it all -- anything from admiration or love, depression or anger, or anything in between. about 10-15 minutes after I mentioned it, I had a brief 5 seconds where I could feel hadley quite strongly in my heart.
+
+obviously they have my heart turned off for some reason. I don't really know, but I have associated my heart with the appearance of images in 3d space. obviously they can't have that.
+
+---
+
+however, even if they were able to perfectly control it such that my heart only received the signals that they want me to receive when they want me to receive them, this is totally missing the point. I don't have any intention of doing anything until I'm connected anyway. the reason seems quite obvious to me and I've mentioned it enough times I'm repeating myself. can't drive a car without gas (or vacuum your floor without electricity). I realise there are a lot of people on nosebook vacuuming the floor without electricity. I just don't want to be one of them. I really really really want to be in control of my energy.
+
+so, I think it's going to be a while. at the rate I'm going, I don't imagine that I can begin to overpower their system for probably at least another 9 months or more. once my power level is equal to what they're able to counteract, I'll have relapses just like how I did when I was learning to see depth. I relapsed a few times, but eventually I released enough resistance that it finally stayed. obviously when this happens, they will have quite a concerted effort to get me back. during this time, I imagine that I will continue to up the power level far enough that they cannot reach me, and I'll be getting used to ignoring their pathetic attempts to regain control of my vision. I imagine this'll be probably 3 months or so for me to actually gain the confidence in my capacity and become solid with it.
+
+once I feel comfortable and stable with where I'm at, then I'll begin the process of trying to move forward with things. not before then, thoungh.
+
+---
+
+along the path, they'll likely get more and more desperate to try and regain their control, but it'll only build my strength further, so don't worry about that.
+
+I also anticipate they they will claim they have changed. I sincerely doubt it. these types of guys are the ones that claim they have changed (probably with some "heartfelt" apologies), but really no change has been made. it is impossible for them to have practiced for so many years the idea of physical superiority to just suddenly have a sudden overnight change. it's not going to happen.
+
+even if it were possible to report them to the authorities and have the authorities force some sort of change, any change that would be made will only be cosmetic. likely an apology will be given yet they will only try to do the same thing in a more covert way. I'm reminded of when I was complaining about getting shocked, so then it turned into a hissing sound. they probably apologised and said they wouldn't do it any more. now, they just take away my consciousness instead of shocking me when I see images. it's all the same thing.
+
+unfortunately, I don't think there's any real way to get rid of them. we're just going to have to ride it out. last night I was reminded of a sentence in the sirian guide to human development, which caught my attention, saying something like most get stuck in the astral/imagination layer of perception. I call this 4d, and it's when your imagination gets opened up, you get the ability to conjure images in 3d space and you perceive depth: 4d.
+
+when I was thinking about what they meant by getting stuck there, I had an overwhelming sense that things are actually shaping up to be such that nosebook want's to control and hold the keys to 4d. I think they purposefully are holding people in 3d so they can remain superior to them. if you don't like that, as they say in honduras.. people's options will be:
+
+1. pay the service price to get nosebook to give you your 4d.
+2. accept the reality like it is, and fight against it
+3. accept the reality like it is, and let the desire build for an improvement.
+4. do anything you can to find your alignment, and make it up to 5d.
+
+the first option I don't think is the best. fighting against them physically is absolutely a no-win situation. so maybe you fight against it with your thoughts and complaints... won't change anything, but it's a good thing those people exist because they make the vortex bigger.
+
+I am doing #4 now. I will be encouraging the girls to do the same as well[^2].
+
+---
+
+I really am convinced that there isn't a good or easy way to change this situation. those unable to pay the service price are kind of in the situation I'm in now. it's not like they're going to just magically transform into great people just cause we complained hard enough, so we have to use this situation as an opportunity to practice not letting anything anyone else is doing to affect how you feel.
+
+if I just go after what I want and not let it be about anyone else, it's really easy. it takes some practice though. abraham says the same thing I'm saying here in a little bit different way. they say find the feeling place of it. if you think about how hard it is to go in the direction of what you want and not have that involve anyone else, it's very difficult. so for example, if you say, "I want to complete X project" or "I want to achieve this physical capability/appearance" -- all of these are real easy because they don't involve someone else. I like to stick with those. however, if you want something that involves another person, figure out what way you want to feel when you are with that person and practice it now before the person even shows up. that way, you can be assured that you *will* feel that way with the person.
+
+it is an impossible task for them to try and control 4d, but let them try. it's not going to be easy, but the reward is the ability to control and direct your own desire no matter what anyone else is doing.
+
+[1]: whatever it is that I feel when I am sensitive to a girl's desire. I dunno much about it, but it is a definite visceral feeling that I get.
+
+[2]: this is the realisation of @[gnomis](2019-05-16 23:21)
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
