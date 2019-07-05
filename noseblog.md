@@ -7893,7 +7893,7 @@ lastly, imagine how much difficulty marcos (the one in spain, not the one in my 
 
 after yesterday's 4th celebration I went to go watch stars. some of the reactions were kind of interesting. it sounded to me like they were trying to (they have everything turned off normally), then stop blocking the signals between me and one of the girls (dunno which one, cause it doesn't matter). I guess it didn't work because they apparently tried to overwhelm me with their desire(?)[^1] but I aparently didn't feel it.
 
-I explained to them that it seemed obvious to me that I wouldn't feel it because my heart is all blocked off. normally, my heart receives all kinds of emotional feedback from people and it's usually where I feel it all -- anything from admiration or love, depression or anger, or anything in between. about 10-15 minutes after I mentioned it, I had a brief 5 seconds where I could feel hadley quite strongly in my heart.
+I explained to them that it seemed obvious to me that I wouldn't feel it because my heart is all blocked off. normally, my heart receives all kinds of emotional feedback from people and it's usually where I feel it all -- anything from admiration or love, depression or anger, or anything in between. about 10-15 minutes after I mentioned it, I had a brief 5 seconds where I could feel haden quite strongly in my heart.
 
 obviously they have my heart turned off for some reason. I don't really know, but I have associated my heart with the appearance of images in 3d space. obviously they can't have that.
 
