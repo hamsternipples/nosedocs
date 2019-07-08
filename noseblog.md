@@ -7938,6 +7938,28 @@ it is an impossible task for them to try and control 4d, but let them try. it's 
 
 [2]: this is the realisation of @[gnomis](2019-05-16 23:21)
 
+### 2019-07-07 23:44 - the dishonest analysis (??)
+
+I had a really fun time at marilyn's house today. one of the interactions really stood out for me though when marilyn was talking about some ailment she had and after 30 days she had given enough attention to it that she finally had enough and decided that she wanted to be healed. she described it like she forgot that she had the thing (polio?) and that when she got up she didn't feel any pain.
+
+I thought that was really interesting so when I repeated it back to her, she informed me that she was quite aware of her situation but deep down she kind of knew that she was already healed. when she said that I had a terrific rush because I finally could put words to this idea.
+
+I told her it's like the opposite of a lie. when you tell a lie, you tell someone something but deep down you know what's really going on. well the same was happening, but in reverse. she was giving her attention to the problem yet at the same time she was aware that the ailment was only temporary.
+
+---
+
+I really loved this because she helped me to finally realise one of my own "secret techniques" (apparently so secret, not even I knew it). I do this all the time. you'll see me giving tons and tons of attention to things that are unwanted all of the time. and LOA says that if that's what I'm giving my attention to, then why don't I get more of it?
+
+it's because deep down I know that it's only temporary. in fact, I've gotten so good at paying attention to things that are unwanted that they nearly fuel me now. think motorcycles and trains, etc.
+
+you know this is really annoying for me to even admit this because I'm essentially saying that I'm kind of like one of those problem childs that cause problems to get attention. cept, maybe instead of causing problems, I like giving my attention to unwanted things to get attention(??). or, when I complain about these unwanted things yet deep down I know that it's really fine, I suppose I'm doing a bit of theatrics, or perhaps I'm like one of those rich kids that will complain about things in order to show off ("man, this year I only got to go skiing five times!"). so, maybe instead of complaining to show off, I'm complaining to add more energy into it, even when I know it's fine.
+
+so, there you have it. I love to throw a little gas on the fire and pretend like it's a big deal even when I know it's all quite fine. lol :D
+
+---
+
+in summary, (and it's the irony of this entry) it all comes down to what you give your attention to, not what you say ;)
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
