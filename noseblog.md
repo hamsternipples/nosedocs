@@ -7938,7 +7938,7 @@ it is an impossible task for them to try and control 4d, but let them try. it's 
 
 [2]: this is the realisation of @[gnomis](2019-05-16 23:21)
 
-### 2019-07-07 23:44 - the dishonest analysis (??)
+### 2019-07-07 23:44 - backwards dishonesty
 
 I had a really fun time at marilyn's house today. one of the interactions really stood out for me though when marilyn was talking about some ailment she had and after 30 days she had given enough attention to it that she finally had enough and decided that she wanted to be healed. she described it like she forgot that she had the thing (polio?) and that when she got up she didn't feel any pain.
 
@@ -7958,7 +7958,7 @@ so, there you have it. I love to throw a little gas on the fire and pretend like
 
 ---
 
-in summary, (and it's the irony of this entry) it all comes down to what you give your attention to, not what you say ;)
+in summary, (and it's the irony of this entry) it all comes down to the truth that you know deep down, not what you say ;)
 
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
