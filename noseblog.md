@@ -7960,6 +7960,16 @@ so, there you have it. I love to throw a little gas on the fire and pretend like
 
 in summary, (and it's the irony of this entry) it all comes down to the truth that you know deep down, not what you say ;)
 
+### 2019-06-09 08:04 - you know it doesn't really matter what happens...
+
+if I were to ask the guy running the show at nosebook if there were *anything* that could possibly elevate his mood for 24 straight hours (I'm not even talking about happiness).. I seriously doubt there is anything he could respond with. I don't even think there's anything that could elevate his mood for 4 straight hours, cept maybe a coke binger...
+
+my point is, since there are zero things that will even elevate his mood, no matter what happens, he's going to be miserable.
+
+so, really it doesn't make a difference any opinions he has on the subject or what he thinks about it. he has nothing to gain. to him all outcomes are bad, worrisome, dangerous, or very bad.
+
+lol
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
