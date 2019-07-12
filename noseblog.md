@@ -7970,6 +7970,65 @@ so, really it doesn't make a difference any opinions he has on the subject or wh
 
 lol
 
+### 2019-07-12 08:45 - baptism by fire
+
+yesterday rupert sheldrake posted an excerpt of one of his conferences on youtube where he talked about water baptism likely being a near-death experience: @[youtube](https://www.youtube.com/watch?v=LsBN0wKMy_o)
+
+this got me thinking about a number of different things last night while watching stars. the first thing I was thinking about is how jesus was said to have been proclaiming that the water bearer (aquarius) is here. I think he was ahead of his time by a whole era (~2000 years in this case).
+
+I find it very likely that jesus was quite attractive to a lot of young girls similar to how I am as well. I find it quite possible that the "virgin birth" thing was a thing the church made up to cover up his affection for young girls. it also explains why jesus told his disciples to when they found theirselves in a place that they were not welcome, to depart from there and shake the dust off of your feet (matt 10:14).
+
+the way this all tied in together for me is the realisation that water baptism was a near death experience. I have had a near death experience with my brain haemorrhage -- and it was also the same time I met this dude named jesus -- and I too am never the same again. then there was this other verse that stayed in my mind too, where john (the baptist) says that he baptises with water, but the one who comes after him will baptise with fire.
+
+I was remineded of a thing I read in "cupid's poisened arrow":
+
+```
+Some yogis sought to use ritualized sex for spiritual purposes (the lefthand path). Far from seeking mutual enlightenment with a partner, the yogi sought to awaken his own Feminine Principle within—residing in the form of the kundalini energy coiled at the base of the spine. Its release ideally manifests as psychological androgyny. The most powerful method of arousing the kundalini was said to be the sexual embrace—preferably with a young virgin. Virgins were believed to be full of spiritual power and capable of initiating one into the flow of subtle energies.
+```
+
+the experinece of kundalini is often described as a fire rising up the spine. another quote from that book (haven't been able to find the original quote in the book "sacred sexuality" mentined, though)
+
+```
+In Sacred Sexuality, Feuerstein records that openhearted lovers, tantric or otherwise, have spontaneously stumbled upon the experience of communion: [After a night of lovemaking] I felt as though I was conscious or constantly awake on some higher plane. The entire day I remember feeling totally and perfectly relaxed. In this perfect relaxation I stood outside of time. To say there was no beginning or ending of time would seem irrelevant. There was simply no time . . . . [I was aware that everything material] was all spontaneously and playfully arising from one great source . . . . Somehow I had become infinity with eyes. I felt as if I had just been born in that moment, or that I had been asleep all my life and had just awakened. I also remember
+thinking that this was the true condition of everyone and that everyone could know this . . . . I remained in this state of edgelessness for about three weeks, and life was intensely magnified . . . . I ate almost nothing during this period . . . . I remember telling my lover that it felt as if my spine were plugged into the "universal socket" and that it was a source of infinite energy.... During this time I was more creative than I had ever been (or have been since) both at work and outside of work . . . . I also became prescient, seeing into the future and then later experiencing the scenes I had foreseen down to the last detail . . . . I loved everyone, including my lover, the same, infinitely. There was really no one separate to love.
+```
+
+all of those same concepts there are the same as described by many in near death experiences: timelessness, warm feeling of comfort and love, magnification of life, edgelessness for some time afterward, etc.
+
+---
+
+ok, back to the baptism of fire bit (matt 3:11). in the following verse, john claims that this baptiser by fire, "Whose fan is in his hand, and he will throughly purge his floor, and gather his wheat into the garner; but he will burn up the chaff with unquenchable fire."
+
+obviously this separation of the wheat from the chaff did not happen. jesus died before any of that took place. so, we must only assume that because this was a thing that was to happen in an era which had not yet come[^1]. the constellation piscis was in the east during sunrise when jesus was talking about aquarius. I am constantly talking about saturn (capricorn) when aquiarius is in the east... anyway :)
+
+I believe the main subject upon which this separation will occur is on the subject of having the right to do what you want with your own body[^2]. you can imagine that there were authorities that did not like the idea of people having so much freedom with their bodies... you can see the church's backlash on this by preventing sex outside of reproductive purposes, forbidding drugs, and any other substance that could get you to an altered state outside of their control.
+
+---
+
+I have a feeling that a similar thing will happen here on the subject of someone being capable of doing what they want with their own body. in the church age, it took the reformation (and renaissance) to begin to give the power back to the people. this is the elijah part.
+
+it's quite possible that nosebook does not want people to have the capability to do what they want with their own bodies, and that's probably why I'm so heart-set on waiting for it to be *legal* to do whatever you want with your body, meaning drugs and sex.
+
+nosebook will probably fight it for a while, just like the church held people away from knowledge from a long time, but it's a pretty impossible thing for them to physically limit many people. what we're creating is kind of like the beginning of the church reformation (elijah). there's no way they will be able to physically limit all of us, and so just like how when the communication medium became was mass producible, like with the printing press, the sheer numbers of there impossible to keep under control and eventually some of the knowledge they tried to keep controlled became ubiquitus.
+
+they will still hold on to the idea that they are supposed to limit people's capability based on some arbitrary criteria they have concocted. this is not something I will attempt to battle though, because this separation will occur in the era following this one. this era is about the freedom someone has to do with their own body as they please. nosebook will also do with your body as they please, attempting to limit your capability to garner their own superiority.
+
+so, you can see that next era, if that is the separation that will occur, now it will be possible for the next guy to enjoy a relationship where he can give up his freedom to do what he wants with his body and allow her to have it (this is the source energy android, girl's robot imagery I perceived).
+
+I find it very likely that the reason why jesus went on trial and was hung on a cross, was very likely because he taught that you have the freedom to do whatever you want with your body.
+
+---
+
+on an related note, I have been getting different reactions as to why I think it's a good idea to involve so many different girls now. I don't actually know, because I'm just following what feels right/good in the moment, so I don't know really, but with the ideas presented in this entry in mind, it probably has to do with the whole control thing. this way, there's really no way I could possibly control it, and it'll take a whole lot of effort for nosebook to try and control it physically. it seems that the ability for someone to be able to do whatever they like with their body as a prerequisite is actually this separation that will occur, with the result of the (figurative) "burning" of those not willing to allow this to occur.
+
+additionally, if you want to look at it from my perspective, the idea of giving up my freedom can only be done if I have had freedom to give away. as you may know, I'm sort of locked into the nosebook thing and it's pretty impossible for me to physically get out. the only thing I can do is to find my own freedom inside of my body, no matter what nosebook is doing. they do not intend to grant me my physical freedom, so I cannot give up something I do not have.
+
+so, after all of this, I am convinced that we are going in the right direction of creating something that makes the mass production of one's own bodily freedom an acceptable norm.
+
+[1]: it could be easily seen that this separation process is one that takes place when things are pushed to their extremes. this is kind of happening now. in a previous entry, I talked about a huge separation that would occur over the subject of timelines.
+
+[2]: the next era (capricorn), a similar separation will likely occur over the subject of superiority and capability as I have mentioned in previous entries.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
