@@ -7986,7 +7986,7 @@ I was remineded of a thing I read in "cupid's poisened arrow":
 Some yogis sought to use ritualized sex for spiritual purposes (the lefthand path). Far from seeking mutual enlightenment with a partner, the yogi sought to awaken his own Feminine Principle within—residing in the form of the kundalini energy coiled at the base of the spine. Its release ideally manifests as psychological androgyny. The most powerful method of arousing the kundalini was said to be the sexual embrace—preferably with a young virgin. Virgins were believed to be full of spiritual power and capable of initiating one into the flow of subtle energies.
 ```
 
-the experinece of kundalini is often described as a fire rising up the spine. another quote from that book (haven't been able to find the original quote in the book "sacred sexuality" mentined, though)
+[^3the experienece of kundalini is often described as a fire rising up the spine. another quote from that book (haven't been able to find the original quote in the book "sacred sexuality" mentined, though)
 
 ```
 In Sacred Sexuality, Feuerstein records that openhearted lovers, tantric or otherwise, have spontaneously stumbled upon the experience of communion: [After a night of lovemaking] I felt as though I was conscious or constantly awake on some higher plane. The entire day I remember feeling totally and perfectly relaxed. In this perfect relaxation I stood outside of time. To say there was no beginning or ending of time would seem irrelevant. There was simply no time . . . . [I was aware that everything material] was all spontaneously and playfully arising from one great source . . . . Somehow I had become infinity with eyes. I felt as if I had just been born in that moment, or that I had been asleep all my life and had just awakened. I also remember
@@ -8023,11 +8023,35 @@ on an related note, I have been getting different reactions as to why I think it
 
 additionally, if you want to look at it from my perspective, the idea of giving up my freedom can only be done if I have had freedom to give away. as you may know, I'm sort of locked into the nosebook thing and it's pretty impossible for me to physically get out. the only thing I can do is to find my own freedom inside of my body, no matter what nosebook is doing. they do not intend to grant me my physical freedom, so I cannot give up something I do not have.
 
-so, after all of this, I am convinced that we are going in the right direction of creating something that makes the mass production of one's own bodily freedom an acceptable norm.
+so, after all of this, I am convinced that we are going in the right direction of creating something that makes the mass production of one's own bodily freedom an acceptable norm[^4].
 
 [1]: it could be easily seen that this separation process is one that takes place when things are pushed to their extremes. this is kind of happening now. in a previous entry, I talked about a huge separation that would occur over the subject of timelines.
 
 [2]: the next era (capricorn), a similar separation will likely occur over the subject of superiority and capability as I have mentioned in previous entries.
+
+[3]: obviously the opposite is true as well: for a young girl "the most powerful method of arousing the kundalini" would be sexual-embrace with someone that has this energy flowing. it's easy an easy access to that kind of experience described in the next section (abraham calls this "alignment" -- hence the edgelessness)
+
+[4]: so then, you're probably wondering why in the world would I be telling nosebook this pattern so plainly, right? well, it's fun to watch them try and push against stuff and to try and fight it. the biggest irony of all of this is that I'm sure that none of them believe they "deserve" to be able to use my visual capacities, so they therefore perceive their own actions as theft and so therefore not good actions, but it's ok because their actions are justified somehow in their minds.
+
+    don't worry about it. at the very worst they'll try to fight it really hard and although there will be some rough times for those that don't understand yet that it doesn't make a difference what anyone else is doing, we'll all (even them) come to understand this is so (maybe the "hard" way), but in the process it'll make the next era even more energetic.
+
+    this energetic part is actually intended, because it's the best way to increase more energy.
+
+### 2019-06-12 13:57 - a thought experiment to try out
+
+imagine for a moment that right now (and I'm assuming you are over 30 years old) that you could select the life of a child here on earth, then get used to their life so much that your consciousness perceives through their body now. you are now living in their circumstances and seeing things exactly like they see them. most importantly, you no longer have a (tangible) perception or memory of who you used to be[^1].
+
+then, imagine that before you assumed the experience of this child, you could also perceive the future for this child, so you planned different interactions where you would give the child a difficult time, yet at the same time ensuring the passage of the child through the difficult situation (cause you can perceive the future). you notice that although it appears difficult for the child in the moment, you know that the child will make it though and come out ahead. you know this because you can perceive the future of the child after the difficulty and also because you know that more contrast increases the strength of desire, so it all seems fine.
+
+you leave your body knowing full well that the child will come out with an incredible reward because of it.
+
+sending thoughts into other people's heads to try and make this contrast for the child is not nearly as easy as it is to just use your already resistant self, so you set up a whole bunch of thought triggers on yourself to have your present-day self create the contrast for your new experience.
+
+would you choose to experience the hardship, knowing there's a great reward at the end?
+
+what would be your goals for your new experience? (assuming you can perceive and manipulate its future before you dive in and forget what you've planned for yourself)
+
+[1]: at best it's vague, because why would a child care about your present-day history? the whole point is to start over without that.
 
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
