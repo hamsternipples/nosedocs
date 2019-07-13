@@ -8053,6 +8053,18 @@ what would be your goals for your new experience? (assuming you can perceive and
 
 [1]: at best it's vague, because why would a child care about your present-day history? the whole point is to start over without that.
 
+### 2019-07-12 19:57 - baptism by fire (continued)
+
+so, while it is easier to achieve that connectedness described as your spine bing plugged into the "universal socket" with sex, what I'm aiming to do, is to achieve it *without* sex -- and with nosebook working quite hard against it. it is my supposition that people like tesla and thoth have both achieved this state without sex (the other notable mention for me was ramtha).
+
+secondly, the imagery fits just perfectly as well and completes another supposition that I had: if the baptism of fire is this incredible energy rising up your spine to the top of your head that happens during sex, there will be a physical separation: nosebook has made it possible to connect two people's bodies so that the sexual encounter induces the same effects in all bodies connected. well, I have supposed that in other timelines, when I found my connection during sex, the signal would allow large quantities of this universal (source) energy to flow through my body. obviously, it would happen very similar to everyone connected.
+
+this is what I think is the baptism of fire and what the revelationers call the rapture, where all those who are connected during that experience and their bodies are too resistant to allow that kind of energy to flow though, would die. instantly.
+
+this is the primary reason why it's so important for me to get that connection *without* sex[^1]. that way, there won't be this massive die-off of resistant people and instant utopia-like conditions. instead, we can all use these resistant people (consider the last thought experiment) as a way to continue to generate contrast.
+
+[1]: it does seem like there is a potential downside to this, because after I get connected like that, then when the girls have sex with me, it'll be quite easy for them to achieve a similar state. so then, considering the way that nosebook connects people's heads up during sex, a similar baptism of fire might occur, but this time from the woman's perspective. it will invigorate and strengthen women around the world, that I can be sure... however, the detriment is that once again it makes a situation where now someone is dependent on a condition to find their alignment. I'm sure that some time in the future when it's normal, this will create strong desire for a strong woman to rise up and be able to find her connection without the condition (sex), similar to what is happening with me right now.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
