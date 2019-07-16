@@ -8065,6 +8065,44 @@ this is the primary reason why it's so important for me to get that connection *
 
 [1]: it does seem like there is a potential downside to this, because after I get connected like that, then when the girls have sex with me, it'll be quite easy for them to achieve a similar state. so then, considering the way that nosebook connects people's heads up during sex, a similar baptism of fire might occur, but this time from the woman's perspective. it will invigorate and strengthen women around the world, that I can be sure... however, the detriment is that once again it makes a situation where now someone is dependent on a condition to find their alignment. I'm sure that some time in the future when it's normal, this will create strong desire for a strong woman to rise up and be able to find her connection without the condition (sex), similar to what is happening with me right now.
 
+### 2019-06-16 13:35 - the girl and her orgasm
+
+after the previous entry I had a few weird reactions to it and it does seem a bit strange this  deification of the young virgin. it didn't really sit right with me either, so I set out to try and figure out what's happening. I'm pretty sure I figured it out. this is my take on it.
+
+first, I want to share some things. when I was with raquel, I figured out how to move energy around inside of her body which essentially meant I could increase the power level of her orgasms. as usual I'm a bit of an extremist, so I tried to find the limits. things appeared to start to become uncomfortable for her and her orgasms started to become kind of violent in the sense that her entire body shook to such an extent that it almost looked painful. additionally, I noticed she would have these incredibly sudden switches into more violent behaviour (like pushing me or whatever) or yelling at me quite strongly.
+
+I didn't really understand at the time what was going wrong, and it plagued me gratly because I couldn't understand how I seemed to be doing so well, and her momentary response seemed to be of pleasure and she seemed to request it, yet I could see the general down-trend in our relationship.
+
+this is when I first seriously began to question the difference between pleasure and happiness (OR FUN). we seemed to still have a lot of fun together, but various things would occasinally trigger one of us and it would send us down a spiraling vortex of not-goodness.
+
+---
+
+I told you that story because I've come to realise over the years since that I wasn't actually doing anything wrong. neither of us were actually. what caused the problem was that both of us had quite a bit of resistance and neither of us had very good emotional control (me, the least; I was drinking very heavily).
+
+now, again if you think of the tesla coil as a simile to the penis, when the bottom part starts to pulsate, the top will pull large amounts of energy out of the atmosphere. we almost always orgasmed together and from my perspective it seemed like I simply could not hold on any longer, and the moment I began, she would also begin. I was summoning such large quantities of energy through her. that's why they seemed to begin to appear painful.
+
+I liken this effect to taking too much of a psychedelic. if I do, then it can seem painful and cause increased agitation if I don't release the resistance or the thoughts (paranoia some call it) wich hold me back from letting it feel good.
+
+all that was happening was I was summoning a lot of energy and she still had some resistance, so that's why things got a little turbulent.
+
+so, a virgin just means she'll have few preconceived ideas about what sex will be like, so she'll have far less resistance. it's not just having sex with a virgin that will give you the edgelessness enlightened resistance-free experience afterward. if that were so, then there would be all sorts of people living that.
+
+really, any woman virgin or not can do that, and I would actually say that experienced non-virgins would be better once they've have practiced to allow that much energy through (cause they know what they're doing).
+
+what I'm saying is the virgin bit really just means lower resistance -- that's all.
+
+so, here's the second part now. just like the penis is like a tesla coil (which, think about it tesla **LOVED** to measure the length of his "discharges", lol) that means it's a receiver of energy. however, the vagina is the opposite[^1]; it's a transmitter of energy[^2].
+
+up until now, if you have a man that can summon a lot of energy the best match is a girl with low resistance. however, the best would be when both are low resistance. when that happens, the anecdote in "Sacred Sexuality" is similar. to the way I have perceived it. for quite a bit of my life (and I think it started after raquel), I've had this frequent flash which appears in my mind where it feels like this glowing golden current (yes, I know the CSF fluid is a golden colour) goes up to the top of my head and it seems to turn on a light or something. when that happens, I leave my body (like a near-death experience) and I perceive the room, myself, and my partner from an external perspective.
+
+I have always realised the height of sexual experience to be like that of having a near-death experience. the only thing is you have to release a lot of resistance yourself and then you'll be very attractive to others with low resistance.
+
+my goal is to eventually realise this in a consistent way. I think it's quite possible and the great thing is that many can have this experience at the same time. the implications of this will likely be the subject of the next entry :)
+
+[1]: I actually believe we both have transmitters and receivers, where the male transmitter is the prostate and the female receiver is the clitoris, but that's for further investigation another day.
+
+[2]: from a woman's perspective, this is the ultimate empowerment, because she could blow the mind of anyone who sticks their finger in her socket, especially if she's capable of allowing more energy than he is.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
