@@ -8103,6 +8103,20 @@ my goal is to eventually realise this in a consistent way. I think it's quite po
 
 [2]: from a woman's perspective, this is the ultimate empowerment, because she could blow the mind of anyone who sticks their finger in her socket, especially if she's capable of allowing more energy than he is.
 
+### 2019-07-17 18:36 - quick thing
+
+in the last entry, I offered the idae that it's not so much about young and virgin, than it is about low resistance. it's true that young and virgin is a much higher chance of being low resistance, but that's all.
+
+the other point I wanted to make was that since I am sure that I want to be achieving this sort of near-death experience state of existence *without* sex, what I offer is a large summoning of energy. if I can summon that amount of energy, and she's not so resistant, then she will be able to join in with me on the near-death experience state of mind. also, I assume that with nosebook's capability of hooking people's minds together, so they have the same experience, then this could mean that not just her, but *many* others can have that same experience that she does, and maybe even (if the viewer is also low resistance) also have a similar experience. if that's the case, then that's pretty cool!
+
+I just wanted to be clear that my goal is to get there *without* sex. if nosebook is capable of holding that back for years, well, there's not much I can do about that. they're going to do what they think is best, and I have to continually adapt to my circumstances.
+
+I am adapting as quick as I possibly can, and given my circumstances, I'm making incredible improvements all the time. I don't really know if I can improve much faster than I am right now. every optimisation that I can make to my understanding, I'm integrating as rapidly as I can. I don't really believe I'm that close. sure, I may be able to begin seeing images more frequently when I watch stars, but I'm not even close to being where I want to be physically[^1] and mentally[^2].
+
+[1]: I've noticed people who are more structural, tend to involve themselves with their appearance. I'm thinking specifically of marcos, but you could apply this to any salesman type. anyway, I've noticed that my appearance has begun to be noticed more by me than ever. this is likely a good thing, and is probably the next logical step in this transformation process -- cause, think about it: if I'm looking at myself in the 3rd person all the time, I'm going to want to be pretty satisfied with how I look, so it's part of the process. there are quite a few things I am not satisfied with my physical appearance right now, but I imagine they will improve as I gain a new perception of myself.
+
+[2]: today, mom came to me again with some lame idea about getting me "evaluated" by the officials. I think she's following someone else's direction again. during the conversation, I barely even cracked light anger levels. I'm excited to continue to watch my ability to maintain my calm continue to improve. probably there will be more situations where nosebook tries to get some stupid thing done and instead of losing my cool, little by little I'll handle it more and more smoothly, until they've exhausted all of their efforts and I'm untouchable to them.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
