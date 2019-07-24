@@ -167,3 +167,21 @@ I like it :)
 [2]: taking into consideration the idea of timelines, if one of the previous relationships were actually having the experience of one of these girls, it would be like a way for them to not only create the exact relationship they want, but I, when merging with the kids, will learn to see things from their perspective (eg. it'll be the culmination of me learning to see things thorough all of their perspectives at the same time).
 
 [3]: in the previous section, I described it from a singular perspective of one boy matched up with one girl, but I don't really think that's how it'll go. it seems pretty obvious to me there will be a lot of mixing where the whole lot of them will go each with whomever they fancy at the time. in the same way, you could say that each one of the girls will impart a different form of my energy (how they experionced me) on to the boy. so, in the end he will be more rounded. however, there may be ones that may settle into a more singular relationship. doesn't matter at all how this works out.
+
+### 2019-07-24 07:11 - some more thoughts on implementation
+
+an interesting set of thoughts passed my mind this morning, and I think they're relevant enough to be worth repeating.
+
+when thinking about the size of the thing it doesn't really matter, provided that there are enough resources for us to live and stuff comfortably. this doesn't seem to be an issue.
+
+---
+
+next, I am beginning to feel as if there is some questions as to how all of the things will be implemented. I think the best way to reason about it is, we're going to try out a lot of new ideas. some will inevitably work and others won't. additionally, this whole thing is going to be built in far from ideal circumstances. nosebook will certainly be an extra good provider of additional contrast, so we have to think of this more like a series of science experiments leading to a discovery of some sort where the outcome is not yet known.
+
+what I mean is, I don't believe that we should focus too much on ideals or anything like that. I think we should keep things simple. so, at the beginning, probably it's a good idea if we are already raising children. I think that'll be an important part of our little village or whatever, so it'll be good to begin with it. as such, it's probably a good idea to start off with some very young girls (newborn? I dunno. I'm just thinking this through logically). next, we'll need to begin some form of education as well. I think that as time goes on there will be less and less need for "teachers" (as we have traditionally known them), and children will be more self-motivated toward learning what they want. however, to start out, it's probably a pretty good idea to have a few of them that are "experts" on maths or computers(?) or whatever... I don't know how it'll all work out in the end, and I think that's kind of the point..
+
+---
+
+so what I'm kind of saying is that it seems to me like there is a feeling like, "hands off. we're going to try things out and figure out our own way." so then how will the interface go to the "outside world"? well, I think that as we move along, different things will become necessary for us, and so we'll ask for them.
+
+in closing, I believe that, because of this thing being born out of contrast and built on contrasting circumstances, none of us can anticipate what will come out in the end. I'm sure it'll be better than anything we could have imagined.
