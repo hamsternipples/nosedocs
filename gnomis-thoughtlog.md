@@ -220,9 +220,9 @@ once again, I don't think it's possible to compete with that, so a different tac
 
 when I was young I tithed a lot. I made a good amount of money (for my age) working for my father, but I gave probably 1/4 of it away to the churches I was going to. I don't know who taught me this idea when I was younger, but I believed that my tithe was symbol of my abundance. I've always been very free with my gifts of money. a similar practice exists in spain where if you like someone you buy them a drink. zaryn is very much that way and it's one of the things I most appreciate about him. it seemed to me like when he was doing that sort of thing, he felt he was investing in the person he was buying the drink for.
 
-now, there's a lot of that revolving around sales and buttering someone up so you can get something out of them, too -- and I would say that's the "carnal equivalent" to this principal. unfortunately there is a whole lot of this sort of teaching that has gone around in the church as well with the abundance teaching. (see @[youtube](https://www.youtube.com/watch?v=7y1xJAVZxXg) for more of that)
+now, there's a lot of that revolving around sales and buttering someone up so you can get something out of them, too[^2] -- and I would say that's the "carnal equivalent" to this principal. unfortunately there is a whole lot of this sort of teaching that has gone around in the church as well with the abundance teaching. (see @[youtube](https://www.youtube.com/watch?v=7y1xJAVZxXg) for more of that)
 
-however, the act of sacrifice or making an offering (sacrifice and offering are a reference to the old testament version of gaining abundant thought patterns by making sacrifices) isn't what does it. it's not the act, it's the frame of mind in which the act is done.
+however, the act of sacrifice or making an offering (sacrifice and offering are a reference to the old testament version of gaining abundant thought patterns by making sacrifices) isn't what does it. it's not the act, it's the frame of mind in which the act is done[^3].
 
 in the example of david's donation, no televangelist prompted the guy to make his donation. he wanted to make the donation because he believed he enjoyed and appreciated david's content -- and that's really the best way to do things.
 
@@ -238,7 +238,7 @@ so I don't really have the economic part figured out at all, but I do know that 
 
 the other reaction I had felt was in response to what I said about the "outside world." I have no intentions on telling anyone who they can or cannot see. instead I was distinguishing the difference between what we're trying out and what other people believe about that. take for example the subject of schooling. I don't think it's necessary. I think that we'll be able to make perfectly literate and very intelligent people without all the bs that you have to go through in school. I don't think it's necessary. additionally, it feels to me there is considerable attempts to try and figure out ways to micromanage us.
 
-just like my mother loves me and wants to give nosebook all the opportunities they want to try and micromanage me, I figure this will probably be a similar trend. I anticipate that there will be many similar attempts like the ones mom has tried to do on me, with us, as well. I don't expect them to change. if there is any change, it'll only be cosmetic.
+just like my mother loves me and wants to make sure nosebook all the opportunities they need to try and micromanage me, I figure this will probably be a similar trend of trying to micromanage things[^4]. additionally I imagine that as the girls' power level begins to increase, they will likely treat the girls just the same as they treat me now.. I don't expect them to change, and if there is any change, it'll only be cosmetic[^5].
 
 ---
 
@@ -249,3 +249,11 @@ I find it very unlikely that any change will occur. the only think that we can w
 just like david, I prefer to play a more econ game too, but if they all-in early on, I have to adjust to their play style -- and as far as I can tell, they've been all-in since 2016.
 
 [1]: in fact (I didn't realise) the explanation of my thought process is actually a demonstration of "pivoting" from an awareness of unwanted toward wanted -- so it's probably good. anyway..
+
+[2]: in spain this was the whole, I'll buy you a drink (or two), and then I'll invite you to a line (or two) of coke, each time the inviter invites, it's like it creates some sort of debt, culminating at the end of the night when the superstar for the night is the one who pays for the hookers at the end (cause it's pretty hard to counter invite with another set of hookers. after hookers it's pretty much off to bed).
+
+[3]: when the donation is mode with the frame of mind of appreciation, it always yields good results, because appreciation makes more appreciation. the televangelists prompt people to make their seed donation with the promise that God or some other force they will return them a large sum of money in return for their seed donation. clearly the televangelist is guiding people to action from on their greed, and people believing their rhetoric are donating with a mindset of greed too. to me it feels similar to the frame of mind people have when they buy lottery tickets.
+
+[4]: there are all sorts of different things that the "outside world" will think we should be doing, and that's fine, but most of these things will likely be bad ideas. they will perceive it as we need to get them to do what we want them to do, so we have some sort of control over them. this is to be expected, and I imagine it'll go from inspiring well-meaning people like mom to bad ideas, all the way to directly putting thoughts in our heads of things they think we should be doing. this kind of micromanagement.
+
+[5]: this sort of cosmetic illusion seems to be quite prevalent. I think the most visible of these examples is the "landscape architect" that appeared on abraham's show a while back. he was constantly pandering to the crowd and trying to use spiritual words like telling abraham how "present" he is when he's clearly worried about what everyone thinks of him. lol, you could say it's the exact thinking of a damaged 7th ray :) don't expect much other than cosmetic illusions from these guys. 

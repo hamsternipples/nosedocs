@@ -8155,9 +8155,9 @@ the opposite thing is happening to me. it appears that my desire to make this pr
 
 just make make desire than them, 4head
 
-I'm working on it :) I just wanted to write about the irony of using very thing that this program is built on, to try and preent it's effectiveness.
+I'm working on it[^4] :) I just wanted to write about the irony of using very thing that this program is built on, to try and present it's effectiveness.
 
-I also don't understand why nosebook would have such strong desire in opposition to the program. it's very very unlikely that their own brain interfaces that their programmers use (and the guy making the motor sounds uses) will ever be given a public interface to use, meaning that if you want to read electrical signals in your head, you're going to have to drill a hole in your skull. this way allows for the interface of the human to the machine in a way that is non-invasive (no skull drilling or complex instruments necessary), so that way nosebook can keep all of their brain interface and mind reading stuff a secret. additionally, since they are already correlating our brain signals to certain stimulous like sight, hearing, speaking words, etc. -- now they'd have even another way to correlate brain signals to real tangible concepts and actions that are happening "randomly" as a result of our desire to influence the machine in different ways to perform tasks.
+I also don't understand why nosebook would have such strong desire in opposition to the program. it's very very unlikely that their own brain interfaces that their programmers use (and the guy making the motor sounds uses) will ever be given a public interface to use, meaning that if you want to read electrical signals in your head, you're going to have to drill a hole in your skull. this way allows for the interface of the human to the machine in a way that is non-invasive (no skull drilling or complex instruments necessary), so that way nosebook can keep all of their brain interface and mind reading stuff a secret. additionally, since they are already correlating our brain signals to certain stimulus like sight, hearing, speaking words, etc. -- now they'd have even another way to correlate brain signals to real tangible concepts and actions that are happening "randomly" as a result of our desire to influence the machine in different ways to perform tasks.
 
 I'll figure it out :) I always do
 
@@ -8166,6 +8166,8 @@ I'll figure it out :) I always do
 [2]: just in case you're wondering, evidence of this "curse" was apparent even before I became aware of it after rupert's mention of the idea.
 
 [3]: most certainly they have advised everyone to not interact with me for fear that it may spawn an interaction that's out of their control
+
+[4]: I'm also letting desire build by giving my attention to unwanted for a bit. I'm capable of turning toward wanted quite easily now...
 
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
