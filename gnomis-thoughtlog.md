@@ -248,6 +248,8 @@ I find it very unlikely that any change will occur. the only think that we can w
 
 just like david, I prefer to play a more econ game too, but if they all-in early on, I have to adjust to their play style -- and as far as I can tell, they've been all-in since 2016.
 
+if they *really* wanted to change, they wouldn't need to lie (or have anyone else lie for them) about their behaviour[^6]. maybe the plants *do* care... 
+
 [1]: in fact (I didn't realise) the explanation of my thought process is actually a demonstration of "pivoting" from an awareness of unwanted toward wanted -- so it's probably good. anyway..
 
 [2]: in spain this was the whole, I'll buy you a drink (or two), and then I'll invite you to a line (or two) of coke, each time the inviter invites, it's like it creates some sort of debt, culminating at the end of the night when the superstar for the night is the one who pays for the hookers at the end (cause it's pretty hard to counter invite with another set of hookers. after hookers it's pretty much off to bed).
@@ -256,4 +258,6 @@ just like david, I prefer to play a more econ game too, but if they all-in early
 
 [4]: there are all sorts of different things that the "outside world" will think we should be doing, and that's fine, but most of these things will likely be bad ideas. they will perceive it as we need to get them to do what we want them to do, so we have some sort of control over them. this is to be expected, and I imagine it'll go from inspiring well-meaning people like mom to bad ideas, all the way to directly putting thoughts in our heads of things they think we should be doing. this kind of micromanagement.
 
-[5]: this sort of cosmetic illusion seems to be quite prevalent. I think the most visible of these examples is the "landscape architect" that appeared on abraham's show a while back. he was constantly pandering to the crowd and trying to use spiritual words like telling abraham how "present" he is when he's clearly worried about what everyone thinks of him. lol, you could say it's the exact thinking of a damaged 7th ray :) don't expect much other than cosmetic illusions from these guys. 
+[5]: this sort of cosmetic illusion seems to be quite prevalent. I think the most visible of these examples is the "landscape architect" that appeared on abraham's show a while back. he was constantly pandering to the crowd and trying to use spiritual words like telling abraham how "present" he is when he's clearly worried about what everyone thinks of him. lol, you could say it's the exact thinking of a damaged 7th ray :) don't expect much other than cosmetic illusions from these guys.
+
+[6]: yes, I know my pushing against this sort of thing is only making them stronger, but their whole charade is built on an illusion, so it doesn't matter how strong they get. they can't overpower human desire, so we'll just have to see how well put together their illusion really is.
