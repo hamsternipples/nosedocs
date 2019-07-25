@@ -185,3 +185,67 @@ what I mean is, I don't believe that we should focus too much on ideals or anyth
 so what I'm kind of saying is that it seems to me like there is a feeling like, "hands off. we're going to try things out and figure out our own way." so then how will the interface go to the "outside world"? well, I think that as we move along, different things will become necessary for us, and so we'll ask for them.
 
 in closing, I believe that, because of this thing being born out of contrast and built on contrasting circumstances, none of us can anticipate what will come out in the end. I'm sure it'll be better than anything we could have imagined.
+
+### 2019-07-25 04:20 - explaining my thought process is good(?)
+
+after yesterday's entry, I received all sorts of different reactions to what I said. I purposefully did not explain my thought process, because I did not want to give more attention to unwanted. everything I said has a reason behind it. however after watching trump (the streamer) explain his thought process in a video, I think it actually may be pretty beneficial, and it probably doesn't make a whole lot of difference since I'm explaining my thought process[^1]. I think I'll continue to explain my thought process more, rather than less.
+
+---
+
+so, I think there is a good way of perhaps explaining some of these things, so I'll start with autochess/tft as an way explaining it. it actually kind of clicked for me in the morning when I was watching david (dog)'s video going up to master's on tft. he started out the video complaining about not liking to have to play so aggressively, saying he was more of an econ player, in that he preferred to play the game with the primary objective of getting enough resources to ensure his victory, rather than all-ining early on.
+
+someone asked him a little later in the video why he's rerolling a lot, and he explained that you have to play at the pace of the other players in the game. if a bunch of people all-in early on, you take too much damage to be able to build up a good economy. so you have either be slightly more (more aggressive) or slightly less greedy than the rest and winning on value.
+
+there are quite a few parallels to the autobattler genre and my present situation. first of all, it seems to me like what we're going to be creating is similar in the way that in autochess, if you have a few really strong units, then you'll do well in the beginning, but it falls off quickly as people get their comps online. the best way to win is to leverage the different synergies that are available. however, you cannot just pick the synergies that you want and go. the game gives you a selection of choices and in the beginning, you usually don't know what your comp is, so it's best to buy as many units as you can, because if the next round you hit a unit upgrade, a level 2 unit is always stronger than a level 1 unit, even if it doesn't fit your intended composition.
+
+so the first stage is buy as much as you can, while not having too many unused units on the bench that it's costing you an extra gold per turn, so always buy down to your 10 gold mark. that's like the exploratory phase when you're figuring out what your desired comp should be. there may be a few different transitory comps that happen along the way toward it (or, sometimes if the comp isn't working a drastic switch to a different one), but after you've got your comp online, it's time to begin upgrading your units. now, all of your bench space will be used to focus on the few important "carry" units which are most important to upgrade.
+
+---
+
+so similarly if you draw the parallels here, maybe a few strong upgraded units would be similar to a few really attractive people (and the infrastructure) that nosebook has as their early on carrys. we can't really compete with that, because they've got quite a head start. instead, we're going to win based on synergies, so at the beginning I think it's important to pick up as many units as possible without affecting the economy, while searching for the synergies which will make up the future composition.
+
+thing is I don't know anything really about any of the girls, so I have no idea what I'm intending to make or anything like that right now so it's best to begin to let a few rounds go by and let the game kind of lead you toward your composition. I don't really know much about the economy either, so let's talk about that now.
+
+---
+
+there was a really good video that hassan did about amazon where he explained this sort of "all-in" tactic that amazon uses: @[youtube](https://www.youtube.com/watch?v=5maXvZ5fyQY)
+
+in the autobattler genre this technique of being "relentless" and undercutting your profit margins for growth is analogous to winstreak gold. when you maintain a winstreak, it'll give you up additional gold. when you spend gold to reroll and upgrade your units or level up, you are spending gold to preserve your winstreak. this is the same thing that amazon does to continue their hyper growth pattern.
+
+so, imagine that the winstreaking didn't have a limit to it, as long as you can continue to winstreak, you don't need to keep any money in the bank. they're all-in. so, every turn they turn over all of the money they make into expansion of the company to keep winning (and maintain their winstreak).
+
+once again, I don't think it's possible to compete with that, so a different tactic needs to be taken. in the video previous to that one david was playing a game and hafu came to see him. one moment during the game someone made a donation saying he had scraped together some money to donate and wanted to appreciate him and his stream. when david read it, I felt a reaction from him, like "dude don't scrape together stuff and send it to me. you're the one that needs the cash."
+
+---
+
+when I was young I tithed a lot. I made a good amount of money (for my age) working for my father, but I gave probably 1/4 of it away to the churches I was going to. I don't know who taught me this idea when I was younger, but I believed that my tithe was symbol of my abundance. I've always been very free with my gifts of money. a similar practice exists in spain where if you like someone you buy them a drink. zaryn is very much that way and it's one of the things I most appreciate about him. it seemed to me like when he was doing that sort of thing, he felt he was investing in the person he was buying the drink for.
+
+now, there's a lot of that revolving around sales and buttering someone up so you can get something out of them, too -- and I would say that's the "carnal equivalent" to this principal. unfortunately there is a whole lot of this sort of teaching that has gone around in the church as well with the abundance teaching. (see @[youtube](https://www.youtube.com/watch?v=7y1xJAVZxXg) for more of that)
+
+however, the act of sacrifice or making an offering (sacrifice and offering are a reference to the old testament version of gaining abundant thought patterns by making sacrifices) isn't what does it. it's not the act, it's the frame of mind in which the act is done.
+
+in the example of david's donation, no televangelist prompted the guy to make his donation. he wanted to make the donation because he believed he enjoyed and appreciated david's content -- and that's really the best way to do things.
+
+---
+
+so, when I think of economy, I have different ideas, and imagine that I could get my meaningful-chaos program online, then maybe we could have something to sell, but it feels distant and a bit of a hail mary. the best I can hope for economy is some sort of investment of donations based on people's conviction that they are contributing to something they believe is making positive improvement.
+
+I considered the idea of advertisement or something, but this gets clearly cuts into nosebook's profit margin so it would be some pretty contested cash. probably not a good idea. the other way would be is if by some miracle nosebook decided they wanted to pretend they have made a change and give us some sort of allowance. again, not desired because this sounds to me like economic bondage.
+
+so I don't really have the economic part figured out at all, but I do know that I don't want anything to do with nosebook. I want to figure out the economic part of it before beginning anything.
+
+---
+
+the other reaction I had felt was in response to what I said about the "outside world." I have no intentions on telling anyone who they can or cannot see. instead I was distinguishing the difference between what we're trying out and what other people believe about that. take for example the subject of schooling. I don't think it's necessary. I think that we'll be able to make perfectly literate and very intelligent people without all the bs that you have to go through in school. I don't think it's necessary. additionally, it feels to me there is considerable attempts to try and figure out ways to micromanage us.
+
+just like my mother loves me and wants to give nosebook all the opportunities they want to try and micromanage me, I figure this will probably be a similar trend. I anticipate that there will be many similar attempts like the ones mom has tried to do on me, with us, as well. I don't expect them to change. if there is any change, it'll only be cosmetic.
+
+---
+
+do you guys really believe that nosebook is going to somehow magically change all of a sudden? this is really unrealistic thinking. think to yourself about different adults that you have know which have lied about their behaviour. did they also lie about their change? did they ever have any lasting change?
+
+I find it very unlikely that any change will occur. the only think that we can wait for is for their retirement, and as such I have begun to adjust my play style to account for this.
+
+just like david, I prefer to play a more econ game too, but if they all-in early on, I have to adjust to their play style -- and as far as I can tell, they've been all-in since 2016.
+
+[1]: in fact (I didn't realise) the explanation of my thought process is actually a demonstration of "pivoting" from an awareness of unwanted toward wanted -- so it's probably good. anyway..
