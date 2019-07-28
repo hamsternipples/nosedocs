@@ -186,7 +186,7 @@ so what I'm kind of saying is that it seems to me like there is a feeling like, 
 
 in closing, I believe that, because of this thing being born out of contrast and built on contrasting circumstances, none of us can anticipate what will come out in the end. I'm sure it'll be better than anything we could have imagined.
 
-### 2019-07-25 04:20 - explaining my thought process is good(?)
+### 2019-07-25 04:20 - explaining my thought process is good
 
 after yesterday's entry, I received all sorts of different reactions to what I said. I purposefully did not explain my thought process, because I did not want to give more attention to unwanted. everything I said has a reason behind it. however after watching trump (the streamer) explain his thought process in a video, I think it actually may be pretty beneficial, and it probably doesn't make a whole lot of difference since I'm explaining my thought process[^1]. I think I'll continue to explain my thought process more, rather than less.
 
@@ -248,7 +248,7 @@ I find it very unlikely that any change will occur. the only think that we can w
 
 just like david, I prefer to play a more econ game too, but if they all-in early on, I have to adjust to their play style -- and as far as I can tell, they've been all-in since 2016.
 
-if they *really* wanted to change, they wouldn't need to lie (or have anyone else lie for them) about their behaviour[^6]. maybe the plants *do* care... 
+if they *really* wanted to change, they wouldn't need to lie (or have anyone else lie for them) about their behaviour[^6]. maybe the plants *do* care...
 
 [1]: in fact (I didn't realise) the explanation of my thought process is actually a demonstration of "pivoting" from an awareness of unwanted toward wanted -- so it's probably good. anyway..
 
@@ -261,3 +261,19 @@ if they *really* wanted to change, they wouldn't need to lie (or have anyone els
 [5]: this sort of cosmetic illusion seems to be quite prevalent. I think the most visible of these examples is the "landscape architect" that appeared on abraham's show a while back. he was constantly pandering to the crowd and trying to use spiritual words like telling abraham how "present" he is when he's clearly worried about what everyone thinks of him. lol, you could say it's the exact thinking of a damaged 7th ray :) don't expect much other than cosmetic illusions from these guys.
 
 [6]: yes, I know my pushing against this sort of thing is only making them stronger, but their whole charade is built on an illusion, so it doesn't matter how strong they get. they can't overpower human desire, so we'll just have to see how well put together their illusion really is.
+
+### 2019-07-28 10:01 - a swing in the other direction
+
+after writing that last entry, I began to receive reactions yesterday about the comment "I have no intentions on telling anyone who they can or cannot see." I don't ever want to be trying to control how anyone is conducting their life, so we're going to skip that idea entirely -- that's nosebook's job :)
+
+one of the ideas that floated through my mind was this idea that I could do the whole gnomitos project with some of the girls, and then just sort of be all over the place with others. because I don't want to tell anyone else who they can or cannot sleep with, I don't want to be involved in those decisions that others make. it is more contrast, but after having thought about it, I don't really like the idea.
+
+personally, I have never engaged in that type of activity. I don't really like the way it feels to me. I can't really describe the feeling, but it feels like maybe pleasureful drowning -- like, it feels to me like competition and comparison, lots of trying and lots of weird expectations. this isn't really what I want to feel. I know it doesn't *have* to be that way, but I would much prefer to focus my energy in a way which feels like I'm creating something. some of these girls may be around for the duration of my life, and I'd like to focus my energy toward them in a way which is regenerating and fulfilling. plainly stated, I want to see them doing well and feeling well. I want to create an atmosphere where we feel, maybe "united" isn't the right word, but the feeling you get when you're accomplishing something together, I can't describe it.. anyway..
+
+instead, because I don't really want to be so much involved in this whole thing, it feels to me like I should instead defer to the girls when it comes to these relational things[^1]. my objective in all of this is to create children that are vibrationally similar to me and to contribute in a positive way to the environment in which this is happening.
+
+so, I think after last night it's pretty clear to me that I want to stick to the original plan. I prefer the structure of a bit of limitation[^2], so after we get things going, I'm going to just defer to the girls and I want to try and empower them as much as possible to set this limitation wherever they'd like it to be.
+
+[1]: this is true in every case, except if I were to really feel like I didn't want to do something, then I must follow my feelings.
+
+[2]: limitation implies greater focus because the goal has to be reached within the confines of the limitation. I have a whole thing about how I believe the next era will be about self-imposed limitation as well, to create a stronger focus.
