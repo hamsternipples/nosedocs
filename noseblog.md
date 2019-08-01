@@ -8169,6 +8169,34 @@ I'll figure it out :) I always do
 
 [4]: I'm also letting desire build by giving my attention to unwanted for a bit. I'm capable of turning toward wanted quite easily now...
 
+### 2019-08-01 01:54 - things are getting nuttier and nuttier
+
+last night when I was out watching stars I was thinking about how ridiculous things are getting, and it's largely because every time I release resistance to an idea, a bigger one comes. in addition to that I have an understanding that as I release more and more resistance, I'll be essentially living a dream-like experience.
+
+the reason why we're not all living dream-like experiences, is because we have resistance to things, like dying and other stuff -- so, we don't really live as freely as we would if we were dreaming. when I dream, almost always I have an overwhelming sense that no matter what, things are ok. seems obvious right, cause I guess deep down you know you'll just wake up. well, that's where the fear of death and preservation instincts help us to create resistance which prevents us from experiencing a dream-like experience.
+
+---
+
+so then, almost as if to prove myself right, following immediately after that realisation that I'm just releasing all resistance, this idea pops into my head where I consider the idea that lyia has -- wait wait, I have to go back further.. quite a while back when I was beginning to understand the whole time splitting thing, I originally postulated that nearly all of these other relationship scenarios were in fact successful, however, from the vantage point of the successful timeline, why stop there? why not intentionally sabotage the timeline so that the relationship never happens, contrast grows even higher and a new opportunity is formed.
+
+there may be more than one reason for this, but I think the main reason for this is my desire to find my alignment (get connected), without external influences like sex or drugs or something. I'm pretty sure nosebook has the drugs bit on lockdown such that if I even get close to seeing pretty colours, they induce vomiting, so that's unlikely. the remaining thing is obviously using sex to find it. I find it pretty likely that nosebook is constantly trying to make plans to see to try and make the sex thing happen before I get connected.
+
+the secondary reason why I think these alternate (failing) timelines are sabotaging this one is because the people deciding to sabotage the relationship could instead ride along in a different body and experience the same thing from a different vantage point in a younger more desirable body (or the same vantage point if you aren't a part of the sabotage). so, I imagine that it'll turn out to be pretty mind blowing. so, from their perspective (of one of the timelines where I find my alignment from sex), why not just go bigger and experience it all again?
+
+you could imagine that this will always be the case because things grow bigger and bigger every time, so everyone on the planet, I imagine would set things up so that their circumstances may be more contrast, but are much more favourable toward the end of the timeline.
+
+the timeline has to end at some point and that has been the subject of other discussions, but I perceive it to be when I make my transition into a multi-bodied experience. it is the ultimate in trading speed for acceleration, and it also prevents me from being able to build timeline technology -- instead, I imagine that some time in the future, some of my new bodies will discover it. who knows when that'll be. it may be a while, and depending on how much of an energetic effect I have on the world, we may take a bit of a dip, like potentially 1177BC kind of dip. I'm not sure.
+
+---
+
+ok, so back to where I was, I had postulated that it was likely that raquel perhaps could by riding along in the body of lyia. I didn't find that to be such a stretch, considering the similarity to the attraction toward the gnomitos plan.
+
+well, last night the idea that popped into my head was actually that, and to prove my point, it's likely that nosebook has come up with another plan to force the sex issue, which created a new timeline which will sabotage this one and lyia is riding along in another body now.
+
+the idea seemed ok to me, and at this point, I have such little control over what's happening, I just go with the flow of everything now. let's say that nosebook put that idea in my head to kind of disrupt things, because of the conclusion that I came to the other day where I was imagining what I would do if I could possibly begin flying. I postulated that I would go to visit lyia and take a small break star watching in the sahara and psicodelice mushrooms.
+
+I guess we'll just have to find out how far all of this goes... it's gonna be a wild ride.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
