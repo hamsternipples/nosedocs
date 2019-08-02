@@ -8181,7 +8181,7 @@ so then, almost as if to prove myself right, following immediately after that re
 
 there may be more than one reason for this, but I think the main reason for this is my desire to find my alignment (get connected), without external influences like sex or drugs or something. I'm pretty sure nosebook has the drugs bit on lockdown such that if I even get close to seeing pretty colours, they induce vomiting, so that's unlikely. the remaining thing is obviously using sex to find it. I find it pretty likely that nosebook is constantly trying to make plans to see to try and make the sex thing happen before I get connected.
 
-the secondary reason why I think these alternate (failing) timelines are sabotaging this one is because the people deciding to sabotage the relationship could instead ride along in a different body and experience the same thing from a different vantage point in a younger more desirable body (or the same vantage point if you aren't a part of the sabotage). so, I imagine that it'll turn out to be pretty mind blowing. so, from their perspective (of one of the timelines where I find my alignment from sex), why not just go bigger and experience it all again?
+the secondary reason why I think these alternate (failing) timelines are sabotaging this one is because the people deciding to sabotage the relationship could instead ride along in a different body and experience the same thing from a different vantage point in a younger more desirable body[^1] (or the same vantage point if you aren't a part of the sabotage). so, I imagine that it'll turn out to be pretty mind blowing. so, from their perspective (of one of the timelines where I find my alignment from sex), why not just go bigger and experience it all again?
 
 you could imagine that this will always be the case because things grow bigger and bigger every time, so everyone on the planet, I imagine would set things up so that their circumstances may be more contrast, but are much more favourable toward the end of the timeline.
 
@@ -8196,6 +8196,40 @@ well, last night the idea that popped into my head was actually that, and to pro
 the idea seemed ok to me, and at this point, I have such little control over what's happening, I just go with the flow of everything now. let's say that nosebook put that idea in my head to kind of disrupt things, because of the conclusion that I came to the other day where I was imagining what I would do if I could possibly begin flying. I postulated that I would go to visit lyia and take a small break star watching in the sahara and psicodelice mushrooms.
 
 I guess we'll just have to find out how far all of this goes... it's gonna be a wild ride.
+
+[1]: for example, at nosebook, some of the employees (and I'm thinking more specifically about landscape architect guy), that he might possibly think to himself, "man my boss is *exactly* like me, except I'm more crafty and manipulative, and he's more direct and commanding" for example...
+
+### 2019-08-02 12:29 - landscape architect guy
+
+I feel inclined to write something about him, because he's sort of been a lot on my mind since I had that note I wanted to add to the previous entry. I wanted to shed some light on some things that have become apparent to me.
+
+I think the technology does exactly what you would imagine it to do, in that you can manipulate your way into positions of greatness. however, in my case I don't beieve that I have been manipulating conditions to get where I'm at. I've been letting LOA do the manipulation for me. so, it may seem like you're an improved version of whoever the boss guy because you're more crafty and cunning, yet I imagine that if you were to ask your boss how he got to his position of power, it was likely the same way: through some sort of manipulation.
+
+---
+
+I was reminded various times through the night about similar experiences that I had as a kid. my father named me "kenneth" because he told me that God explained that I would always have a tug-of-war between "being fair in the sight of God vs. bing fair in the sight of man." I was keenly aware of other people and I had a sensitivity to where I could easily feel other's reactions to what I was saying. I'm pretty sure that mr. happy pants (train sounds guy) is fairly sensitive to others as well, but I know that (I'll call him for short) LAG is sensitive other people's reactions, too. when he gets up in the trees segment, abraham interrupts him and says, "don't just start rambling" -- and the reason for that, if he was anything like me, was he would just throw a bunch of stuff out there fishing (likely from the women) for a positive reaction to some of his buzzwords. abraham throws him off a bit with that one, so he tries out a probably tried and true buzzword about being really "present" -- to which abraham calls him out on it again saying that they don't really find him as present as he thinks he is. (he's clearly very concerned with how people (mostly the women) in the room are responding to him)
+
+another key moment for me was when he says to abraham, as if to kind of dispel the negative image that I was painting about nosebook by saying something like, "and you know abraham we're not like *that*". abraham does't respond, neither confirming or denyint what he said. they might have shook their head, but I only had an audio recording of it.
+
+basically this guy is like me when I was really young -- like say 10-11yo. I used to be kind of crafty and manipulative when I was a kid because I was so much smarter than everyone else. however some notable things happened in my life which quelled that behaviour (because my father had named me the way he did):
+
+1. I felt it was necessary to tell bring dad's attention to the power manipulation strategies of gordon's church. I felt in this case by "ratting someone out" I was fulfilling my service to being fair in the sight of God, by decreasing my fairness in the sight of the power structure ruling over our family at the time.
+
+2. when I was younger I decided I didn't want to be popular. I found it really easy to be the popular kid and well approved by others, but it had its cost, because I was now a servant to the opinion of those around me which make me popular. I instead chose to do what I wanted to do.
+
+3. I can't remember this exact instance very well, but one time I lied about how I was doing things to help people, yet at the same time I was taking advantage of the situation in some way. it turned out that some fortunate circumstances came about where I was attributed with the good fortune, and I was forced to say yes, I intended for that to happen to maintain my positive image. this (unfortunately) solidified my direction toward positive behaviour in order to maintain me image.
+
+---
+
+none of these are very good smoking gun of what has made me the person I am today, but what I wanted to illustrate is that I was very much more concerned about other's opinion of me than I am now.
+
+I was thinking about that final 3rd situation a bit last night and I've kind of come to the conclusion that this is all perfectly fine. my future self has "manipulated" the timeline in such a way that I would have to learn to become dependent on letting LOA do all of the "manipulation" for me. LAG's future self has probably set things up in such a way where he seemed to me in the right place and the right time and said the right thing to throw his weight around in just the right way to get what he wants by using some form of manipulation.
+
+this means he'll grow into his future position thinking that's just how it's done: you have to manipulate your way to the top. so, while the crusty old guy he'll replace soon is a lot more resistant, it won't be obvious for a few more years into the future where other young hotshots are vying for his position how he became that way... it's probably not a good idea to repeat crusty's overbearing command to try and protect his power position, so maybe, and I recommend this because it's what "saved" me, is to maintain the positive image even if it means being forced to go the "good way" in order to maintain others' positive opinion of you (2nd situation). being a slave to the opinion of other's may produce a situation similar to the 3rd situation, and he may get there by reenacting the 1st situation.
+
+I have no idea how it'll all go, but I'd like to take a moment and speculate on it. I'm sure that it'll all be fine, it's just that I'm beginning to see it all in a wider perspective now.
+
+this guy's main drive is wanting so much to appeal to the women and maintain a positive appearance with them (remember his compost comment?), and so I imagine that he'll probably want to position things in such a way to where he looks like some sort of saviour to them by (finally) allowing something that they want. the vibrational signature of this feeling isn't exactly that, it's more to do with finally allowing people to do what they with their own bodies in exchange for a chance to have more sexy time with the assuredly millions of women that want to reward him for his decision, and I think that kind of sets him with a precedent of doing that sort of thing, so he'll have to keep doing it (or maybe he doesn't want to more and more as he gets old and crusty, who knows).
 
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
