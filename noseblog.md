@@ -8231,6 +8231,48 @@ I have no idea how it'll all go, but I'd like to take a moment and speculate on 
 
 this guy's main drive is wanting so much to appeal to the women and maintain a positive appearance with them (remember his compost comment?), and so I imagine that he'll probably want to position things in such a way to where he looks like some sort of saviour to them by (finally) allowing something that they want. the vibrational signature of this feeling isn't exactly that, it's more to do with finally allowing people to do what they with their own bodies in exchange for a chance to have more sexy time with the assuredly millions of women that want to reward him for his decision, and I think that kind of sets him with a precedent of doing that sort of thing, so he'll have to keep doing it (or maybe he doesn't want to more and more as he gets old and crusty, who knows).
 
+### 2019-08-02 20:19 - number concepts
+
+@[youtube](https://www.youtube.com/watch?v=xauCQpnbNAM)
+
+just watched that video which got me thinking quite a bit. in the video she asked how to describe numbers without using the word number or quantity or amount, to illuminate the idea that numbers are conceptual. the thing that popped into my mind was cell division.
+
+if you start with one cell, it divides into two. then, at some point in time those two become four cells. it doesn't happen at *exactly* the same time though, so for some small portion of time you will have three cells. it'll spend a lot of time at four cells, and further on... it occurs to me that the *number* of cells that exists at any moment in time will almost always never be a prime number (unless you count two as prime). meaning, that if we were able to count the cells in an organism, it would almost never have a prime number of cells. I thought that was an interesting idea that came out of the discussion.
+
+however, the real eye-opener for me was when I began to think about russel's paradox. I wrote:
+
+```
+I think it's kind of a silly question because if you reverse the logic and ask yourself, "is the set of all sets which are members of itself, also not a member of itself?"
+
+what I mean is if you think of all of the things that are members of itself, like all things that are not turtles, is also not a turtle. so, if you imagine all of the things that are not a thing, it cannot be a thing (a member of itself). this sort of logic doesn't provide any benefit to the discussion, whereas understanding that numbers are rooted in the concepts is a huge development for what we call singular consciousness. eg. are you a person or 37.2 trillion cells? the dividing line is conceptual.
+
+to illustrate the idea, imagine that you had the capability of perceiving something from all possible angles at once. what exactly would you be looking at? everything we look at is a bunch of things inside of a thing (a parent concept composed of many sub-concepts). so, when you wanted to look at something, imagine that to be able to see something, your own definition of that concept forms the basis of your perception or vision.
+```
+
+the last bit being the most important of it all. I've given quite a lot of thought to the idea of where you say that is one thing or concept -- when in actuality that thing or concept is composed of many parts, and the perceiver (observer) of the concept is the one who defines it as some thing.
+
+I found this video to be a strangely enlightening encounter in light of my present transition into becoming conscious on the conceptual or emotional plane. I have seen it before briefly where I was able to perceive things inwardly, where I could see myself from all angles at once, or at least the ones that were relevant to me, so for example I didn't see the bottom of my feet, cause that wasn't relevant to my perception of myself.
+
+this confused me for quite some time, because I couldn't figure out where the thing I was looking at began and ended, so I was unsure of the mechanics of how this sort of perception worked, because how did it know which part of me is me and not the world.
+
+a similar problem existed for the idea of translocation -- an idea that isn't new at all. it exists in the bible, nancy has talked about it, and I've also heard of it from ramtha. just like the 5d vision, I can understand the light bounces and can understand it works mechanically, but just the same as this one, how do I know where the thing begins and ends? if I wanted to translocate/teleport to some other location, why do I not arrive without any clothes on? how does this teleportation occur? how does it know where me begins and me ends, and that my clothes are a part of me?
+
+sorry, so going back I understand how it works mechanically in the sense that if I have strong desire to be in a different location than the one I'm in now, and I don't have any resistance to me being in that location, I *should* find myself in that location. it's a law of the universe. so I get the desire part, but I didn't get the conceptual part of how to define what composes the thing that is going to be teleported.
+
+oh, and going back further, I also knew that this 5d view of seeing things from all angles at once was the inward view, so there should be an outward view as well. I should be able to see everything around me all at once much like the sun does. because of this I have often postulated that in 4d, there should also be an inner view where I can go inside my imagination and create the world in which I am existing for that moment. I read about this with andy pero (project superman), and it seems like I had experienced it a few times as well.
+
+of additional note, when I became conscious on the astral plane (I should be conscious in my dreams when my imagination exists around me), I found out that I began to have power over the world around me, and this enabled flight and movement of objects with my mind.
+
+---
+
+I believe that this new form of perception will allow me to travel about conceptually anywhere within the concept that I exist within. somehow it all relates to multi-bodied experience as well.
+
+the last thing that I wanted to mention is that I have begun to notice a new pattern. I have noticed that I began with very little little resistance on the astral (6th), source (4th), and relational (2nd) transition planes, yet it seems like I'm gaining resistance on them. meanwhile, on the primary planes, notably conceptual (5th), logical (3rd) and desire (1st) planes, I've been releasing resistance on them in order to be able to perceive them more clearly.
+
+this makes perfect sense now on hindsight, because quite simply, I don't want to be aware of the millions of interations and relations that are happening around me, so I'm gaining resistance there and becomming more self-focused. on the astral plane, I'm gaining all sorts of resistace there because I don't really want to be nosebook's puppet through my dream state, and otherwise if I didn't increase resistance there, I would be so mind blown my the infinite number of creations and creativity there, the open-endedness of it all would be such a mind-blowing experience, I would be a (bawely) walking acid-trip otherwise. then, on the source plane, as I begin to perceive things conceptually (all relevant angles at the same time), it makes perfect sense that I don't want to be having anyone and everyone's full experience at the same time, it would be such overload, I would become the next universe if it were to all happen at once.
+
+I just thought that was interesting that the three transition planes are meant to build resistance on to perceive them more effectively, and the four primary planes are meant to release resistance on, and I just wanted to share that :)
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
