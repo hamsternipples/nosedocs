@@ -8309,6 +8309,8 @@ this means that the sun and also the earth wants the earth to rotate more rapidl
 
 let's just let them continue to keep trying to hold on to the "business as usual" attitude. it seems to me that likely they'll just keep trying to hold this back for so long that eventually, the planet will win, and we'll begin rotating much *much* quicker, the air will be much more energetic, and it'll probably enable things like flight for most of us (at least the kids anyway).
 
+I guarantee they won't do a 180° turnaround on this one, because it's sort of one of those things where how would you explain to the entire scientific community those sorts of critical things need to be kept a secret. at some point in time, it'll become so obvious, that it'll be difficult to continue to blame carbon and climate change.
+
 so, just hang on tight and let them continue to keep trying to keep things under control. the reward at the end is going to be *sooo* worth it!
 
 [1]: there is a definite correlation between this air conductivity and also LOA as well, but that's the subject of another entry. I also seem to be *much* more likely to produce images in my eyes, and a few imes in spain I was able to conjure images or energetic sparkles in 3d space.
