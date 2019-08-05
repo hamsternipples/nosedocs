@@ -8255,7 +8255,7 @@ I found this video to be a strangely enlightening encounter in light of my prese
 
 this confused me for quite some time, because I couldn't figure out where the thing I was looking at began and ended, so I was unsure of the mechanics of how this sort of perception worked, because how did it know which part of me is me and not the world.
 
-a similar problem existed for the idea of translocation -- an idea that isn't new at all. it exists in the bible, nancy has talked about it, and I've also heard of it from ramtha. just like the 5d vision, I can understand the light bounces and can understand it works mechanically, but just the same as this one, how do I know where the thing begins and ends? if I wanted to translocate/teleport to some other location, why do I not arrive without any clothes on? how does this teleportation occur? how does it know where me begins and me ends, and that my clothes are a part of me?
+a similar problem existed for the idea of translocation -- an idea that isn't new at all. it exists in the bible, nancy has talked about it, and I've also heard of it from ramtha. just like the 5d vision, I can understand the light bounces and can understand it works mechanically, but just the same as this one, how do I know where the thing begins and ends? if I wanted to translocate/teleport to some other location, why do I not arrive without any clothes on? how does this teleportation occur[^1]? how does it know where me begins and me ends, and that my clothes are a part of me?
 
 sorry, so going back I understand how it works mechanically in the sense that if I have strong desire to be in a different location than the one I'm in now, and I don't have any resistance to me being in that location, I *should* find myself in that location. it's a law of the universe. so I get the desire part, but I didn't get the conceptual part of how to define what composes the thing that is going to be teleported.
 
@@ -8272,6 +8272,48 @@ the last thing that I wanted to mention is that I have begun to notice a new pat
 this makes perfect sense now on hindsight, because quite simply, I don't want to be aware of the millions of interactions and relations that are happening around me, so I'm gaining resistance there and becoming more self-focused. on the astral plane, I'm gaining all sorts of resistance there because I don't really want to be nosebook's puppet through my dream state, and otherwise if I didn't increase resistance there, I would be so mind blown my the infinite number of creations and creativity there, the open-endedness of it all would be such a mind-blowing experience, I would be a (barely) walking acid-trip otherwise. then, on the source plane, as I begin to perceive things conceptually (all relevant angles at the same time), it makes perfect sense that I don't want to be having anyone and everyone's full experience at the same time, it would be such overload, I would become the next universe if it were to all happen at once.
 
 I just thought that was interesting that the three transition planes are meant to build resistance on to perceive them more effectively, and the four primary planes are meant to release resistance on, and I just wanted to share that :)
+
+[1]: my very first thought investigation happened with a movie that seemed to be on nearly once a week on tbs or tnt (I can't remember now) called "the fly" with jeff goldblum. in the movie, he gets into a teleporter which deconstructs him and all of his atoms and then reassembles them at another location. cept, a fly gets in there with him so he becomes like a fly-human mutant. this awful awful movie provided me with endless hours of thought on how teleportation works and where exactly does "you" exist.
+
+### 2019-08-05 16:33 - scientific doozie
+
+I was thinking to myself either yesterday morning or this morning, that, cause I've been paying attention lately to how quickly water evaporates, the difference in the feeling of the air when water evaporates quicker. some nights I've seen it evaporate in 1-2 hours (without wind), what normally takes all night long to evaporate, and even still I often still see water in thte gutter the next morning after the sun has risen (after say 5-6 hours 7-9hrs of nighttime). it's not a scientific study, but I'm sure that water does not evaporate at a constant rate.
+
+the modulator for the evaporation rate seems to be what I've termed air conductivity. I don't have a measurement for it, but I noticed that when when I first came to colorado, when I would stay under the covers and it would heat up really hot, in spain, I just felt like I was inside of a hot place. however, here in colorado, I've noticed that the heat is actually painful and stingy feeling. when I have noticed this effect, I have also seen a correlation to the sky being ultra crystal clear (when there are no clouds), and the stars seem to have a brilliance that is very noticeable in my eyes; they seem to be extra polished or something, as if they have a halo of colour.
+
+the other thing I noticed was that the sun feels especially hot. it's almost as if it's this searing heat that is much more noticable than typical sunlight like I was used to in spain. in spain, I would sit out in the sun for hours because the sunlight felt so soft and comforting to me. in the summer it was kinda harsh but it mostly just felt extremely hot and didn't have that stinging feeling to it like here in colorado.
+
+---
+
+so, it occured to me that if gerald's supposition in @[youtube](https://www.youtube.com/watch?v=KnwAUVNhU0s) is right: he claims that the wind is driven by water evaporation, which is driven by sunlight, and that the wind's pressure exerted on land features actually rotates the planet. perhaps, with all of the clouds blocking the sunlight the earth is actually spinning slightly slower.
+
+then, it hit me, "oh, this is a way that the sun can modulate the speed which the earth spins."
+
+in a previous entry (@[entry](2019-04-24 08:57) and @[entry](2019-04-24 18:38)), I postulated that this increase in air conductivity actually increases the speed of light[^1].
+
+when I was with with raquel, I noticed that nearly every time that we had sex, the sky could be perfectly clear out, but then after sex, there seemed to be a whole bunch of airplanes that came and put lines in the sky. additionally, I notice that the mornings after I watch stars, the seem to need to run a bunch of cloud lines, hoo. even moreso after I stare into the sun for sunrise.
+
+---
+
+so then, it hit me after a few recent realisations, cause on s0's morning news, he always puts the windmaps of pressure and precipitation forcasts before closing out the news, and for the last 6 months or so, india has been in constant low pressure, and additionally, since I've been taking star watching really seriously (maybe since february), there has been a permanent high pressure spot over where I live and up the rockies into the springs or denver.
+
+ben also explained a few weeks back that low pressure systems are sucking wind down out of the jetstream down to cloud level (spiraling inward), and high pressure (earth) spots push air upward (spiraling outward).
+
+it seems to me that low pressure systems will dampen the effect the wind has on the rotation of the earth (by pulling air inward) and high pressure systems will exacerbate it (by pushing wind outward).
+
+it seemed obvious to me after connecting those ideas together that energetic atcivites like sex or star watching have a large effect on the spin of the earth, and likely they are attempting to keep things at normal levels by holding large portions of the earth at low pressure to offset increasing rotation speeds[^2].
+
+this means that the sun and also the earth wants the earth to rotate more rapidly, and so just like how they're interacting with me, they don't want me to increase my energy output, so they're artificially holding me at a lower speed just like they are the planet.
+
+---
+
+let's just let them continue to keep trying to hold on to the "business as usual" attitude. it seems to me that likely they'll just keep trying to hold this back for so long that eventually, the planet will win, and we'll begin rotating much *much* quicker, the air will be much more energetic, and it'll probably enable things like flight for most of us (at least the kids anyway).
+
+so, just hang on tight and let them continue to keep trying to keep things under control. the reward at the end is going to be *sooo* worth it!
+
+[1]: there is a definite correlation between this air conductivity and also LOA as well, but that's the subject of another entry. I also seem to be *much* more likely to produce images in my eyes, and a few imes in spain I was able to conjure images or energetic sparkles in 3d space.
+
+[2]: I remember last week (2 weeks ago?) when ben said that there was a strange wavy jetstream for this time of year which would bring record cold to the united states. a few minutes later windy showed the entire US covered in low pressure cyan colour, cept for where I live :) (TODO: find the reference)
 
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
