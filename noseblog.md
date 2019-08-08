@@ -8361,6 +8361,60 @@ right, so what happens after my departure? probably not a whole lot. I'm really 
 
 [2]: deluge was a huge CME from saturn, tower of babel was an enormous tower (receiver) that did something similar to the giza pyramids with knowledge that has been lost, since. the fall of the egyptian empire was the removal of the ark from the great pyramid and venus' effect on the planet, the fall of the roman empire came as a result of a reduction in perceptive capabilities since jesus' death, and therefore a return back to primate like behaviour. tesla states in many places he tried to awaken the energy in the air (also I believe this is how he got his "fractions of a percent" wireless transmission efficiency and also the reason why the 1940s were the hottest (recorded) temperatures we've had in the US).
 
+### 2019-08-08 12:52 - reactions to yesterday's entry
+
+later, after I wrote the entry, I had a strong impression in my mind, to the effect of, no we don't want you to depart. I responded in a strange way saying, "you guys really don't want me to go?" (as if I were replying to nosebook). it doesn't make a whole lot of sense to me why they would want me to stay, because there are (in my opinion) many many more problems for them if I stay than if I go.
+
+I really want to do the multi-bodied thing. that's kind of the mot important part for me. today reading some of tesla's old interviews, I see that he struggles with the difficulty that he's only one person, and to try and he tried in so many different ways, to communicate his perception to others, but it was of no use. people just couldn't see things the way he did -- and even still, I recognise that even with all of you able to see things the way I see them, it does very little to actually communicate the feeling or the reason behind those impressions.
+
+it only strengthens my desire more to have a multi-bodied experience, because instead of trying to use a physical apparatus or some visual technique to get others on my same wavelength and communicate the idea, instead "I" can impart that feeling into various different bodies and have them each interpret and translate that feeling the way they they best are capable of.
+
+I really like the idea of the challenge associated with learning the different perspectives of each body in relation to the same feeling. this seems quite like something I want to be doing.
+
+---
+
+I hadn't really put the pieces together yet realising that it was nosebook making the reaction until today, but it started making sense to me when the next thing I felt yesterday was something of despair. today, that despair transformed into a general feeling of depression like the thing wasn't going to happen. imagine that I'm really ahead of my time and the whole gnomitos thing is actually for a time when nosebook has chilled out a lot. instead, this time is just going to be a bit of a long and drawn out fail to continue to build stronger desire.
+
+I mean I can see it sorta. it even makes logical sense in the idea that if you take the idea that the next era (capricorn) is the "summer" or the peak of the sinewave, such that capricorn is the peak of the square energy, and from there onward, the square[^1] energy begins to become overtaken by circle energy and we begin to see the world transform into a global village where once again women provide the direction for this global village.
+
+it's true that it doesn't really appear like that kind of environment is the one we are experiencing right now... kinda, well maybe not. I mean it very well could be, and this is the square's last hurrah before being overtaken by a new form of perception. I don't really want to claim it's one way or the other, because I think that's silly to try and do that. instead, I'll just stay focused on what's important for me, and in 20 years, we'll just have to see where things are at.
+
+today I was reading an interview of the reasons why tesla would not marry. I sympethise with his assertions, however even though I understand why he thinks that way (having previously thought similar myself), I think he doesn't see the whole picture as clearly as I do. without any exception the path forward is through empowerment. he concluded with something that really resonated with me:
+
+```
+"The power of the true woman is so great that I believe if a beautiful woman--that is to say, one beautiful in spirit, in manner and in thought, in fact, beautiful in every respect, ***a sort of goddess--were to appear suddenly on earth, she could command the whole world. Her leadership, I believe, would be universally recognized.***
+
+"History has given us many examples of the wonderful influence exerted by unusual women. Among these have been the mothers of great men. But their influence lay not in their determination to outdo man, or even to compete with him.
+```
+
+(wink, wink)
+
+---
+
+so now, after having given it some more thought and realising that those reactions were coming from nosebook, it seems obvious to me that they seem quite terrified of the whole multi-bodied experience thing. I don't really know why. maybe they think that it'll be something really bad for them, but I don't think it will be at all for them. they will have the kids in their network from day one, and they'll have all the opportunity and capability to try and limit them that is physically possible.
+
+the other thing is that I will make the bold claim that if I were not to depart, and stay here in this body -- if they think they have trouble keeping the climate stable now, they would have really have a problemo on their hands far worse than is happening now -- and I'm not even having sex; just wait till that happens. I really think this is by far the best thing that can happen. additionally, the boys will assuredly gain eyesight similar to mine and will be sexually active with the girls as well, so that'll be the HD sex the dudes are looking for.
+
+I just believe that if I don't divide my energy, things are going to start getting really really nutty. take the curve of my energy output since 2012 and extrapolate that 20 years further. then look at 30. try 100, then realise it should be approaching infinity at a rate which is beyond human comprehension. the reason why I believe this is so, is because I have the compression of many many different timelines to where the one I am traversing now is so compressed with experience that it's pretty unbeatable.
+
+actually, so unbeatable I don't think we'll have something like this occur again until we have timeline technology available to people, so I contemplated this yesterday thinking about this, because I've gained so much experience from all of the difficulties that have occurred on the journey to get to where I am, this is a million times more effective than dna lineage or beneficial circumstances. I believe one of the main things that excites me about this is having a multitude of new contrasting circumstances where each one of them can go through difficulties and gain that kind of experience from different perspectives.
+
+to put it simply, I don't know how I can transfer my bullshit meter to the kids. I don't know if it's even possible. I can only teach them how to use their emotions and let that be their guide. after all, my bullshit meter is sensitivity to my emotions, because I can sense when something's off. so, in that way, nosebook will be able to bamboozle the kids that aren't proficient enough with their emotions, sure -- but (IMO) that's a good thing, because that's how they'll get better at using their emotional guidance system :) that's how I learned anyway: a bunch of people trying to take advantage of me created strong desire in me to learn what I was feeling and to trust it as more real than physical sensation.
+
+I am still not convinced that this is the height of the square energy, and we still have some more time to go before that is the case. I think if nosebook were smart about this, they wouldn't fight it and instead try to embrace some circular energy to prolong their lifetime a bit longer[^2].
+
+[1]: I use square here to refer to the agricultural age when humans stopped being tribal and villagers (hunters and gatherers) and began to make stationary farms, grain warehouses, and stuff like that. this change is the movement into the need to domesticate everything and protect it.
+
+[2]: it just occurred to me that if nosebook is only able to do squares, an attempt to try and do the next thing may spell disaster for them. when I was with marcos, I really believed that affinaty would be succussful if it were to base its content on ideology and beliefs instead of opinions and material posessions. I could see that quite clearly because I was tuning the website toward what had been my experience with woman and more receptive men's reaction to essembly and I had determined this was the right way to go. marcos did not have the same vision as I did, because he hadn't given nearly as much thought as I had to the difference between opinion and belief -- and belief brings people together whereas opinion tends to create sides.
+
+   anyway, he wanted a website more tuned toward the opinion and drama side of things, so we conflicted. I finally gave in and said I would just do it his way. if I had of been smart, I would have not tried to convince him to do it my way. instead, we did kind of a hybrid between both of our perceptions where he wasn't able to easily sell the ideology and belief aspect of the page, so attempting to satisfy my desire to do things differently only crippled him.
+
+   in retrospect, we should have both supported each other's convictions and done both ways. me do my way and he do his way. he would have had a much more success selling it and his users would have been ones that wanted to have opinions. I would have had different users, and they would have been more in line with what I wanted to present to them.
+
+   so actually, while I do believe it would be "smart" for nosebook to embrace what I perceive, after relating this story, I will instead say, that it would be better for them to simply continue to do what they're doing. as long as there are people wanting what nosebook has to offer, they should continue in that way. I believe there is still quite a big market for what nosebook has to offer, and that's perfectly fine.
+
+   actually I'm gonna go a full 180° on this one and say that their lifetime will be prolonged further if they do *not* try and do things differently.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
