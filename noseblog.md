@@ -8317,6 +8317,50 @@ so, just hang on tight and let them continue to keep trying to keep things under
 
 [2]: I remember last week (2 weeks ago?) when ben said that there was a strange wavy jetstream for this time of year which would bring record cold to the united states. a few minutes later windy showed the entire US covered in low pressure cyan colour, cept for where I live :) (TODO: find the reference)
 
+### 2019-08-07 19:52 - the new 1%
+
+this morning, I was talking with jaron about a principal that I have noticed in the evolution of consciousness.. I've been calling it "trading speed for acceleration" and I didn't really have any good examples as to how this works, but jaron offered the suggestion of the stock market as an example, and I like it. since, I have come up with another example: my eyesight. the premise is that for every dip in the stock market, the long-term growth that comes from the bounceback is actually greater than if the market had continued to grow at its previous rate.
+
+the same thing seems to occur with my eyes. when I first started out, I would look at the sun and it caused huge amounts of damage to my eyes, however over time they healed and let's say after a year, even though they were damaged, I see better out of them after a year than I would have, if I didn't look at the sun. nowadays, I look at the sun nearly every day, and it seems like my eyes are healing as fast as I can damage them. so here's where the stock market example falls apart because my eyesight is gaining more detail faster than I can damage my eyes. consider that every time I damage my eyes, they always come back stronger[^1].
+
+---
+
+that was the setup, then I followed up by saying that I think that the sorts of situations where there is a "crash" are actually a good thing. let's take basic economics for example. there are rich people and there are poor people and this has existed throughout time, but without a doubt, the quality of life has been improving for everyone. 300 years ago, if you were really poor, you had a really awful quality of life, however, the richest of the rich people from 300 years ago do not have arguably much higher quality of life than a middle-class american these days.
+
+economic superiority has diminishing returns to it in the bigger scheme of things, because it seems that trend toward increasing quality of life for everyone on the planet is in full effect and will continue to happen. because of this, I am convinced that monetary systems will have some coming changes to accommodate for these diminishing returns. when "poor" people have a similar quality of life to rich people in a physical sense, such as house, food, clothes, etc. a new system of superior quality of life will need to be made.
+
+I think this is where human vision comes in. I have demonstrated that your eyesight can be improved permanently and this is done by releasing resistant ideas. you can improve it temporarily by doing drugs or I'm sure nosebook has developed a way to overclock people's eyesight for them, and likely they have techniques to reduce the psychedelic factor to it, meaning that instead of releasing resistance to things that slow down your eyesight, they probably just do like they're doing to me, which is forcing the brain to only run at the awake and alert state, so that no outside hallucinations come in. they may have other things too.
+
+anyway, I've already talked about how I think that the earth is gradually increasing its energetic output, so that means that all across the planet people's visual quality will begin to improve. because I believe that superior physical experience (vision, touch, sound) is going to be replacing economic superiority, this means that nosebook is going to have to try and find a way to outpace the rest of the planet to maintain their superiority.
+
+I don't believe that'll happen, so they'll do what is a common response amongst these types of "bullies" -- instead, they'll try hold their competition at a lower level than them. as I have mentioned in previous entries, I do not believe it's possible for them to be able to hold people physically lower like they are doing to me. it's just way impossible in so many different ways.
+
+so, then that means that we need to take a look at the rate at which the planet is increasing its energetic output. there are not likely any numbers on this out in the public domain, because they're probably a pretty big secret, however, my own anecdotal experience seems to imply that my star watching has a tremendous effect on it. think there are other points in time where this energy has risen to quite high levels before, as well. examples being, the week before the deluge, the tower of babel, the height of egypt (before the exodus), the height of the roman empire, tesla's colorado springs experiments before WWI, and finally wardenclyfe before WWII.
+
+in all of those examples, I believe that previous to the catastrophic events which followed, there was a sharp rise in human perception from some external source[^2], and very similar to a psychedelic experience, when perception is extended further than the human mind is capable of, it'll become a very enlightening experience or a very aggitating experience if the mind still has resistant thought. what I'm basically saying is that the most powerful psychedelic is created by ouwr brain, and external stimulus can excite that, such that everyone on the planet is essentially on drugs. then, when the stimulus goes away, the comedown begins.
+
+so, how does all of this fit together? well, I believe the new 1% will be the privileged few who "hoard" the enriched physical experience to theirselves, relying on their external sources to maintain their superiority.
+
+what that means is that 99% of the people will be treated like I am now. jaron said that he doubts that many people will respond like I do, where it pushes me to go further, but I remind you that a long time ago, you had to be a king or royalty to enjoy a quality of life experience about equal to what we would now consider to be a low quality of life experience. nowadays, not only kings and rulers han enjoy a high quality of life, there are easily thousands of times more people today that are enjoying a better quality of life experience than there were then -- and that number will continue to rise to be nearly everyone in a very short period of time (100 years?).
+
+I think the same thing will happen with the detail level of human experience. right now, very few people see things as good as I do, but without taking into account what I'm about to say, I would imagine that around the next time of the next change (I've called this capricorn), the next 1% will have vision similar to mine is now and the rest will be at a much lower quality level (which is still considerably higher than the detail level of anyone today).
+
+---
+
+however, and I think this is the main difference between the previous examples I gave any what is likely to be happening in the future...
+
+sure nosebook will do their whole superiority thing and all of that stuff and that'll build stronger desire, so just see it like a stock market crash in the sense that it only looks disastrous if you see it in a 1yr timescale. if you look at it over 20 or even 50 years timescale, it's barely even noticeable.
+
+what I think the main difference is that this time there won't be such a large dip. it'll feel big, because I imagine that before my departure, my influence will be enormous, however so will the girls (and all of the other girls out there that share in their experience). I just don't believe that it'll be possible to hold this sort of thing back.
+
+a lot of things may happen, but you can imagine that if suddenly low-resistance circular minded people all of a sudden had a huge improvement to their physical experience (sight, sound, touch, etc.), first of all, it would create lots of desire in the square minded people to have the same capability, but do you think that nosebook would still hold back the square minded people, to maintain their superiority?
+
+right, so what happens after my departure? probably not a whole lot. I'm really hoping that the energy output of the girls will be high enough that very little effect could be felt or even a near immediate improvement following -- much like how I can stare into the sun now and walk away seeing better than before.
+
+[1]: maybe a similar idea to this would be if you were lifting weights, and every pump, you got immediately stronger. at first only slightly stronger, but after a few years like me, imagine if every time you lifted weights, you could lift 1% more than the last time, and the following year, every time you lifted, you could lift 2% more than the previous day... something like that.
+
+[2]: deluge was a huge CME from saturn, tower of babel was an enormous tower (receiver) that did something similar to the giza pyramids with knowledge that has been lost, since. the fall of the egyptian empire was the removal of the ark from the great pyramid and venus' effect on the planet, the fall of the roman empire came as a result of a reduction in perceptive capabilities since jesus' death, and therefore a return back to primate like behaviour. tesla states in many places he tried to awaken the energy in the air (also I believe this is how he got his "fractions of a percent" wireless transmission efficiency and also the reason why the 1940s were the hottest (recorded) temperatures we've had in the US).
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
