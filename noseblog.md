@@ -8447,6 +8447,46 @@ they are both very similar in the final result, yet they arrived to it from oppo
 
 I don't know yet how to implement this physically, but I know that one day it will be possible. until then, a girl as she becomes a woman can just decide what role she wants to play -- and who knows... what if, as you believe it, evidence begins to show up that it's true just like my future self did, and all of a sudden you find yourself having a multi-bodied experience, where one is the dual of the other.
 
+### 2019-08-09 12:48 - an open comment about nancy
+
+yesterday mom confronted me with her reaction to nancy's confrence and we had a somewhat uncomfortable interaction as a result. she complained that nancy isn't growing or changing. it's the same old stories and there's nothing new. I agreed with mom that she had not updated, but I didn't really want to try and figure out what was the underlying desire that I was feeling in that moment. I figured I would give it some thought before mentioning anything.
+
+this morning while I was sitting around enjoying the the cloudy sunrise, my answer came to me, and I decided after getting enough of it in me while sitting there, that I would be able to reload the feeling and relate my thoughts on the matter at a later time with mom (probbly over breakfast). I felt resistance to that so I didn't really try for it. I think it would have actually been counter-productive, so it's a good thing instead to have slept on it..
+
+---
+
+first of all, I think the general motivations are necessary to identify. for quite a few people nancy represents (or symbolises) a strong woman of faith in their mind, and so to see her get kind of stuck is a bit disheartening to them, because they want their female example of a storng woman of faith to gain, not wane in strength. they are looking at what they believe her to be, but not seeing that is what she is: nancy is very head strong and her salvation will only from from her own decisions; she *will* figure it out herself. this letter isn't so much to nancy, but moreso for others to regsain some belief in her again.
+
+you see, she *has* to figure it out for herself because that's what strong women of faith do, so just allow her to do that instead of noticing what's not there. from nancy's perspective, she probably finds it it difficult to do anything other than what she's already been doing, because so many people are noticing and giving their full attention to what she's not doing. when this happens, it can feel like she's being held in a pattern of not being able to do anything other than what people perceive her to be doing because that's what people are noticing. it's hard to go against the grain of what people are noticing and do things your own way :)
+
+nancy is a bit older as well, so the next concern mom voiced to me which likely (most certainly does) represent another common perception of the situation that, and that is that because nancy is so old, it's unlikely that she will make any change now. well, certainly not with that attitude. people have said the same thing about donald trump as well, and even though I'm not up to date on the situation, he does not feel to me 100% stagnant[^1], so I think it's possible that people can update. in nancy's case, I think we'll just have to see. lol
+
+---
+
+whew, now I'd like to mention a few things here. nancy says she's trying to lead people away from religion, and I would argue that this is the centrepoint and the big elephant in the room. religion requires that a whole bunch of people believe in the same thing for there to be any power in it. however, instead of trying to get everyone on the same page -- and, I've noticed that anyone (and right now the US political system and nosebook are the foremost examples of this) who tries to get everyone all on the same page, it seems to be making an endeavour akin to herding cats -- in this way, I have (personally) completely abandoned this style of thought and instead focused on the individual. in this coming age, any one person can only be an example or an inspiration to someone else. we will see a decline in coaching, teaching and mentoring, because people are reaching the point to where even if they have a great teacher, they *must* find their own way toward what they want, and attempts to try and go the old way of the guru or the teacher will ultimately fail[^2].
+
+the salvation from religion is not one of, "ok now I'm going to present a better idea than the last guy, so follow me instead now." -- instead, salvation from religion will come through the empowerment of the individual. this was the original intention of the protestant movement anyway.
+
+---
+
+ok, with the large elephant out of the way now, I'd like to begin talking in a different direction. for me personally, I have learned quite a bit from nancy because of her stories. to me they form a collage of different pictures which give evidence to an underlying principal, and I think an expedition into discovering what that is, should be attempted. you can imagine that jesus had a few different stories/parables that he repeated over and over to the crowds, and lots of people heard those stories and they resonated with them and went home edified, but only sometimes did he reveal the underlying meaning to those stories. I believe he didn't usually reveal the underlying meaning, not because he wanted to hold people in the dark, but because he wanted them to figure it for for theirselves.
+
+in this way, I think this is the most important thing for people following her work to begin recieving, ans as an understanding of what these things are will begin to create something new.
+
+however, it's quite possible that nancy is not even really aware herself of what they may be to her, and it seems possibly that may be the case, with her mention of trying to figure out how to get things to become well understood and repeatable. I estimate the reason why she finds them difficult to be repeatable, is because most examples of these miracles have relied on the power of belief when there are large groups of people all aligned in thought and believing the same thing. the thing is, you just can't do anything about what anyone else believes, and so anyone who wants to gain their stability in making those things repeatable will have to remove any reliance on external belief to do so.
+
+to further illustrate this, if you listen closely to what nancy is relating in her stories, they are all about ignoring what the people around her in these situations believe (satanic nightclub), and focusing inward toward what her own desire is. in fact, these very attributes of her stories are what has allowed so many people to perceive her strength in her self realisation toward whating by ignoring the physical circumstances of the moment (like hungry cannibals or whatever).
+
+---
+
+she'll get it. we just have to give her some space to find it :) she has to find it herself and make it her own, because that is what her identity is. at some point, the resistance will become so great that she'll be forced to go in the direction of what's wanted, but long before that happens, we can all begin to "prepave" her success in our minds by focusing on what it is that we appreciate about her, and only that. I think that if she were to have a radical transformation right now, it would not be well received because of so many of our expectations for her, so perhaps a bit more front-loaded difficulty is in order to soften some of these expectations up a bit. I think it's fine. by appreciating her we release her from these expectations, by only focusing on the parts of her which are appreciable, making those much more of a reality than the other stuff :)
+
+no matter how it goes, I'm sure it'll produce the next realisation of peoples' desire concerning these things.
+
+[1]: I hesitated so much writing that sentence because I have such a plethora of different reactions on the subject, some clearly believe it is the case and others wholeheartedly do not. well, the irony of this trumpism is not lot on me (where you take a taboo or sensitive subject and blast it out of scandal territory by saying something even more uncomfortable or difficult to process... lol) anyway, moving on...
+
+[2]: I've given lots of thought as to why this is so, and I don't really have a good reason as to why that is the case, but I think we've all been misguided enough times be people with something to gain from their agenda, that the human psyche may be beginning to reject this sort of thing. it's also a return back to more childlike behaviour. ever notice how there is a pattern in what we would identify in successful people when they were kids, they wanted to try it and do it for theirselves, and they didn't want some adult to just do it for them.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
