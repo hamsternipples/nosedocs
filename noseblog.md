@@ -8415,6 +8415,38 @@ I am still not convinced that this is the height of the square energy, and we st
 
    actually I'm gonna go a full 180° on this one and say that their lifetime will be prolonged further if they do *not* try and do things differently.
 
+### 2019-08-09 06:39 - multiple personality(?)
+
+this morning I was contemplating an idea that seemed like a good one to think about. I have concluded that it is possible to, extend the multiple bodied idea out further. the main example that came to my mind was imagine how men seem to think that all women have bipolar disorder, where they flip between a very loving and a very resistant personality. I've heard this from numerous men, and I've given it quite some thought, and I think it's a survival mechanism that they have developed, where one side of them deals with the world and the other side is quite resistance free and very delicate. I have postulated that this is attributed to the x chromosome, and is the root of a person's creativity. I have also postulated that this is the mechanism which makes it much easier for women to "channel" -- because they can much easier switch into their non-resistant side.
+
+for men, the x chromosome takes the form of creativity, is quite sensitive emotionally and would be considered the "feminine side" of a man. though, just like a woman can have a more masculine personality, then swap to a very feminine one, this chromosome is a bit of a wild-card in the sense that you make it what you want it to be. most men neglect (and I did too for the first half of my life, until I was about 22-24) their sensitive or emotional side. getting control over this for a man will enable the visual/creative capacity as well.
+
+---
+
+so, here's my idea -- and I have no implementation details on it yet -- just that I'm sure it's possible. imagine that a woman was able to inhabit two different bodies at once just like how I want to do my multiple bodies thing, they would direct both bodies emotionally. right now, the way I feel women when I have tuned myself to their operation, it feels like there is a constant tug-of-war inside of them where it kind of feels like they're going to explode emotionally. they keep their composure and behave appropriately -- sometimes, cause there's always this thing in the back of their head saying, wait what if you were to just do things not the way they're supposed to go.
+
+if you're a creative person you will instantly recognise that feeling. that's the life-force of creativity -- an inventor *MUST* try things out to learn from the results, because often times trying things out like that leads to unexpected results, and soon thereafter a new discovery.
+
+what I'm trying to say is that this bipolar "disorder" that we have called it, is actually the foundation upon which creativity is built. so, here's my plan: allow a woman to have two bodies, such that one represents their "good" side and the other represents their "bad" or experimentative side. each of these two bodies would live separate lives, and the reckless experimenter can go and amass all sorts of contrast.
+
+you see, there's no such thing as "bad" -- so a woman must be allowed to experience both. tesla lamented in his interview why he wouldn't marry that women are neglecting their better, in his opinion, side. the thing is when a woman wants to experience both in the same body, it can cause difficulties, because she cannot easily be both at the same time, so she's forced to choose between the two. some pick the rebelous side and others pick the good side because that's what's expected of them. others even still, decide they will remain the reckless experimenter for their youth, and then once married, switch over to the good side to settle down (and that too has other problems, because the reckless experimenter doesn't want to be shut down like that).
+
+so imagine for a moment that this already exists and andrea is only one half of who she really is. this is just an example, so just go with it. it doesn't reflect anything on the person because this is just an thought experiment a woman can play on herself to unlock her potential -- much like what I did when I was younger with time travel; I'm going somewhere with this. I'll just say she's the reckless experimenter side. that would mean then that there's the other half of her personality is out there in another body. both sides are on a trajectory of self-realisation, so gradually over time the experimenter would come to know what is wanted and generate the physical mechanism to make that happen. this is analogous to saying that she would be developing a masculine (executive) side to her to make that possible. I don't know if that would make a y-cromosome or not, but probably not... so instead of having testosterone flush her brain to generate this mental circuitry, she's doing it consciously.
+
+this would mean xxyy in total, and as a sidenote, similarly I am noticing a duplication of my sides as well. nosebook has one entire hemisphere of mine turned off (the right one, the one associated with emotion and visual/creative). as a result, I've been regaining that capacity by exercising my emotional side on a non-emotional hemisphere. I suppose that would be like me saying I have xxy right now, but when it comes back, my right hemisphere will mirror it, and I'll find myself with xxyy also.
+
+it is my expectation that andrea will eventually come to regain her opposite side as well (because it'll make her feel complete), and instead of these sides warring against each other as so often happens in a woman, her regrown opposite side will be her creation, exactly how she wants it and a product of all of her experimentation (contrast).
+
+now, here's the mental game for that can be played. instead of thinking that she somehow needs to settle down or to try and resurrect her opposite side because of the expectations on a woman that society has or whatever the reason. consider that other side to exist somewhere on the other side of the world living a completely opposite life. this opposite side is focused on what is known to be beneficial and is also generating a executive side to make that a reality.
+
+after some time, both bodies will generate an complementary executive function, one to take what is known to be desired and realise its manifestation physically, and the other side is to take all of the experiments, and distill it down to what is desired and to go in the direction of that.
+
+they are both very similar in the final result, yet they arrived to it from opposite directions -- and the further advantage is that both of them contain more of what is wanted, but neither of them could have arrived to it entirely in a single body.
+
+---
+
+I don't know yet how to implement this physically, but I know that one day it will be possible. until then, a girl as she becomes a woman can just decide what role she wants to play -- and who knows... what if, as you believe it, evidence begins to show up that it's true just like my future self did, and all of a sudden you find yourself having a multi-bodied experience, where one is the dual of the other.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
