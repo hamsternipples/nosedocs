@@ -8487,6 +8487,40 @@ no matter how it goes, I'm sure it'll produce the next realisation of peoples' d
 
 [2]: I've given lots of thought as to why this is so, and I don't really have a good reason as to why that is the case, but I think we've all been misguided enough times be people with something to gain from their agenda, that the human psyche may be beginning to reject this sort of thing. it's also a return back to more childlike behaviour. ever notice how there is a pattern in what we would identify in successful people when they were kids, they wanted to try it and do it for theirselves, and they didn't want some adult to just do it for them.
 
+### 2019-08-11 11:34 - feelings and hallucinations
+
+I was just having an internal dialogue with myself on some reactions to some people realising that they have no idea how women work (in light of some things I mentioned in previous entries).
+
+I mentioned that probably the easiest way to begin actually learning about this would be for the programmers at nosebook to first try and see if the system can recognise their own feelings. this is obviously because very few people can actually tell you what they feel in an accurate way, so the only real way to know if your system has any validity to it would be to try it on yourself and see how good it is. "who knows," I said, "maybe you'll actually learn something about your emotions."[^1]
+
+so to follow it up, I said maybe they could think of a woman more like you think of "multi-programming" @[youtube](https://www.youtube.com/watch?v=MB0yDMQj1lU) -- where you can think of it like two or more dudes occupying the same space. however, consciousness like a CPU can only allow one thing to execute at a time, so then there are these interrupts which interrupt conscious execution and swap in another process from the ready to run pool. the mechanism by which they make make their switch isn't really important, because it has to do with a lot of different environment and mental triggers.
+
+the important thing to try and figure out is which process is running. that creates a challenge though because you couldn't really know what process is running unless you were able to perceive the world like I do. when I say "perceive" -- I mean, "feel about the world" the same way I do.
+
+nosebook already has begun to develop the capability to do that. in other entries I have talked about how the emotions of the person are encoded at very high frequencies into the eyesight of the person. with my vision now being only a lower quality version of what my eyes see projected into the retina, I am seeing only physical colours and shapes, and it's not combined with the way I feel, so almost everything looks kind of bland and lifeless to me. if I were depressed, everything would dreary and awful -- and if I were feeling pretty good, everything would look alive and wonderful.
+
+---
+
+so what they need is to continue improving on that technology until it's so high definition that everyone is literally able to see things how I perceive them to be. I believe that because of signal distortions and attenuation of extremely high frequencies, people probably perceive things things, not quite as good as I would see them :) I'm quite sure that ramping people's brain up to see things the way I see them will also cause hallucinations as well, and those hallucinations are actually slight differences (incompatibilities) between our mental models of the world. they're like rough patches in the person's perception (emotional outlook on the world), which when stimulated, create a mental manifestation inside of the eyes, just like how if I were able to see through my eyes, I would be able to see the manifestations my emotions make in my eyes, too.
+
+so, by removing the hallucinations, nosebook is artificially removing the manifestations these points of resistance are creating, allowing people to see things more and more like I do. this is really good, because this is the technology we're looking for. it has some caveats as well which I'll talk about in the next section, but overall, things are quite good.
+
+---
+
+imagine now this perception signal as "key" to the person's perception. if you were able to remove all of your own perception, and just allow theirs through, it allows someone to perceive the world exactly like the other person does.
+
+a way to think about this, the way I have experienced it to be, that perception signal would be analogous to the hidden emotional/creative side of a person. men traditionally only have one of these in operation, but I am evidence that a man can have two (both my right and left hemispheres have this visual creative capacity now). woman also have two of these and their logic function is generated consciously instead of by having testosterone do the work (as is the case in men).
+
+what nosebook has been doing is they have been training their AIs to pattern match on the executive, logical, or linguistic side of the brain, because it operates in a very linear and discrete fashion. the other side which is traditionally located in the right hemisphere (the one they have disabled), does not work linearly. it seems to be capable of doing many things at once and works with abstract or frequencially similar concepts/feelings. in my brain, in order to combat my utilisation of that other side, they are trying to shut it down, and it's likely because the more I use that abstract perceptive side, my vision improves. my vision improving is just the physical manifestation of my mental model of the world is now able to process more information more rapidly.
+
+so, let's recap: think of human visual capacity as a physical manifestation of the way someone emotionally perceives the world. both men and woman have two (or more), but traditionally, men are only aware of their linear interpretation, and neglect or shut down their emotional form of perception. traditionally women are perceive the world through two, usually opposite, emotional systems of perception and their executive or linear interpretation of it is learned as they grow up. usually for a woman, one of the sides is active most of the time and the other side is usually protected or repressed because it doesn't have a highly enough linear interpreter (executive capability) to be able to operate in a male-dominated world.
+
+it is very uncommon for me to find another man who is developing his other side. I have noticed that men tend to be more physical, so men who are ambidextrous, tend to have both sides more developed. notable mentions are I noticed this frequently in jerry, as he did a lot of circus stuff so he learned a lot of things on both sides. I also find it interesting that I spent a lot of time with luke who also has both of his sides more developed than most. tesla also mentions that he later learned to become ambidextrous. (and, if you'll notice, all of the those examples are people who primarily utilise their left-hand)
+
+(to be cintinued)
+
+[1]: this produced a reaction to the effect of, it's hopeless/demotivating to discover new things because no real beneficial implementation can be made of it, because we're just to do what we're told to do.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
