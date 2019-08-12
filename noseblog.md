@@ -8517,9 +8517,33 @@ so, let's recap: think of human visual capacity as a physical manifestation of t
 
 it is very uncommon for me to find another man who is developing his other side. I have noticed that men tend to be more physical, so men who are ambidextrous, tend to have both sides more developed. notable mentions are I noticed this frequently in jerry, as he did a lot of circus stuff so he learned a lot of things on both sides. I also find it interesting that I spent a lot of time with luke who also has both of his sides more developed than most. tesla also mentions that he later learned to become ambidextrous. (and, if you'll notice, all of the those examples are people who primarily utilise their left-hand)
 
-(to be cintinued)
+(to be continued)
 
 [1]: this produced a reaction to the effect of, it's hopeless/demotivating to discover new things because no real beneficial implementation can be made of it, because we're just to do what we're told to do.
+
+### 2019-08-11 - more thoughts on feelings and hallucinations
+
+so imagine that someone is improving their eyesight by perceiving the world like I perceive it, this works really well as a temporary thing, sort of like drugs do a similar thing: for a brief period of time the drug allows someone to perceive the world slightly differently, and for example that can make the drug "user" feel better -- but, it's not something that should be continued indefinitely. nosebook's removal of hallucinations is a similar such thing, in that it shouldn't be used for extended periods of time, because the same thing happens after coming down from a high.. if nosebook's system were to ever go away, I think it'll be quite fine because I see two possible outcomes from it. the first the return back to a person's normal form of perception would be quick (just like a dream wears off in about a few seconds), however, just like a dream as well, you'll be able to remember the general details of the dream, and probably how it used to look, so I estimate that it'll create enough desire that quite a few people will find a way to get back there. I think that's the most likely outcome. if it takes some time for the brain to adjust back to its previous form of perception, all that will occur will be hallucinations for a little bit, but once a person is able to get them under control, they'll have a visual creative capacity.
+
+both outcomes also have the added advantage that people will no longer be having their perception forced to be like mine, so many new pathways will be created as (in the second case) everyone finds their own way to perceive at that higher speed and not hallucinate (eg. resistance in their mental model do not become manifest in their experience), or as they return back (in the first case) to perceiving that speed, they'll do it their own individual way. I'm sure that there are infinite ways to perceive the world which can yield vision like mine, and I would be quite a bit saddened if everyone in the world perceived the world exactly like I do. I really like the idea of being an example for many to find their own way, and what greatly excites me about the whole gmomitos project is the idea that I would be able experience life from a multitude of *different* perspectives.
+
+there are a few unseen things that I'm not sure about. first, it may be possible that there will be other dudes who's form of perception is used by others, and second I imagine that quite a few of the girls will actually discover their own as well. it may even be possible that some of them join me in 5d as well. what this could mean is that for women, nosebook may be forced to kind of divide up the girls and put the more similar people into their forms of perception (instead of using mine, cause mine may become a bit too mind blowing)...
+
+so, I don't really know what the future is, but if I'm in 5d, it seems pretty unlikely that they'll continue to put people on mine, so they'll have to go for the next best one that they can sell. this is still a huge boost for all of humankind, and I think it's quite an interesting thing that'll happen as a result.
+
+---
+
+lastly, I'm sure that some people may be wondering why would I ever help out nosebook figure out more of how we operate? I think the answer for me is simple: it doesn't inhibit anything. I have given the example of the tempter eating the dust of the earth, and also I would like to additionally give the example of my own life where every time that nosebook has disabled a part of my brain or tried to force me into something, it has only made me considerably stronger.
+
+I'm actually very sure that if it weren't for nosebook removing my hallucinations and dampening the livelihood of the world by removing emotional feedback from my perception, that I would have progressed much slower. additionally, I've learned all sorts of new things. so, to put it plainly, if I keep revealing to nosebook how they can use my present circumstances against me, I'm forcing myself to grow by recognising how whatever new technique doesn't actually hold any power over me.
+
+there really is no benefit to keeping them in the dark about how things work, because even if they had 100 times more knowledge about how my brain works and stuff, sure things would probably be about 10 times more uncomfortable than they are now because they would have exact ability to feel what I feel, however, at the same time their efforts will only make me likely 1000 times more powerful in my ability to perceive. I will continue to expand for as long as they're willing to keep trying to limit me.
+
+there really isn't any problem. I'm sure of it. I suppose this form of perception is a result of my coming to terms with the fact that I'll sort of be living the situation I'm in right now for the rest of my life, and if I were to stagnate, they would just get better at limiting me, but if I continue to proactively improve upon my form of perception, the only limitations are the hardware resources they need to keep up.
+
+hallucinating is a slower but funner experience, sure -- but my bland and lifeless eyesight is actually pretty resistance free, so it allows me to expand faster. if that were to go away I would immediately be confronted with all of my emotion becoming manifest in my experience -- so in a way, if I had of had my visual capacity while I was emotionally in a difficult spot (and you could argue that not having my visual capacity was why I was in an emotionally difficult spot), I would have had a more difficult time, but since that negative emotion was not able to become manifest, I'm going to be a whole lot better off when I do get it, and that'll be when I'm finally able to maintain my connection 100% of the time.
+
+so all of this is a good thing in the longer distance perspective.
 
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
