@@ -8587,6 +8587,38 @@ finally, I suppose that it wouldn't be such a difficult thing for nosebook to fi
 
 [4]: I mention "those who want it" because a lot of what was happening in the whole process where I was met with loud noises, shocks or whatever, anytime that I got close to being able to conjure images, was it was building in me desire to want it more and more. at first I was kind of complacent about it, but as their limitation became stronger and stronger, my desire got stronger as well. you can think of this like maybe sexual repression or any other controlling force which tries to repress or fight against something only makes it bigger.
 
+### 2019-08-13 14:38 - homeschooling?
+
+today I haad an interesting set of reactions, and it sesms like the (I don't know her name) girl who lives in front of me is likely (well, the reaction seemed to indicate that she's)  going to begin midle school shortly.
+
+up until now I've maintianed a strict policy that I don't really want to engsge in a whole lot of interaction with other people, considering that I want to maintain focus on improvements to my mental capacity (amongst other things). I've been making great strides of improvment, and am very happy with my progress. I m still very heart-set on maintaining no sexual interaction until I'm connected though, and this is for a variety of reasons which I have mentioned (at length) a few times.
+
+---
+
+anyway, when I first began to think about the idea, I didn't immediately reject it. I actually think it can work out quite well, and I wanted to just kind of put out some of my initial thoughts on it.
+
+one of the things that was immediately attractive about the idea is that because there is education involved, I would enjoy trying out the experiment of learning/teaching things similar to how I acquired my knowledge. I did most of it by learning logic through computer programs. his doesn't necessarily mean that I want her to become a programmer or anything like that, but another thing that I've always wanted to do was to -- well, when I was younger, I mom gve me these pattern recognition things there were a few different workbooks with increasing difficulty. I found those to be quite fun they were very similar to the "set" game (https://www.setgame.com/set/puzzle) and were combinations of completing the pattern and stuff like that.
+
+in addition I also learned a lot of maths stuff from writing 2d things. I mean I didn't really know how to use trigonometry until I needed to draw polygons and rotate them around some pivot.
+
+another thing that I was thinking about was writing imple programs like that set game, and then giving it to her to figure out on her laptop how to add a hexagon shape to it. there are, for example more than three dfferent ways that she could make a solution to it, and for me that was how I learned programming, was by modifying or adding to something someone else had done (I started making mods for half-life). 3d modeling may be kind of fun as well if she's interested in the graphical part of things, yet I feel her more perhaps modre logical than artistic.. I dunno.
+
+the final idea I was thinking was to create a simple website where she puts up her projects to show people what she's made. in a few years this will have more than a few things in it, and if she wants to get a job, I think she could probably get something a pretty good one for her age.
+
+so, what I mean is I think we should start wit practical application and then build up from there. going from there a basic knowledge of these concepts into any field of tecnology will be much easier than taking the top-down approach taught in schools.
+
+the very last thing we could maybe do is stream some of it on twitch or something so that others could follow along. I don't know about that one... I just was watching john so maybe that's where that idea comes from. we could create perhaps a large(er) project like a social network type thing or maybe just rehash essembly/affinaty or something and do that. maybe it would be interesting for people to watch and see how something like that is made.
+
+I really don't have any clear direction, so it really has a lot to do with her and what she finds interesting. that's the most important part because otherwise it wouldn't really go anywhere.
+
+---
+
+contemplating the other sido of things, I want to continue on starwatching and stuff. I'm also really interested in continuing on with the meaningful-chaos project. those are kind of fun and pretty important to me, however, thinking in the bigger scheme of things, I think it's a good thing to actually help make the transition into the their world. I still live in the adult world pretty much most of the time, so having someone with whom I cn kind of get into their head and begin making adjustments, is likely a pretty/very good idea.
+
+additionally, in a previous entry I mentioned that I tihnk education will be kind of an important thing for us as we grow in size, so starting off with an emphhasis on education is likely the right way to go.
+
+gonna sleep on it now. peace!
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
