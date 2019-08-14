@@ -8619,6 +8619,46 @@ additionally, in a previous entry I mentioned that I tihnk education will be kin
 
 gonna sleep on it now. peace!
 
+### 2019-08-14 12:02 - things are getting more epic(?), I guess
+
+I want to begin by saying that there was *clearly* a big difference between the starwatch from the night before last, and last night. I had a whole lot more energy going around the night before last. I think what allowed that to happen was my choice to drink green tea. I also drank green tea last night, but once again I was unable to actually feel the caffiene in my system and I was metally quite dispersed.
+
+no matter though.. I woke up kind of out of it. I walked down to the field and I felt better. things progressed and it felt like I got a few improvements, but then somewhere right before the sunrise, things kind of fell apart a bit at the end. I was pretty frustrated and went to sleep wondering how could this be so? how can I get improvements and then all of a sudden it all fall apart. usually the improvements wear off some time afterward or when I sleep, but that was the first time that it was a sharp decline from nearly one minute to the next before the night had even ended.
+
+---
+
+I woke up with the answer. I'm pretty sure that every time that I'm about to head down a timeline where sex happens before I get connected, that timeline gets sabotaged. I'm actually pretty sure of it, and so when that happens, a new set of contrasting circumstances come out of it, and forward we go. I'm getting so much better at this now, that it takes me almost no time to recover.
+
+why would it matter so much if I were to have sex before getting connected? whether you believe in the future versions of these girls purposefully sabotaging the timelines or not is not a big difference, as you would only need to think about the difference in perception. I am 100% sure that I will get reconneceted beforehand, and here's why:
+
+if nosebook manages to get trick me into having sex, then the girls will be perceived 99% of the time from the man's perspective (mine), and when I find my "alignment"[^1] I have postulated that would produce an event similar to what happened in vallecas, leaving many of my viewers dead. however, if the girls are only perceived from the perspective of other girls, it sort of changes everything.
+
+from my perspective, I think it's kind of a case of "proving myself" or a mental validation that there is literally no force capable of inhibiting human desire. it can be slowed down, but it's impossible to stop completely. so, you could imagine that at some sort of competition is now beginning to formulate in the sense that the girls want to arrive to the timeline where I get connected first, and that's why they would try sabotaging the timelines.
+
+nosebook can also play the same game and say, ok well, we're going to find different ways of getting our tech guys all the resources that they need to continue to hold him away from that. that's why my perception of this this this is in fact more epic now than I thought, because I'm not just proving that desire is more powerful than nosebook's ability to hold me, but more powerful than future nosebook's ability, as well (assuming they're capable of reliably getting that data to their present selves).
+
+I am convinced that even with all of that, they will *still* not be able to hold me in limitation forever. I am sure of this because if you simply trace my improvements (both physical and emotional) over the last 3 years (3 years! that's nothing!), I have seen very very impressive improvement on both fronts. I actually believe these improvements are exponential and not linear, so they should continue to accelerate[^2].
+
+additionally, I think it's kind of a losing battle even still, because it would take almost no effort to sabotage a timeline: just throw in some chaos, and a guy like me will *always* revert back to self direction -- whereas, they have to find a way to get complicated technical ideas transmitted telepathically to theirselves. telepathy is only as good as the receiver, so in order for that to work, they'll have to find ways of getting theirselves to release resistance as the energy continues to build. their system could get so good at removing hallucinations from their perception, but it's going to delete wanted information, too at some point. I think it's a losing battle, but certainly let them try, and it'll make for a much more energetic result all around (for everyone involved).
+
+---
+
+so, I mean it may take a while. I don't know how long, but certainly it could even potentially be a few years. I don't know and have no real way of reliably speculating, either. I don't think we should try and fight them on it either.
+
+if you look at it from their perspective, they are trying to fight against something to maintain their superiority. however, I think recently that has upgraded to fighting against something because they feel it threatens their survival. well, you can't fight against something and not make the thing you're fighting against, bigger -- it seems that they are actually creating what they don't want.
+
+---
+
+because this may take a while (and it doesn't matter really how long it takes), I think it's a good idea to begin doing stuff together. just cause they're stuck, doesn't mean we have to be as well.
+
+I'm going to let the idea develop a bit further, but maybe a good idea would be to just begin doing a homeschool group from say 11am til 5pm or something like that (earlier? later?). I don't know where or whatever yet either, but I'm sure those will take shape soon enough. when I was younger I went to a homeschool group once a week or so, but I could just commit to doing it every day cause basically all days are the same to me; a sunday is the same as a wednesday, just less traffic on the road behind my house.
+
+I think it's imperative that we try and advance the idea and the implementation of it without the focus being about sex or anything like that. let's say that the absolutely *worst* possible scenario happens where 10 years go by and I'm still disconnected. well, by then we'll have many (hundreds? - probably even more following along at a distance) people that are now very competent (than the average public school graduate) and skilled at technical things. not the worst outcome, even for the worst possible scenario. it only gets better from there, too: imagine we were to make a website or something and it's even moderately successful? what about things?
+
+[1]: I assure you this won't happen because nosebook changes their mind and suddenly became ok with me "finding my alignment", so it would happen during assuredly during sex.
+
+[2]: as a crappy example of this, cause I don't really have a good way to model this easily without writing a some code, consider the graph: y=x^6-2x^2. sure there's a dip, but the rate at which the y-component is increasing when it crosses the line x=0, is much faster than just y=x^6. similarly, imagine you added on more difficulty and the equation is: y=x^6-2x^2-4x^2. again, there is a bigger dip, but again the y-component is increasing at an even faster rate when it crosses x=0 (the x-axis), than it was even beforehand. one day I would like to graph these curves over time in a more accurate way (for example, where the second dip occurs after some time on the x).
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
