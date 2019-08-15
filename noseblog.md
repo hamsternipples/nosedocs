@@ -2905,7 +2905,7 @@ it's coming :) very soon. and when these sorts of games begin to arrive, the bra
 
 the next thing that mcluhan said which impacted me, was that games encode the culmination of the lessons learned from interaction in the previous medium. I've been thinking about that and I don't have any real conclusions yet as to what it could mean, but think about how poker encodes the lessons learned from empires betting and bluffing. now, extrapolate this out to the lessons learned from the web 2.0 era. I suppose one day nosebook will host a game which encodes the idealised and optimum social interaction on facebook.
 
-here's where we get to the fun part. I have really enjoyed watching johnathan's streams because the sokoban game is really getting me to think differently about puzzles. what I like about it is that up until that game, puzzles for me have largely been non-visual for me. often times someone will say a puzzle and I struggle to imagine it. if I can see it, I usually do better, but my mind doesn't really connect up a lot of those puzzle type things very easily.
+here's where we get to the fun part. I have really enjoyed watching jon's streams because the sokoban game is really getting me to think differently about puzzles. what I like about it is that up until that game, puzzles for me have largely been non-visual for me. often times someone will say a puzzle and I struggle to imagine it. if I can see it, I usually do better, but my mind doesn't really connect up a lot of those puzzle type things very easily.
 
 I am such a lazy person, when a problem happens, I always find the easiest way to solve it. I'm the type of guy that would play the sokoban game by googling the solution, then trying to figure out how to do it in less steps (or to optimise it in some way). then, I would take the puzzle and try to make a new twist to it which is harder or more satisfying (like matt was showing yesterday)
 
@@ -5187,7 +5187,7 @@ so, I imagine that my decision to take matters into my own hands and realise my 
 
 ---
 
-ok, so the idea of malaise got me thinking about a steam that johnathan did quite a while ago and posted it to his youtube. it got a lot of things moving around in my head at the time when I had quite a lot of malaise myself -- so it was really good. but then I had this random idea pop into my head where I hold johnathan in quite high regard and so what if someone at nosebook suggested that he does a quick q/a stream on this. it's also just as likely that I attracted the stream with my own desire to get thoughts moving, or even other people who also hold johnathan in high regard (the people he streams to) seemed to want to hear his opinion on this subject, because one of the most common things for a programmer to lack is motivation, and even less have internal motivation like johnathan has [^1]. so, to be clear, I'm not claiming that is what happened; it was a transition thought, where if it was real, it would remind me of the steering that christof did to truman in the truman show movie.
+ok, so the idea of malaise got me thinking about a steam that jon did quite a while ago and posted it to his youtube. it got a lot of things moving around in my head at the time when I had quite a lot of malaise myself -- so it was really good. but then I had this random idea pop into my head where I hold jon in quite high regard and so what if someone at nosebook suggested that he does a quick q/a stream on this. it's also just as likely that I attracted the stream with my own desire to get thoughts moving, or even other people who also hold jon in high regard (the people he streams to) seemed to want to hear his opinion on this subject, because one of the most common things for a programmer to lack is motivation, and even less have internal motivation like jon has [^1]. so, to be clear, I'm not claiming that is what happened; it was a transition thought, where if it was real, it would remind me of the steering that christof did to truman in the truman show movie.
 
 in all of the scenes where truman would identify something he wanted, like the girl at the school (sylvia), or a trip to fiji, or whatever, christof would try to steer truman away from it by affecting the conditions, like trying to make him afraid of water, travel, etc.
 
@@ -5760,13 +5760,13 @@ the first possibility, will yield the greatest benefit for all, yet I still will
 
 in the end, it'll probably have to be both. what a pickle
 
-### 2019-04-09 03:09 - did johnathan help me by, accident(?)
+### 2019-04-09 03:09 - did jon help me by, accident(?)
 
-it occurred to me while watching stars earlier this night that one of the potential reasons for my increased success watching stars lately is because of johnathan.
+it occurred to me while watching stars earlier this night that one of the potential reasons for my increased success watching stars lately is because of jon.
 
-first, I remember during the eclipse I was outside and it was cloudy (but I was out there anyway), and I distinctly remember having the feeling that I hugged johnathan. likely you guys say something visual, but I distinctly remember the sensation. I also remember that it felt like I was kind of like receiving further direction for the next time section moving forward.
+first, I remember during the eclipse I was outside and it was cloudy (but I was out there anyway), and I distinctly remember having the feeling that I hugged jon. likely you guys say something visual, but I distinctly remember the sensation. I also remember that it felt like I was kind of like receiving further direction for the next time section moving forward.
 
-anyway sometime later there was a bit of a mixup. I have no idea what was potentially visualised or what happened, but I felt a very strong reaction to it. I felt really bad about it and I didn't want to keep causing problems so I stopped watching johnathan's stream, too (after all, I'm not really programming these days anyway). it felt to me like it affected him.
+anyway sometime later there was a bit of a mixup. I have no idea what was potentially visualised or what happened, but I felt a very strong reaction to it. I felt really bad about it and I didn't want to keep causing problems so I stopped watching jon's stream, too (after all, I'm not really programming these days anyway). it felt to me like it affected him.
 
 so, my theory is that after some time of recovery, he decided to do something about it -- and I have no idea what he did, but when someone asked about ML on his 4/4/2019 stream, he made reference to grad students not having any idea what their ML models are actually doing.
 
@@ -5778,13 +5778,13 @@ there are greater implications to this theory and I've been wanting to create te
 
 ---
 
-so, assuming I'm my source's interaction with sufficiently complicated systems, theory is correct, perhaps johnathan caused them to loose faith in their own neural network's ability to correctly identify the signals it has been taught to recognise -- and so, their loss of faith in their machines began to allow them to begin to fail to recognise certain things my eyes would do, and allow me to gain levels easier.
+so, assuming I'm my source's interaction with sufficiently complicated systems, theory is correct, perhaps jon caused them to loose faith in their own neural network's ability to correctly identify the signals it has been taught to recognise -- and so, their loss of faith in their machines began to allow them to begin to fail to recognise certain things my eyes would do, and allow me to gain levels easier.
 
 so, nosebook techs: now you know :) get your faith back because you have a lot more capability you'll need to limit; I'm pretty sure this is either the long haul or the *really* long haul we're in for.
 
 even weirder than that, could be the idea that somehow the eclipse premonition was some sort of setup to make it all work, almost as if all I need to do is to just roll with everything that happens, because, like the illusion I made with xander, I don't even need to make an effort anymore: I just follow my instinct and go with the flow.
 
-I was thinking about how maybe johnathan might react to this entry, but -- I hope he just rolls with it :) anyway, thanks :)
+I was thinking about how maybe jon might react to this entry, but -- I hope he just rolls with it :) anyway, thanks :)
 
 ### 2019-04-09 18:48 - some more idealised ideas
 
@@ -8607,7 +8607,7 @@ the final idea I was thinking was to create a simple website where she puts up h
 
 so, what I mean is I think we should start wit practical application and then build up from there. going from there a basic knowledge of these concepts into any field of tecnology will be much easier than taking the top-down approach taught in schools.
 
-the very last thing we could maybe do is stream some of it on twitch or something so that others could follow along. I don't know about that one... I just was watching john so maybe that's where that idea comes from. we could create perhaps a large(er) project like a social network type thing or maybe just rehash essembly/affinaty or something and do that. maybe it would be interesting for people to watch and see how something like that is made.
+the very last thing we could maybe do is stream some of it on twitch or something so that others could follow along. I don't know about that one... I just was watching jon so maybe that's where that idea comes from. we could create perhaps a large(er) project like a social network type thing or maybe just rehash essembly/affinaty or something and do that. maybe it would be interesting for people to watch and see how something like that is made.
 
 I really don't have any clear direction, so it really has a lot to do with her and what she finds interesting. that's the most important part because otherwise it wouldn't really go anywhere.
 
