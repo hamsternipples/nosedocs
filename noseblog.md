@@ -8693,6 +8693,50 @@ find a timeline where the most extreme contrasting conditions can be created, tr
 
 [1]: this would create an extreme level of "light density" on our planet because the people on it are not just one consciousness, but hundreds or thousands or more, depending on how many times it has been done, and I think is the next level of thrill seeking.
 
+### 2019-08-15 07:19 - a few more things about timelines
+
+one of the interesting reactions I received in response to yesterday's entry was the concept of people disappearing. this is not the case. instead think of how many infinite possibilities of yourself there could be. there could be versions of you that are completely subject to the environment around you and there could be versions of you which completely dominate the environment around you.
+
+now let's think about the timeline split. first of all, I think timeline splits are happening all the time, and every time that you go to sleep, you readjust your frequency a little bit while you sleep and come into a different timeline than when you left.. I'm sure that this is the case because you navigate timelines (the infinite versions of you) emotionally, and when you go to sleep often times you will feel worse than when you wake up. any time there is a difference in how you feel emotionally, you adjust slightly your trajectory by participating in a timeline that feels better or worse.
+
+---
+
+when I mentioned yesterday that they were electronically preventing hallucinations, again, think about the idea that emotion will become manifest in the eyes. tesla's "photographing thoughts" idea (which nosebook is obviously using) is, actually a bit misplaced. every time that you think, a concept and/or emotion appears as a result. that feeling will create an impulse in the retina which will allow one to "photograph a thought" -- it's not really the thought itself that is being imaged, but the conceptual/emotional reaction to the thought[^1].
+
+the reason why I believe that nosebook's trajectory is pretty much unchanging is because they're removing so much hallucination to run their brains at a depth of perception[^2]. this means they are dulling the part of the brain which makes certain (negative?) emotion manifest, which makes them completely oblivious to their navigation of these timelines. their trajectory is set because they don't have accurate feedback from their "emotional guidance system."
+
+you could say, well, I find it impossible that they *never* feel negative emotion. sure they would, but normally at that level of sensitivity, those emotions would become manifest in their eyes causing distress similar to what tesla experienced as a child.
+
+---
+
+I think consciousness is attractive, and when you are near to a person that is conscious, they are more attractive, and we tend to want to be around other consciousness, so during the day our timelines may deviate slightly, but when we sleep we come back into the the optimum version of that collectively perceived reality. so, a timeline split is nothing more than the collective perception of reality splits into two. I like to think of this similar to cells, where it continues growing until it reaches a size to which there is no longer so much unification in form, to which a division begins to occur and the cell divides into two, the new division ever so slightly different from the other previous, constructs its new dna, and then puts its new structure as the nucleus of the new version of itself.
+
+now, the reason why I said that I'm not really sure there will be a timeline split is because ... wait, let's play out a pretend version first of all.
+
+let's say that nosebook is "forced" to let things happen, and that may be for a multitude of reasons, and so let's just imagine that things go relatively as planned: the gnomitos project gets started and things go forward there, and then as we approach the time when I'm about to make my transition into a multi-bodied experience, there are all sorts of differing beliefs on whether this is a valid idea, and each of these different beliefs is your reality trajectory.
+
+the reason why I think that maybe there may not be a timeline split is because if I remain alive, things would continue to improve, so they would have to kill me. however, if I make my transition into a multi-bodied experience, and many people do not believe this is a thing, and they will create their own reality and prove theirselves to be right about it, which basically means that now the majority of the planet's light density will be carried by the girls (cause I made my transition), and few other random people who have released some resistance. I don't imagine an instant collapse or anything like that, but you can imagine that over time with an overall decrease in depth of perception, things that used to be relatively complex will now appear extremely complex, and it wouldn't take more than a few generations for things to go back to the form of perception which that kind of consciousness is capable of perceiving.
+
+on the other side of things, I think that the general trend of people of the planet will be toward conceptual perception. this is what I've called 5d, and it interests me very much to get it, because it allows the perception of an entire concept in reality as if it were floating in resistance free space, just like in the imagination. it also allows for some interesting physical phenomenon because, for example, you could imagine that right now there *could* be a version of me that it outside writing this very entry right now, and if I were to feel as if that was where I was now, just like how the imagination is kind of separated from reality in the sense that only the relevant details show up, I could easily "teleport" to be sitting under the tree writing this, as quickly as I could imagine myself being there. obviously, from my perspective it looks like "teleportation" but in reality, all I did was move my consciousness from one timeline to another one of the infinitely many other timelines that exist.
+
+you will notice that there was no disappearing that happened. also, this becomes a whole lot more effective around other people in 5d as well, because if you think of 5d perception as similar to the imagination in that you only perceive relevant details to what you're looking at, that means that most people aren't paying a whole lot of attention to what's going on around whatever they're perceiving.. they're pretty focused on whatever that is, so that means that things can move around in a very non-linear order, and also there's not a whole lot more use for the day/night cycles, because like your imagination, you don't find those necessary, unless it's relevant to what you're looking at. (eg. imagine your mom. is she in he sunlight, house light, moonlight? she was not lit by any of those lights until you started to think about them? where did the light come from that made her not-dark before?)
+
+---
+
+this also allows for multi-bodied experience, because if you (you're 5d) picture trump in your perception then I perceive him as well, and he's also standing next to us at the same time, where does he exist? things no longer have a 1-to-1 correlation anymore -- probably a subject of future musings.
+
+just imagining/realising that there are infinitely many versions of you and you can consciously move between them gives so much freedom to experience, yet that's probably not for everyone... some people may not want to experience that because that's not controllable.
+
+---
+
+so, the advantage of the whole timelines thing is that from the perspective of the successful timeline, it looks like each time that we bring our consciousness to earth, compound everyone's light density, experience fairly large amounts of contrast, and bring along with ux, others who are similarly minded and want to the new form of perception.
+
+from the perspective of the ones who decide to go the hard way, they're also compounding their light density, and because they're experiencing more total contrast than us, we may be going faster for now, but soon enough they will have traded enough speed for acceleration that they'll actually outpace us, and the process will reverse.
+
+[1]: I think that the reason why their conceptual tracking of my thoughts has been slipping is because they are imaging and tracking the conceptual "reaction" to my thought, not the thought itself. when I redefine my perception of something, conceptually that will change as well, and so what they used to think I was thinking has now shifted conceptually and their system fails to recognise it correctly, or a whole new thought can generate that same concept.
+
+[2]:  I used to call this detail level. I like depth of perception better, becasuse I literally see things that are further away in greater detail -- their realness pops out at me. also, I notice that as my depth of perception increases, I'm additionally able to perceive further depth conceptually. this is tied to the complexity thing.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
