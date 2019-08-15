@@ -8659,6 +8659,40 @@ I think it's imperative that we try and advance the idea and the implementation 
 
 [2]: as a crappy example of this, cause I don't really have a good way to model this easily without writing a some code, consider the graph: y=x^6-2x^2. sure there's a dip, but the rate at which the y-component is increasing when it crosses the line x=0, is much faster than just y=x^6. similarly, imagine you added on more difficulty and the equation is: y=x^6-2x^2-4x^2. again, there is a bigger dip, but again the y-component is increasing at an even faster rate when it crosses x=0 (the x-axis), than it was even beforehand. one day I would like to graph these curves over time in a more accurate way (for example, where the second dip occurs after some time on the x).
 
+### 2019-08-14 19:36 - maybe we are on the galaxy timeline...
+
+after I wrote that, I really wanted to watch jon and see if he did any more compiler refactoring. instead, he was working on the game, but I was compelled to watch anyway. a few hours in, he begins a rant which covers a lot of topics he mentioned in a previous talk "preventing the collapse of civilization" @[youtube](https://www.youtube.com/watch?v=pW-SOdj4Kkk).
+
+he ranted about increasing complexity, and the degradation of institutions will lead to an eventual collapse. I share his sentiments, but I think we're kind of past the point of no return (astrix, and I'll likely revisit this topic multiple times in the future). anyway, after that I wanted to go outside and kind of think about stuff and feel out some of the reactions.
+
+you see, when I said, "however, I think recently that has upgraded to fighting against something because they feel it threatens their survival." -- I was thinking that they felt threatened by the idea of stronger women, and perhaps that somehow their position of power would be overthrown. the reaction I received in response to that idea told a different story, and that is that their whole operation is running at my brain's speed, and if their engineers were no longer able to run their brains at my level of perception, they would go from being brilliant and capable of dealing with unbelievable complexity, to run-of-the-mill undergraduates or whatever..
+
+I don't think it's quite that bad, actually because even if they're able to get rid of "hallucinations" from their experience, they must still be releasing resistance in somehow to be able to keep up with it. if I were to go away, I would just expect stagnation, not a whole lot more...
+
+however, if I did go away, these guys will become the "grey beards" mentioned in jon's semiconductor anecdote in the collapse talk. those guys will still be able to navigate a pretty complicated source code, and machine learning models effectively, but any new guys coming in will be imbeciles in comparison to the guys working there now.
+
+---
+
+it may be possible that because the very life of the organisation is threatened by my getting connected, that we're going to really go the distance.
+
+if you think about this from a multiple timeline perspective, what is happening is that nosebook is kind of locked into what they're doing. they can't really adjust their trajectory a whole lot. imagine there was a huge die-off of people watching when I get connected, and you were to try and "save" your alternate self from this fate (cause surely 100% of them didn't all die in every single timeline) there would be very little that could be done. instead, imagine that the alternative to that would be to set up the optimum scenario for them to have as best of a situation as possible.
+
+as mentioned in 1177bc, and other places, there have been multiple times when there were these collapses to civilisation, and I think it has to do with perception and people had the mental capacity to perceive really complex things because of the environmental conditions on earth (the air was really "conductive"). I think that the loss of that condition is what lead to the collapse.
+
+I also believe that it would be quite possible that in every one of those circumstances, a time split occurs as well, because certainly not everyone on earth has that perception, so since people create their own reality, there were probably multiple timelines where the egyptian empire, roman empire, etc. was successful and went on to do great things and certainly would have timeline technology and would be able to interested in what is happening here.
+
+---
+
+from the guys at nosebook's perspective, they're going to live out their dream. imagine they would be able to go into a young body, get everything set up in such a way that they had utmost power and control that they wanted. they'll live during the height of the empire, and all of the problems that accumulate, will be for the generations to follow, so they can plan out the best circumstances imaginable for theirselves. they won't actually see this "collapse" -- it'll happen over a span of hundreds(?) of years in generations to follow.
+
+maybe there is no timeline split. I dunno, but I am pretty sure that I will see the success of the human enterprise, and we'll likely get timeline technology and similar to others, go back and retrace our timeline only to find out that a whole bunch of people created their own reality in such a way that something bad happened[^1], and I (for whatever reason) disappeared or found my alignment or something such that no longer could be used to do their boost their level of perception artificially. that seems a bit contrived, so maybe it will be a solar event or something... I dunno, something.
+
+if they perceive a threat to their survival, that means that they're already in pretty deep doo-doo. I'm going to continue working toward getting connected. it may take a while, and I think it's quite ok if it does. the deal will be (from a much broader perspective), they get to live out their ideal life at the hight of their empire, and we'll gain so much contrast that it'll propel us so far forward, that success is inevitable. we'll surely get sick of the success and prolly we'll organise a similar setup to the one that's happening now..
+
+find a timeline where the most extreme contrasting conditions can be created, transfer our consciousness in and create and live out the next revolution the earth sees. those who don't want to be a part of it can create their own realities however they want.. pretty cool because soon we won't need to bother with all that mundane day-to-day contrast. instead, we can pre-pave our most extreme contrasting circumstances and jump from successful earth to the next successful earth[^1].
+
+[1]: this would create an extreme level of "light density" on our planet because the people on it are not just one consciousness, but hundreds or thousands or more, depending on how many times it has been done, and I think is the next level of thrill seeking.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
