@@ -8761,6 +8761,40 @@ in the bigger picture, nosebook seems pretty determined that they want to try an
 
 [1]: it really *is* easy! I just need to make a replica of set game (not totally necessary to have it all done, I know), and have it so that after downloading atom and git desktop, cloning the repository, and installing cmder, just a "yarn install" is all that's needed to run it. (really, this is about 10 times easier now to get something going easily than it was when I first began)
 
+### 2019-08-16 11:08 - we can all learn to not need the manifestation
+
+last night I was star watching thinking about my predicament, and I kind of came to the conclusion that I was going to simply do my best to move forward with the homeschooling thing. I determined that it would be a bit more difficult but it would probably make us stronger. I had the sense that my desire to get connected was understood and stuff, so not a problem. any chaos that comes about will actually kind of make us stronger and stuff.
+
+I know I'm running up against time constraints, but I can't do a whole lot better than what I'm already doing. I just need to learn to focus better. I also didn't really feel last night that there was a huge difficulty around the getting connected bit taking a little longer.
+
+I then had an idea pop into my head that went something like this: nosebook will hold me indefinitely in a state of disconnection, and the girls we'll build up quite an empire in he process, then at the end of it all, I'll go away/disappear and be left with nothing.
+
+it's hard to translate the idea because it makes such little sense, so I knew that it wasn't mine. the object was to establish the idea that they would hold me away indefinitely, and then I would not get anything that I wanted out of it, or something like that.
+
+---
+
+my reaction to the thing was probably not what they were expecting because I didn't really find much of a problem if that were to happen. if it did, and I don't believe it would because of some major flaws in the idea, I thought it would be just fine if it turned out like that, because although it's quite a while in terms of years, if we're creating and getting good at not needing the manifestation, then it's all good. by that time we will have most certainly created something quite quite quite big. so worst case scenario, we create an empire in the process.
+
+no matter that, let's run through some of the flaws in that idea...
+
+0. what, did they think that after some time I would just disappear or expire or something and that was the end of everything? all along the way, the girls just used me to create their empire or something? lol.. anyway, the expiration date, as I have suggested, is likely the time when I get released from something, so it'd be the timeline split if anything. from nosebook's perspective, something bad might happen, but from mine it just means I will no longer be held away from things, and everything will start to go really really well. (that's the split: one believes one thing and the other believes something that contradicts it)
+
+1. if we begin to create things and start to become successful at them, from nosebook's perspective, this is a very bad thing. they want to be the one who grants us the blessing to move forward our great future. the last thing they want is for us to find a way forward all on our own so that we don't *need* them. they really need to be needed, and this would invalidate their desire to be the gatekeepers to everyone's success (you can't be successful without us). also, easily identified as the classic case of a dysfunctional parent not letting their child leave, because they know they'll find something better on their own than at home.
+
+2. not having sex and learning to work as a unit will gain us strength, not the opposite. in fact, I think it's beneficial to not have to worry at first about all of those extra complications. we can just channel our energy into what we're doing. it's not forever...
+
+3. ...and the idea that nosebook will be able hold that back forever is fatally flawed. there is a reason why they've been fighting so hard against me programming and stuff, because as soon as I start getting that sexual/creative energy moving by creating things, all forms of perception become easier for me, and I become much more energetic and vibrant. I don't know how they arrive to the conclusion that creative expression with other people will slow my star watching down. I may spend less time on it, but I think the progress will probably be about equal. this is why I'm programming! it helps me to get that energy moving so that the release of resistance is easier, and therefore star watching is easier. I would be doing this by myself anyway, so the idea that I can be doing this with other people only makes it better, not worse.
+
+---
+
+there may be other flaws, but I'm not sure that it matters. I came to these conclusions last night, but I felt like I wanted to type them out because I seemed to have expanded on my conclusions and kinda even talked myself into it even more.
+
+I'm going to do my best to move forward on this as quickly as possible. I don't really think it's all that difficult. I just need to sit down and do it, mostly. after having thought about it last night, I believe that I can produce what I want to have ready in about a week -- so... let's say my goal is to for sure have it all done before 3 months from now (lol). in reality, it'll be a lot less, I just don't want to give bad time estimates like I've done in the past. it really will be much less, and to accelerate it, I think I want to try and see if I can move this forward much before that.
+
+I mean, let's just be honest here, the girls could blow through 3 full months just doing stupid lumosity.com games for 2 hours a day and would likely have learned more than in the same amount of time at public school. if you don't want to go to school, just don't go :) follow your hart, always ("that's what I do" -ND) there are also other things to be done as well, like installing the software necessary to get everything all setup. I'll see what I can do, but I think that maybe we can get started this following week or something. it may be kind of bumpy start off (I didn't really have much of a notice about it to get anything in order), but let's see what I can do. we have the weekend to figure it out.
+
+
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
