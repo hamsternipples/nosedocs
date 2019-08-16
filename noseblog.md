@@ -8737,6 +8737,30 @@ from the perspective of the ones who decide to go the hard way, they're also com
 
 [2]:  I used to call this detail level. I like depth of perception better, becasuse I literally see things that are further away in greater detail -- their realness pops out at me. also, I notice that as my depth of perception increases, I'm additionally able to perceive further depth conceptually. this is tied to the complexity thing.
 
+### 2019-08-15 21:33 - why do things have to be so complicated? (the tradeoff)
+
+I went to sleep yesterday feeling like I all of this homeschooling thing was totally feasible. I came to the conclusion yesterday that I want to write a single electron program which starts up and displays a clone of the set game. from there we would just add some new features until things were more setup, then continue to expand from there. I decided we'll use the atom editor and github desktop for the repository stuff instead of the git command-line. it seemed like it would even be possible to set the whole thing up as a sngle electron program download... I dunno it seemed easy[^1].
+
+anyway, I woke up and was particularly off when jamie arrived, I don't really know what was the problem, but I never really got into the zone. I couldn't really feel what I wanted to do with the program, and I didn't really know what I wanted to write for meaningful-chaos, so I just decided I would get the programmer juice going by doing something mechanical, and that was changing my c++ code style to match as closely as I could jon's style.
+
+as I was watching jon's stream (cause he has no source posted online anywhere that I know of), I started feeling some pressure to begin taking action... things kind of degraded from there. I remember that it all felt really good on the 13th when I originally had the idea, and on the 14th there were some difficulties with reactions and stuff. I managed to salvage the thing...
+
+there's this problem: after watching stars, it feels like a good idea to me, but when I wake up, I'm kind of cloudy and murky on things. I just don't know how I can possibly do this if my own ability to perform the functions that I need to. in other ways, this kind of reminds me a lot of the thing that happened with gary or when I decided that I would try social security: at first the idea seemed ok, but then it stopped feeling good to me.
+
+---
+
+I follow my intuition and as soon as something stops feeling good to me I don't proceed toward action. I have learned over the last few months to not even get let anger manifest so much, because it's kind of a waste of time. it's easier than ever for me to not take action on anger (or anything that doesn't feel good), and I cannot control how something feels to me. I really wish to have more control over how I feel about things. I'm learning quite quickly and me gaining more control of this has has actually been the reason why star watching is so much more successful for me.
+
+this would be so much easier if I were connected right now, because then I would see things and feel about things even more than 10 times better than I did on the 13th, but that's not where I'm at yet. I decided that since it's going to be a while, it's probably a good idea to begin work on the education aspect of things, but to be completely honest, although I'm much more stable than I was before, I am nowhere near stable at all. my reasoning at the moment is that for now, until I gain my stability, I'm not going to take any action. I know that it's a bit late, but there's nothing I can do about it. I am literally doing the most I can. I don't know how to go any faster.
+
+I want to get much more practiced in my stability as well as continuing to watch stars, and I just don't see any realistic way of making that happen before the month's end. after this, and the situation and what happened hayden, I'm pretty clear now that things are still in a pretty unstable state. I've got to be so practiced at it that these strong influences don't have a huge effect on me any more. clearly I'm not as close as I thought. I tried to think about the possibility of getting there before december, but I'm not sure I can even manage that.
+
+---
+
+in the bigger picture, nosebook seems pretty determined that they want to try and delay my energetic progress watching stars and stuff, and while thinking it over, it seems that there is great effort to try and use this as a method of reducing my star watching. what that means, I guess is that it'll take me even longer to get connected than before. so, while I am interacting with you guys sooner, and we're making stuff it's probably going to take me longer to get connected. I don't know if that tradeoff is desired. I'm not really sure cause I'm mentally ultra cloudy today, but I remember yesterday that tradeoff was not desired.
+
+[1]: it really *is* easy! I just need to make a replica of set game (not totally necessary to have it all done, I know), and have it so that after downloading atom and git desktop, cloning the repository, and installing cmder, just a "yarn install" is all that's needed to run it. (really, this is about 10 times easier now to get something going easily than it was when I first began)
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
