@@ -8793,7 +8793,25 @@ I'm going to do my best to move forward on this as quickly as possible. I don't 
 
 I mean, let's just be honest here, the girls could blow through 3 full months just doing stupid lumosity.com games for 2 hours a day and would likely have learned more than in the same amount of time at public school. if you don't want to go to school, just don't go :) follow your hart, always ("that's what I do" -ND) there are also other things to be done as well, like installing the software necessary to get everything all setup. I'll see what I can do, but I think that maybe we can get started this following week or something. it may be kind of bumpy start off (I didn't really have much of a notice about it to get anything in order), but let's see what I can do. we have the weekend to figure it out.
 
+### 2019-08-17 07:12 - not needing the manifestation (part two)
 
+I think there was a realisation that finally occurred last night after I wrote about not needing the manifestation. I think people finally connected the idea that nosebook's engineering and quite a lot of their revenue relies on me not getting connected. asking them to let me get connected would be for them corporate suicide. I don't see any reason why they should do it. there's no reason other than maybe they're concerned about what others will think about them. I think one of the biggest things that humans can accomplish this era will be to no longer adapt so much behaviour around what people think others think about them. absolutely the most limiting factor is to care about what others think; it inhibits your power to move toward what you want by splitting your energy going forward and whoever else is having an opinion.
+
+I realise saying that when probably lots of people are very concerned with the optics of their illusions, is perhaps counter productive to my goal of trying to get connected, but I prefer to stick with the robust solutions, rather than the quick hotfixes.
+
+---
+
+sure it's kind of annoying that there is this whole competition beginning to form. they think they can hold me away from it indefinitely, but I don't think they can. I see this as a competition to see how quickly I can regain my connection, despite their having quite an interest at stake in me not getting it.
+
+it may take a while, but I think it's worth it. I think we shouldn't really worry about me or my circumstances; I'll find my own way. instead, I believe we should continue our focus on getting the gnomitos project going. either way, I'm going to continue to improve on my technical abilities, because I think there may be an eventual solution as I gain more technical capacity.
+
+this technical capacity is growing which allows me to have more creative expression, which essentially means more energy. I'm on average much more successful watching stars when I'm also programming well, and creative energy is moving. I'm also much more attractive too, I don't know if you've noticed.
+
+as I've been thinking and feeling all of this through, I really like the idea that if some of the girls want to share in the fun of creating things, I think it could be a huge win overall.
+
+to put it simply, this predicament I'm in is only temporary, and I'll get out of it faster by creating more things. if the girls want to join me, it'll be even better, because there's quite a possibility that we could easily become financially independent before I get connected, and all of us will gain many technical skills along the way (I'm continually learning new things).
+
+I think the more creative expression we accumulate along the way, the faster it'll go, too. it's certainly worth a try. being depressed and wishing things were different doesn't improve things, so we just have to go farward. 
 
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
