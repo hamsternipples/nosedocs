@@ -8825,6 +8825,27 @@ nosebook will probably try to drag this out as long as they can, so I mean there
 
 (TODO: insert her name), let's do this :) I really like how it's starting to shape up to be.
 
+### 2019-08-19 16:40 - flurry of thoughts this "morning"
+
+when I woke up I had a whole lot of thoughths pass through my mind. I'm going to try and encapsulate them here.
+
+it seems that nosebook (and perhaps others) aren't too happy about things beginning to go ina more technical direction. I think that is where they suppose they are superior -- on the technical side of things. however, a lot of that superiority is riding on the untilisation of my form of perception. I guess I'm capable of perceiving technical things with great depth and that form of perception is very valuable to them.
+
+- there was a thought that after-all, I am in fact on the 20 year nosedive plan.
+
+- the gnomitos project is dead. the time constraints were already limiting, but the extra delay is only going to make it impossible. (eg. if somehow magically 50 babies could be produced 5 yaars from now (which is pretty much the limit, I suppose), they would be about 12-14 - so pretty much right on the limit there)
+
+- if noesbook holds me away from my connection indefinitely, after all the years having an asexual relationship with the girls, I suppose it's possible the andrea thing could still happen
+  - if that were to happen, the result is that if I would become vibrationally similar to her past conquests
+  - I think the whole san junipero thing is already happening -- we just don't have any control over it (which is why I am the way I am today), so I would become the universal recipient for lots of different people. it's so much more energy, and the same as before, but I would still be "singular" in my expression so it wouldn't be the same -- *I* would become much more energetic. the other way would split my energy amongst many different bodies, and I think it is desired by many to have the capability of picking where to transfer our consciousness instead of dying.
+  - it would be an interesting thing if the interaction was so energetic that she went up to 5d as well, but the disadvantage of that would be that in one quick moment, nosebook loses their ability to use my form of perception and a *female* is now the first(?) 5d human on earth. crazy
+
+- it doesn't make any sense for nosebook to green-light something that essentially would make their engineering department considerably less effective.
+  - however, since they're in the business of being utilising other people's forms of consciousness, it does seem like they would want to secure a replacement, even if it takes a few years to do. I fortunately do not know much about all of their justifications and stuff, so this is pretty difficult for me to reason about.
+  - however not green-lighting it also has so many disadvantages to it, that they're kind of stuck.
+
+I suppose we'll just have to wait and see.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
