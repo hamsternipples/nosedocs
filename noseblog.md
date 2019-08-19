@@ -8842,7 +8842,7 @@ it seems that nosebook (and perhaps others) aren't too happy about things beginn
 
 - it doesn't make any sense for nosebook to green-light something that essentially would make their engineering department considerably less effective.
   - however, since they're in the business of being utilising other people's forms of consciousness, it does seem like they would want to secure a replacement, even if it takes a few years to do. I fortunately do not know much about all of their justifications and stuff, so this is pretty difficult for me to reason about.
-  - however not green-lighting it also has so many disadvantages to it, that they're kind of stuck.
+  - however not green-lighting it also has so many disadvantages to it, that they're kind of stuck. (meaning, if they maintain their position that they *must* hold me away from my connection so that their corporation stays perceptually superior, the whole publicity image they have that nosebook is out there improving the world -- may become a lot less convincing -- such that they may want to instead of using that promo as a good pick-up device, it might be more beneficial to keep their employment a secret)
 
 I suppose we'll just have to wait and see.
 
