@@ -8811,7 +8811,19 @@ as I've been thinking and feeling all of this through, I really like the idea th
 
 to put it simply, this predicament I'm in is only temporary, and I'll get out of it faster by creating more things. if the girls want to join me, it'll be even better, because there's quite a possibility that we could easily become financially independent before I get connected, and all of us will gain many technical skills along the way (I'm continually learning new things).
 
-I think the more creative expression we accumulate along the way, the faster it'll go, too. it's certainly worth a try. being depressed and wishing things were different doesn't improve things, so we just have to go farward. 
+I think the more creative expression we accumulate along the way, the faster it'll go, too. it's certainly worth a try. being depressed and wishing things were different doesn't improve things, so we just have to go farward.
+
+### 2019-08-19 09:38 - (yet) another statement of intent
+
+last night I was thinking about how all of this will fit together, especially if I'm going to be kind of starting things off with (TODO: insert name). it changes the angle of the gnomitos project slightly and I haven't quite figured out the difference yet, but most importantly, it changes the focus to be one more geared toward production, creativity, and technology.
+
+I imagine that noesbook is probably trying to fight this, making it bigger, meaning that we'll likely have more of an emphasis on creativity than on pure sex (like it seemed to be previously).
+
+I was thinking about it and I imagine that we'll launch a few web pages and do some other stuff which will generate resources. instead of doing whatever with the money, I would like to take that and fund the gnomitos project. it would be really great if we could make enough money to buy our own place and get it just how we like it. I kind of see the project sort of like a corporation/village hybrid, in that we're completely self-sustained. as a corporation, we'll expand into all sorts of different sectors of technology, and as a village, it's like the original gnomitos idea, cept -- well, I'm not yet capable of distinguishing what that feeling is. it's not bad; it's just different.
+
+nosebook will probably try to drag this out as long as they can, so I mean there would definitely be a time delay (everything happens a few(?) years later). however it works out, I still think this a very worthwhile thing to invest my time into, and I think it works brilliantly with my plan to remain abstinent until connected. having the focus on creative expression instead of sex, is going to produce a *LOT* of really really intelligent women (I hesitated to say people, because I want the focus to be on them, but I can easily see how this will affect many other people all over the world).
+
+(TODO: insert her name), let's do this :) I really like how it's starting to shape up to be.
 
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
