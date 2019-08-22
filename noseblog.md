@@ -8846,6 +8846,36 @@ it seems that nosebook (and perhaps others) aren't too happy about things beginn
 
 I suppose we'll just have to wait and see.
 
+### 2019-08-22 13:51 - I'm pretty much ready
+
+I will likely have the things I wanted to have done, all done by tomorrow. that is exactly a week from last friday when I said that I need a week. that's good enough for me :) I'm going to essentially claim victory on meeting my deadline -- however, I did want to do get things organised in a way which makes them something that I can teach.
+
+I will admit, the part about figuring out how to teach it seemed to me like it was an afterthought, considering that I would be organising all of that between now and tomorrow.
+
+however, besides that I feel pretty confident in what I'm building and stuff. theredoes not seem to me like any portion of the future tasks seem unknown or even unmanagable. I have it all pretty well figured out and I have a general sense of what the steps are toward that.
+
+as for the teaching bit, I didn't really consider that I would be doing lessons or anything like that. there are tons of small things that need to be done and she (we) can do them easily. IMO, the first thing that is necessary is to justget inside of the code and to get comfortable making small changes. the next thing, probably will be to show her how to compile and upload the latest version of it to gh-pages branch so that it's live. stuff like that.
+
+I really don't want to try and teach her any formal logic or computer sciencey stuff right away. as the necessity arises, she can figure it out by herself. for example, imagine that she wants to go and check to see all the different size phone screens show it well, she can inspect the variables and adjust the logic for it right inside of the debug tool.
+
+I really am sure she can figure these sorts of things out. so, for all practical purposes, I believe I'm pretty much ready, in that sense.
+
+---
+
+there is a second subject which doesn't feel as good to me. as far as I can tell, it involves the actual conversation and/or encounter necessary to get things rolling.
+
+one thing I was thinking of doing maybe is getting it all set up as if I were going to teach this to a bunch of people or something, and then maybe pass fliers out to the neighbours and stuff or something. I decided ultimately that this wasn't my preferred plan because then I would be in "teaching" mode, and I don't really want to teach in the traditional sense.
+
+I honestly figured I would just head over there, and knock on the door, show what I have and ask if they're interested. it's pretty direct -- but what do you imagine that I would do otherrwise? I really prefer to be direct, as it's my favourite form of conversation. in fact, the reason why I stopped listening to abraham was because not a single question any more was a direct question; instead, they were all indirect ways of asking something and the indirectness was causing me mental chaos. I plan on talking with her just as direct as I do in this document. I don't really see any other way of going about it. I've given up trying to get other people to talk with me directly, so you won't have me trying to get her to speak any other way than how she wants to, but I prefer to be direct.
+
+so this kind of leaves me a bit directionless. I don't have it clear or feel terribly good (or bad) about the whole thing. I figure I don't really need to worry about it because I still have stars between now and then so I'll be more clear-headed about it.
+
+I guess, unless I feel strongly negative about the thing, I'll just go over and see what happens.
+
+if we need another week, that's good, too.
+
+ok, back to work :) I've nearly got it.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
