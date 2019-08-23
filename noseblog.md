@@ -8876,6 +8876,26 @@ if we need another week, that's good, too.
 
 ok, back to work :) I've nearly got it.
 
+### 2019-08-23 16:19 - I got it
+
+today has been quite motivational for me because I proved to myself that I can get the things that I can control my energy so much better than ever before. I really think I've kind of reached the next level in the sense that things don't bother me so much now that I can just focus in the direction that I want to go and do it.
+
+I was talking with jaron this morning about just finding all sorts of ways to feel good anyway. it really is the key to feeling good -- morning, I'm so goad at it now, that it's pretty hard for me to feel bad.
+
+I was reminded today of the thing that abraham always says when they encourage you to achieve the feeling of the thing without yet having the thing. I can totally do that now. for example, I like the idea of doing the games thing with the girl across the street, because I liked the idea of programming with someone. well, I know that I need to achieve that feeling of (I don't know how to describe it) -- more stability at programming when someone is also participating. I get distracted less often and they help me to focus because they're watching, so it's easier for me.
+
+well, it turns out that I totally nailed it. I managed to achieve that for myself so well in fact that I'm completely in control of it. I can just decide to program and it starts working (cept for maybe right after I wake up)...
+
+so what's the deal? why did I bail on going to see her? the simple answer is I just didn't really feel it. there was a lot of uncertainty in the air and stuff. it feels good to continue on like this so that's a whole lot easier (and way more productive) than trying to make something happen. when I can feel it, I know it's good and things will flow just as easily as my programming has begun to flow.
+
+I'm still gonna go over there and stuff, but just not today... it's all in the process and I can feel like it's really all starting to come together.
+
+analysing the feeling of it coming together, I noticed there was some time-shortageness in the air. I don't know it it's related, but around the same time I picked up on an idea that they (nosebook) feels like they're losing control a bit, and they need to get some girls around me to babysit me asap (so they can I guess use the girl(s) to try and prevent me from doing things that they don't want me to do, like watch stars(?)).
+
+I imagine that may be the reason for the feeling of off-ness. I imagine that when I really feel like I really want to show her what I've made because I really want her involved, it's going to feel a lot more natural and fluid.
+
+everything is going along just fine :) I really have a lot of anticipation about this, cause it's going to be a lot of fun.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
