@@ -8910,6 +8910,20 @@ the real reason why I want to talk about it, is because it's definitely there (e
 
 I think you will all begin to see very soon that I am not just talking about a bunch of lofty spiritual goals, but can actually demonstrate how to allow, direct and control this kind of energy. you'll soon see :)
 
+### 2019-08-24 07:26 - "reject" girls = vision upgrade?
+
+has anyone else noticed that whenever I've bailed in the last minute to go see some girl, immediately afterward I get a pretty big vision upgrade?
+
+the most notable similar thing to what happened last night was when I was going to go up to see johnathan (my cousin) and his kids with aunt mary. I got shocked and bailed on it. then later that night, I went out to go watch stars and all of a sudden terrific cloud formation began to happen as I probably got a few vision upgrades.
+
+the same exact situation also occurred when I was going to go up to see serenity, as well, so it seems to be a pattern.
+
+by default, I want to do what is expected of me, but I'm also intuitive enough to know when something doesn't feel good. I sincerely doubt the idea that rejecting girls = vision upgrades, so there has to be another explanation.
+
+it seems to me that it is likely that nosebook is trying to use these different circumstances as a way to manipulate me or hold me or something... I don't really know what is the thing. I don't have enough information to be able to analyse the situation well, either -- so I can't really tell.
+
+I'm hoping that it will be possible to actually begin making progress instead of everything always failing due to my inner being leading me away from circumstances and situations that are not wanted. it kind of sucks because none of these girls did anything wrong; what happened was completely out of their control -- but take it from me where just about everything is out of my control, not having control doesn't actually mean much if you can follow your own internal guidance.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
