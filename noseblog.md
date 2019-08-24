@@ -8896,6 +8896,20 @@ I imagine that may be the reason for the feeling of off-ness. I imagine that whe
 
 everything is going along just fine :) I really have a lot of anticipation about this, cause it's going to be a lot of fun.
 
+### 2019-08-23 23:15 - the toppest priority clouds
+
+I was just out star-watching thinking about the stuff I was talking about because when I said the thing about them needing the girls to babysit me, it really stuck with me. I honestly didn't really consider until just now the possibility that I'm much closer than I thought. I'm starting to get the impression that I'm really beginning to outpace these guys.
+
+I guess this is when the rough part of journey begins (moreso than previously), because they can't possibly allow me to get out of their control. I don't really have much to say about that more than what I already explained to jaron this morning. really, their bogus beliefs are their own bad ideas and they are going to run them in to the ground right there in front of everyone.
+
+I think for the people having some sort of an idea of some sort of utopia or something like that, I think it's actually quite the opposite. like I was saying to jaron, energetically, when there is more friction, it creates more power. the *only* think that slows something down is *your own* ideas which are in opposite direction (contradiction) to gigantic flow of "well-being" or improvement. the more I learn, I'm realising that it's so difficult to try and get old or get tired or get worn out. the stream of well-being flows so strongly, that it really takes a VERY conscious effort to try and go in opposition to it.
+
+I really don't know how to explain in words easily what it means to understand this. it's in clear and plain sight. I assure you I am not saying anything extra-ordinary. in fact, it's *only* the self-realisation of it which is important. only you can realise this. it's right there and it's right in front of us, but, for example me, I couldn't see it for a long time. I had hints of it on psychedelics and stuff, but those can only show you that it exists. to truly come to realise the power and magnitude of well-being which is flowing toward any one of at any point in time is mind blowing.
+
+the real reason why I want to talk about it, is because it's definitely there (even if you cannot see it yet) and I'm learning every day now how to allow more and more of it through. I consider their feeble attempts to try and get things under control, only as practice to let even more of that energy of improvement (well-being) through.
+
+I think you will all begin to see very soon that I am not just talking about a bunch of lofty spiritual goals, but can actually demonstrate how to allow, direct and control this kind of energy. you'll soon see :)
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
