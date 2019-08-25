@@ -8948,6 +8948,16 @@ let's just not need the manifestation for a little bit longer. I assure you thin
 
 [2]: I also tried out different ideas like clones and stuff. I remember one time when I was stoned, I really really liked the idea of finding a way to make clones of me. I figured nosebook is already working on finding ways of making clones of me (that they control), and perhaps *that* was the way forward...
 
+### 2019-08-25 09:25 - not following directions isn't the same as pushing against
+
+I have noticed that a lot of artists who tend to be pretty creative, also tend to not follow directions. I find this to be the easiest to spot in comedians and musicians. however, not following directions is often associated with being a rebel or pushing against the direction-givers, their creative expression is more in form with pushing against.
+
+as a child, we have often heard parents or teachers talk about the kids who don't follow directions as saying, "the march to the beat of their own drum" or "he doesn't stay inside the lines" -- things like that to say that the kid hasn't fully woken up to doing things the "proper" way yet, and is still making the mistake of not doing things the usual way.
+
+this form of talking about the child occurs before the child begins to become resistant and hate the people telling him/her what or how to do things.
+
+the pushing against part is a learned *response* to get the well-educated adults to go mind their own business. however, that learned response can be unlearned to allow greater amounts of creativity to flow more easily.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
