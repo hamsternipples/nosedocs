@@ -8958,6 +8958,32 @@ this form of talking about the child occurs before the child begins to become re
 
 the pushing against part is a learned *response* to get the well-educated adults to go mind their own business. however, that learned response can be unlearned to allow greater amounts of creativity to flow more easily.
 
+### 2019-08-25 15:09 - do you want to make a competition?
+
+one of my initial thoughts when waking up this afternoon was the idea that we could turn this into a competition. what if we got so good at self-control, we were no match for nosebook's attempts to try and influence us. I made the idea of "the voice inside their head" -- but in reality, nosebook is far too sneaky for that (cause that would be blatant and obvious) -- so instead, I'm sure they'll have to resort to doing like they did with me for a while, where they would put an idea in my head and then at the same time, make a sensation of pleasure in my body. fortunately, because of all of the drugs I'd taken, I quickly recognised that the feeling was one of pleasure not of .. I don't really know how to describe it, but after getting tuned into my emotion for a while, I began to trust them more than my physical experience (sensation in my body) and I would seem to just "know" things -- which is very different from a sensation of pleasure.
+
+as a result, I've gotten very good at finding my way through their jungle. I'm so used to their techniques now, and can often spot new ones with ease, that I am comfident that I'm capable of this competition now.
+
+---
+
+so here's what I propose: as we're together and doing stuff, we'll be creating things on the computer and stuff. for me (and I think this is true for everyone), creative energy feels almost exactly like sexual energy. I'm sure that nosebook will try out different things to try and prove to theirselves that we are ultimately under their control, and have no control of our own.
+
+instead of letting that sexual/creative energy get out of control, we'll learn to transmute it (transform its form) from sexual to creative. the benefits are obvious: if we learn how to transform it one way, then the other way won't be difficult either. so, for now, we would be learning to trasnmute sexual energy into creative energy -- but, I am sure that in the future, we will be also be able to transmute creative energy into sexual energy.
+
+there are also numerous benefits to learning this kind of energetic control for a woman: this energy is very persuasive, and most sales men use this to their advantage. this is discussed in quite a good way in chapter 11 of "think and grow rich" by napoleon hill. for a woman, she can easily become very persuasive if she controls this energy[^1].
+
+as you begin to learn to control this energy, we will become unstoppable, and what I predict will happen is, that they have almost zero control over this energy. in fact, I would imagine that because they are so hell-bent on their own destruction[^3] I believe they are completely sebject to their passions from this kind of energy.
+
+as a result, what I think will happen is that sexual tension will grow, and we'll be able to control and transmute it into our creativity, yet they will be unable to do much about the growing tension, until they are finally "forced" (it's not really forced. it'll happen naturally. I'm speaking from their perspective) to let go of their attempts to try and control my energy, because it will become too strong for them to handle.
+
+it requires a little cooperation though, but I'm sure that we can do it. I'm obviously going to give the idea some more time to roll around in my head and give it a star watch as well. we'll see :) maybe a bit of a competition is the way forward. they love competitions.
+
+[1]: it is subject to law of attraction, just like everything else. so you could imagine that turning this energy dose make you very persuasive, but it is sort of like saying 'yes' to something in a very big way[^2]. I found out I have very good control over this energy, and actually the reason why I'm in the predicament I'm in today is because of the strength of this energy. as abraham says, "you can't go backwards; you cannot undesire something"
+
+[2]: for this reason, I postulated that ladscape architect guy is setting hemself up for this as he has likely been utilising the energy that my form of perception exudes to his advantage, telling many woman that he's out there on the good-guys team doing his best to improve the world. just like how I'm suck in, and go backward out of my present situation because of a sexual setup that happened as a result of the attractiveness of andrea, so he will too have to find a way forward improving the world, just like he said he would.
+
+[3]: I've mentioned numerous times that sex is more powerful than stars and it is an assured thing that I'll find my "alignment" there, which basically makes a repeat of what happened in vallecas when someone died or was seriously injured when I found my alignment to get me out of a difficult situation (just like I had read about in project superman).
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
