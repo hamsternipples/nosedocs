@@ -8924,6 +8924,30 @@ it seems to me that it is likely that nosebook is trying to use these different 
 
 I'm hoping that it will be possible to actually begin making progress instead of everything always failing due to my inner being leading me away from circumstances and situations that are not wanted. it kind of sucks because none of these girls did anything wrong; what happened was completely out of their control -- but take it from me where just about everything is out of my control, not having control doesn't actually mean much if you can follow your own internal guidance.
 
+### 2019-08-25 08:27 - if we could just not need the manifestation (part three?)
+
+I woke up yesterday with some reactions to my previous entry. I thought it was fairly obvious that the whole reason why nosebook is trying to get me set up, is so that I have full-time babysitters to keep me busy and away from stars or drugs or stuff they don't want me to me doing.
+
+the reason why I say I thought it was fairly obvious is because I would go on and on about how sex is more powerful than stars... why would I want to make such a point about that? well, they think they can keep me occupied sexually and this will keep me away from getting connected so they can continue to exploit my capabilities.
+
+when I first caught on to this I responded by wanting to go my own way and deciding to skip the whole girls thing altogether[^2]. I don't really want to be babysat by a bunch of well-meaning girls that are just doing what the voice inside their head is telling them to do. I went back and fourth for a while on the thing, but I never could find a way where it felt good to me[^1]. as a result, I had terribly bad "split energy".
+
+when I finally came across the gnomitos idea, it started to feel good for me -- and the reason is obvious: I really like the idea of having a multiple bodied personality. I like to be with other people, but I also really like the solitude and feeling of self-completeness which comes out of my creativity. the only real way to do both effectively is to do both effectively. I want to have some of my personalities as creative and self-motivated as tesla and others which are social butterflies. neither of them can be 100% one way or the other, because even tesla enjoys being around people from time to time, even though no serious work can be done in those situations.
+
+so, you can see that if I were somehow able to find a way which I could get the ability to exist in more than one body at once, I would jump at the opportunity, and really that's the only reason why I'm here today, is just because I like that idea so much. the benefit of that idea far outweighs the whole perpetual agitation I receive from nosebook. I figured it was sort of like a thing that I just cope with for some time until I'm finally released from my body. I imagined that for the girls, this is a pretty sweet deal too, because it's probably a pretty exhilarating idea to also be sexually active with a boy while he's growing up -- so, in part their payoff is more long-term, as well.
+
+so I figured that the girls must have had some sort of idea of nosebook's intentions to try and use them to be my babysitters. it's not like I tried to hide this idea for fear that it would diminish their excitement. in fact, just the opposite. I have mentioned multiple times that as soon as I get connected, nosebook will have a much more difficult time trying to manipulate me (cause they can't see through my eyes any more), so they'll resort to exercising their attempts to control through the girls.
+
+just the same as me, I figured that the girls were aware of that and had decided that the benefits outweigh the circumstantial difficulty. I also figured it would be a really great environment for each of them to begin to learn to do things for theirselves based on how they feel about it, instead of being motivated by some other societal or authoritative expectations.
+
+did you really think that I'm going to guide them to just be followers of directions? I don't even want them to follow *my* directions! this is precisely one of the sources of inspiration for this idea: @[entry](2019-08-09 06:39) -- where I explain that the side of you that wants to get out there and do things not according to what is expected of you is actually the creative side of you.
+
+let's just not need the manifestation for a little bit longer. I assure you things are coming along just fine.
+
+[1]: I don't mean pleasure good. pleasure good isn't real good, and I know this is true because I can take drugs and feel pleasure good, yet at the same time, it's not what really feels good. when something really feels good, there's no mistaking it.
+
+[2]: I also tried out different ideas like clones and stuff. I remember one time when I was stoned, I really really liked the idea of finding a way to make clones of me. I figured nosebook is already working on finding ways of making clones of me (that they control), and perhaps *that* was the way forward...
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
