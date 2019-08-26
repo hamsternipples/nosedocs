@@ -8984,6 +8984,24 @@ it requires a little cooperation though, but I'm sure that we can do it. I'm obv
 
 [3]: I've mentioned numerous times that sex is more powerful than stars and it is an assured thing that I'll find my "alignment" there, which basically makes a repeat of what happened in vallecas when someone died or was seriously injured when I found my alignment to get me out of a difficult situation (just like I had read about in project superman).
 
+### 2019-08-26 16:30 - getting more of unwanted
+
+here @[entry](2019-08-24 07:26), I presented the idea that "rejecting" girls = vision upgrades. obviously this is not the case, even though it seems to be a pattern.
+
+after having thought about it, I'm pretty sure that in all of those cases, what occurred, was nosebook is becoming more aware that they do not want me to find my connection, so they have been attempting to try and do different setups to prevent that from happening.
+
+well, there's a major reason why I don't think any of those setups have worked out -- and that's because the focus was on what is not wanted, instead of what is wanted. in all of those cases, I am sure that nosebook was putting a lot of attention on trying to prevent me from getting more vision upgrades. so, as a result, when the thing fell through, their belief was that I was going to get a whole lot more vision upgrades -- and so, when I went out to watch stars that night, I got exactly what they believed would happen: I would get a lot more vision upgrades.
+
+---
+
+I think a similar thing is happening with the neighbour across the street, and nosebook is really getting frantic because I keep getting more vision upgrades. you see, I do want to go see her. I do want to start making games with her. the desire is all there, but I just cannot go. I am pretty certain that I simply cannot go for the same reason that the pharoah couldn't let the isrealites go in the exodus: he couldn't allow his decision to be made based on something unwanted (plages predicted to happen by moses).
+
+I woke up this morning with the sense that nosebook wants to try and force things to happen. if you will notice, I didn't feel any real difficulty over the idea, because I know it'll be a failure. in fact, I even postulated that in their attempts to try so hard to prevent me from going up a dimension, that is exactly what would happen.
+
+I have no idea what in the world they want to try and do, and it doesn't matter really. I was thinking about the possibility of this being a time split, but I don't believe so. if they create their own reality by giving their attention to unwanted, and what's unwanted for them is also what is wanted for lots of other people, there is no split. I think they've worked theirselves into a bit of a corner on this one. I'm going to continue to move forward on stuff. let's try and give out attention to what's wanted :)
+
+(I forgot something, it feels. I'll come back to it when I remember what it was)
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
