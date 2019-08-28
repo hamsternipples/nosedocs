@@ -8998,9 +8998,21 @@ I think a similar thing is happening with the neighbour across the street, and n
 
 I woke up this morning with the sense that nosebook wants to try and force things to happen. if you will notice, I didn't feel any real difficulty over the idea, because I know it'll be a failure. in fact, I even postulated that in their attempts to try so hard to prevent me from going up a dimension, that is exactly what would happen.
 
-I have no idea what in the world they want to try and do, and it doesn't matter really. I was thinking about the possibility of this being a time split, but I don't believe so. if they create their own reality by giving their attention to unwanted, and what's unwanted for them is also what is wanted for lots of other people, there is no split. I think they've worked theirselves into a bit of a corner on this one. I'm going to continue to move forward on stuff. let's try and give out attention to what's wanted :)
+I have no idea what in the world they want to try and do, and it doesn't matter really. I was thinking about the possibility of this being a time split, but I don't believe so. if they create their own reality by giving their attention to unwanted, and what's unwanted for them is also what is wanted for lots of other people, there is no split. I think they've worked theirselves into a bit of a corner on this one. I'm going to continue to move forward on stuff. let's try and give out attention to how what's wanted *feels* like :)
 
-(I forgot something, it feels. I'll come back to it when I remember what it was)
+### 2019-08-28 07:13 - progress report
+
+I was thinking about what I had said, and the main issue is that I don't feel comfortable with my energy levels. after stars, I tend to see things quite a bit clearer and all of this stuff seems quite feasible and stuff. however, when like after I wake up for example or other moments, I don't have the same ability. this bothers me because I'm not consistent. there is the further aspect to the fact that often times nosebook just decides to take away my consciousness because of whatever reason. I can't really trust my physical experience in many ways. I feel very out of control in this aspect, and it certainly seems that they must believe they can manipulate my body to enough of an extent that they feel confident in moving forward with stuff. eg. I assure you, they're not putting in time and effort because they want to help the girls, but because they believe they can manipulate our bodies in some way to force what they want.
+
+additionally, after watching stars I have much better control over my body as well... so when I was thinking about this, I was reminded that not too long ago I had a difficult time after waking up, and also quite a difficult time with programming and other things too, but they've all improved quite a bit since then. I mean really significantly improved. I thought about it and really it hasn't been all that long actually that I was in very angry and frustrated mood a lot of the time.
+
+anyway, tracking my progress and thinking about things, I'm actually quite confident that -- prolly before, but at least -- by december I will have the same amount of energy that I have after watching stars, normally. this is pretty much the state that I feel I need to be in to feel confident in myself.
+
+I actually think I can get that state sooner than that, but there are things that I cannot control like the weather and stuff, so I'm giving myself easily double the time that I think I need. I mean if you track my star watching vision upgrades, I'm getting more now in a week than I did in a more than a month previously. I'm really getting the hang of it.
+
+I also noticed that there will likely be a little bit more chaos than normal... for reasons. don't worry too much about anything :)
+
+see ya'll soon :)
 
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
