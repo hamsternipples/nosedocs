@@ -9014,6 +9014,36 @@ I also noticed that there will likely be a little bit more chaos than normal... 
 
 see ya'll soon :)
 
+### 2019-08-29 07:16 - more of "unwanted"
+
+last night I was having a difficult time trying to grasp wtf is going on... I just don't understand, cause I don't really feel any resistance to new additions, yet the logic part of my brain says that surely we've arrived to "too many" by now, and I have genuinely felt as if things are balanced and seem to be in order more than 3 times in the last 3 days -- meaning that it feels ok, so "what on earth is happening", I wondered.
+
+I believe what is happening is nosebook is giving their attention to unwanted, in a pretty serious way. I think they're really stressing about the number of girls involved now, which is probably a huge amount of resources for them to have allocated. more girls also means more babies too, so it's a growing problem. then, I think the real problem for them was felt in a reaction I received numerous times last night. it may or may not be real. it felt to me like they perceive what is happening to be kind of like the beginning of a new way of doing things on earth -- as if this is the beginning of the women beginning to have some sort of power or something.
+
+for example, I was thinking about how since there are so many more girls now than I had originally anticipated, there will be quite a strong desire for sexual activity with the boys -- well, this received quite a resounding motorcycle roar in response -- which is usually indicative of someone's dissatisfaction with (the implications of?) my thoughts.
+
+---
+
+I mean, I don't disagree. I think this is kind of reshaping in a very unexpected way a lot of different societal norms and ideas that we have about things. this very well could be the beginning of the wave of the future. it's waaay too early to tell though.
+
+however, I am pretty sure now that they are creating exactly their worst nightmare by giving so much of their attention to what they don't want. perhaps it's time for them to begin giving their attention to how what they want would feel, instead.
+
+---
+
+it may be the case that they are incapable of giving their attention to what they want, though -- which sorta means they're doing "creation by default" -- which essentially of means they will keep getting more and more of what they're giving their attention to, until it becomes manifest.
+
+I don't really mind actually the change from how I originally anticipated things to be. I think it's going to be ok. it's actually pretty exciting for me to realise that this really is a complete mental revolution taking place. it's going to be really interesting to see where all of this goes. the girls are really the ones pushing this thing forward, and it's gonna create, I'm sure something very -- difficult for us to properly imagine right now. it's going to be completely unlike any of our expectations -- and that's probably because I don't really see this having so much action or doing as we would traditionally think of creation. it feels to me like the platform we're going to build on is mental/non-physical. I'm really struggling to try and translate the idea into words, but it's similar to the opposite of the perception of physical limitations.
+
+---
+
+as a final note, I want to mention that it appears that it's beginning to take form of reality the cultures idea and the re-realisation of the shaman. so, as a thought experiment, I was thinking about how those outside of the culture, would be (assuming the realisation of the san junipero idea) injecting more and more energy into the culture with each person that makes their transition into body of one of the kids in the culture. so then, I thought, what would be the symbiosis? well, what if in the future, as each of the kids (this is the re-realised shaman part) reaches 5d, they will no longer be able to be perceived through any more, so what if, after some time, they did like I'll be doing -- and instead of living for a tremendous time, they found a person out there that they fancied with quite extensive sexual experience and did the same thing, of releasing their consciousness after the encounter.
+
+that would be kind of weird (and I love trying to think of these most ridiculous possible situations) because, that would sort of be similar to how you could think of a substrate. so, the substrate desires to have most nutrients available for the culture -- so you could see how maybe the goal then, in that case, would be for people to get as much and varied experience as possible to be the most eligible candidate for the next 5d specimen. I don't really know for sure yet all of the mechanics of it, but if it's a 5d man with a woman, it should work out that he would receive enough energy through her, that she would probably also get 5d and she would probably be pretty influential on other dudes perception from thn on, as well.
+
+we'll have to wait and see how those mechanics go, but I'm sure that nosebook will keep it all a secret.. lol
+
+I just really like these thought experiments to try and find a symbiosis.. it's a funny idea because it makes all of these super "I'm never gonna change" dudes, ok -- because they are just the nutrients for the future 5d receptors :)
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
