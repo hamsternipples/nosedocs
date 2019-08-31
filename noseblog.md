@@ -9044,6 +9044,22 @@ we'll have to wait and see how those mechanics go, but I'm sure that nosebook wi
 
 I just really like these thought experiments to try and find a symbiosis.. it's a funny idea because it makes all of these super "I'm never gonna change" dudes, ok -- because they are just the nutrients for the future 5d receptors :)
 
+### 2019-08-31 16:35 - consequences?
+
+wow, I got totally sidetracked with the [corrupt demiurge](the-corrupt-demiurge.md) thing, cause I wanted to write about this and completely forgot about it. anyway, as a followup, to that, in there I gave a "what-if" scenario with them putting an idea of there being a time split. lol, the reactions... I can't believe how good these guys are at creating their own realities :) I wonder if they were attempting to trick me or if they wanted me to to begin to focus on improvements?
+
+last night I was watching stars and one of the reactions that seemed to be responding to my previous entry where I claimed that we were going to create the wave of the future... the reaction was something like I'm *forcing* them to have to yield... lol pretty funny, how they think I'm forcing *them*... anyway, I was reminded of the idea that they love the penal system as a method of enforcement, and the penal system is founded on the idea that you have consequences for unsolicited actions, the idea being that if someone does something to you that you do not want, then there is a consequence -- which makes justice. the judge then determines if the action wast just by allowing each side to justify their side.
+
+the irony is notable, considering that they believe that I am forcing them. they must believe that they their actions are pretty justified.
+
+so I thought about it and I don't disagree. one may be able to argue that I am the one being exploited in all of this, but I actually thing it's quite the other way: in a lot of ways, it turns out that they are the perfect scenario in order to achieve power levels probably never before seen in a human before. I think I am, at this point -- cause I wouldn't have said this a few months ago, exploiting them. I will say that much is true, but I don't know if that counts as forcing. maybe they think that exploiting someone is forcing them to a lower quality of life or to feel worse or something.. what about mutual exploitation?
+
+oh, I think I just figured it out. I think they feel like when they exploit someone, they gain power over them. they might even believe that the exploited person is nothing without their exploitation, but this is probably not true in my case. I think they might perceive the "forcing" thing because they thought they had power over me because they were exploiting me, but it turns out that exploiting me *gains* me power, not takes it away.
+
+which means that if their exploitation is gaining me power, then they're forced to _____?
+
+I don't get it.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
