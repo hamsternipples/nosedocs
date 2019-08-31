@@ -9060,6 +9060,8 @@ which means that if their exploitation is gaining me power, then they're forced 
 
 I don't get it.
 
+I would suggest that that they believe they are doing unsolicited things and because they believe in the penal system they have created, they believe in consequences, too. wait, lol the reaction just made me think that they don't believe in consequences because they are the ones that make the laws. well, I dunno man. "live by the sword and die by the sword", I guess.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
