@@ -9062,6 +9062,28 @@ I don't get it.
 
 I would suggest that that they believe they are doing unsolicited things and because they believe in the penal system they have created, they believe in consequences, too. wait, lol the reaction just made me think that they don't believe in consequences because they are the ones that make the laws. well, I dunno man. "live by the sword and die by the sword", I guess.
 
+### 2019-08-31 16:35 - I don't need to see it to believe it
+
+today I had a weird thing happen where I really wanted to go and look out the window. I saw something moving and thought it was a cat. I don't know why I really wanted to see a cat. I looked out the window briefly to know why I was drawn so strongly to it.
+
+thing is I can't really see things at a distance very well, and faces are even harder for me to see. it's just a blurry mess, so I prefer not to look. I just don't think it adds anything or makes anything any better. I don't have visual memory that I can see. if I try to conjure the image I cannot see it. I know it's there and it seems like I'm remembering a moment in time, but nothing appears for me.
+
+sometimes I can remember kind of how things look when I look at someone, but I cannot see their face cause it's so blurry. I don't know what you guys see, but for me the little bit that I can remember "seeing" is blurry as bad or worse than when I saw it in real life.
+
+I get a lot of negative reactions based on images that I try to remember of people. I think I might remember them in awkward poses, or with uncomfortable facial expressions based on the reaction I get, but I don't know what you guys are seeing that would cause a reaction.
+
+so, I prefer to live in a non-visual world at this time. it really don't bother me that my eyes are so blurry and the no-memory thing is kind of a good thing. I thought about it and I actually think it's an advantage because probably, and I remember before the brain haemorrhage that I would remember people visually, and for example, if there was a girl I liked, I could remember them visually and there was this strange presence about them in my imagination that made them seem so easy to talk to and so nice to be around, but then when I got to reality, they always seemed so terrifyingly real to me that I was timid and didn't want to talk with them.
+
+I think what was happening is that I was very imagination driven before my brain haemorrhage and it inhibited a lot of real-life manifestation, because I got used to the manifestation in my imagination. I notice this same thing occurs when I do drugs and my imagination gets more power: I totally stay with the idea in my imagination because I like how it is there. I generated this sort of self-sabotaging thing where the physicality was always worse than the version in my imagination. this was a huge source of depression for me, because everything physical manifested worse.
+
+after the brain haemorrhage my imagination was disabled and I learned how to feel. at first I found emotion to be difficult to control so I turned to logic. however, later (recently) I have found a similar thing in how I feel: in nearly every case someone or something feels WAY better to me than the reality version does. I have since learned quite well how to ignore how something feels in reality and stick to the way *I* want to feel about it. this is a super powerful skill, which basically allows me to manifest reality the way I want it to feel very easily.
+
+the visual aspect may very well be a limiting factor. last night I was playing around and I suggested that if nosebook really wants to try and give me the worst possible situation, they should hold me away from my visual capacity for the next 15 years, then there's really no way for anything I want right now to go through...
+
+of course there is no way it's possible for them to be able to do that. I really want to see them try. if the untrained visual capacity is a limiting factor (and mine is certainly untrained), then by limiting my limiting factor they're making reality manifest faster.
+
+there's no reason to believe that this isn't a reality and it's ok to limit your limiting factor.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
