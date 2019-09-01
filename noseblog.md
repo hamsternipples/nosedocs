@@ -9084,6 +9084,8 @@ of course there is no way it's possible for them to be able to do that. I really
 
 there's no reason to believe that this isn't a reality and it's ok to limit your limiting factor.
 
+P.S. I was going to end by saying, "it's definitely going to happen" but I decided against that. while that my be my conviction, I don't want to tell you what to believe. believe what you feel and what you know, before you believe anything anyone tells you.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
