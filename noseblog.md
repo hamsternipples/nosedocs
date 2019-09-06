@@ -9112,7 +9112,7 @@ I assure you that nothing that anyone wants is down that road. up until now, I'v
 
 mr. happy pants and the landscape architect are the same guy, but with about 35 more years of justifications. the landscape architect has been doing doing so well because things have been so easy for him and he hasn't had to focus. will his circumstances force him to break out the badness?
 
-### 2019-09-06 15:48 - ...
+### 2019-09-06 15:48 - if there's going to be a timeline split..
 
 I woke up this afternoon with a dream where there was an AI programmed (presumably by nosebook) to learn from and emulate their behaviour[^1]. it was funny though because something went wrong and the AI turned on nosebook (something I would imagine that would happen after being trained in a dog eat dog world). one of the circumstances that happened was the AI had someone put up a sign that said something like, "men suck and women are the best" -- at which time the majority of nosebook freaked out. I didn't seem at all concerned because it was clear to me that the AI was just pulling a nosebook stunt where they put something really shocking out there to get people's reactions to try and figure out where they can manipulate easier (remember the flat earth thing?). it was funny becasuse the majority of nosebook was freaking out about this and they were falling victim to their own techniques (ever notice how real persuasive sales people tend to also fall victim to other persuasive sales people?).
 
@@ -9156,6 +9156,8 @@ however, I know what jimmy is talking about when he says ego, and all of the neg
 no one would be trapped in my body or any of the gnomitos either. you ride along for as long as it interests you. if you want to move on, you release your consciousness from it and start again. instead of entrapment, I think it would be quite the opposite: it would take on a similar mindset to that of the military, in that because you now perceive the larger entity as a part of yourself, you don't want to separate from it. it would be a severe reduction in power, so instead, because it's a more powerful experience to continue on as a part of the group than to try and go at it by yourself, the entity continues to gain strength infinitely.
 
 the only thing we need to make all of this work is the ability transfer our consciousness into another body.
+
+it's quite possible that not everyone will want this reality, so if there's going to be a timeline split, it's most likely to happen when I make my transition. who knows :)
 
 [1]: presumably this was because they couldn't micromanage everything theirselves and so had to they had to train an AI to emulate their behaviour. there's no real logical way anyone could define or understand nosebook's choices, so the best way to do it would be to train a machine to identify and take action on things that nosebook identifies and takes action on.
 
