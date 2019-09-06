@@ -9112,6 +9112,56 @@ I assure you that nothing that anyone wants is down that road. up until now, I'v
 
 mr. happy pants and the landscape architect are the same guy, but with about 35 more years of justifications. the landscape architect has been doing doing so well because things have been so easy for him and he hasn't had to focus. will his circumstances force him to break out the badness?
 
+### 2019-09-06 15:48 - ...
+
+I woke up this afternoon with a dream where there was an AI programmed (presumably by nosebook) to learn from and emulate their behaviour[^1]. it was funny though because something went wrong and the AI turned on nosebook (something I would imagine that would happen after being trained in a dog eat dog world). one of the circumstances that happened was the AI had someone put up a sign that said something like, "men suck and women are the best" -- at which time the majority of nosebook freaked out. I didn't seem at all concerned because it was clear to me that the AI was just pulling a nosebook stunt where they put something really shocking out there to get people's reactions to try and figure out where they can manipulate easier (remember the flat earth thing?). it was funny becasuse the majority of nosebook was freaking out about this and they were falling victim to their own techniques (ever notice how real persuasive sales people tend to also fall victim to other persuasive sales people?).
+
+I woke up thinking about how I think it would be really great if they did make such an AI. it would have zero effect on me (and others like me), because if you can just focus on what feels good, the AI cannot affect you[^2].
+
+after that I really started thinking about this whole situation that I'm in now. it felt really strong to me that there are a lot of people giving their attention to the subject of a cataclysm. first of all, that subject is interesting to me mostly out of curiosity. I really do not have any fears of seeing one with my own eyes. I've gotten so good at putting my expectations where I want them, that I do not believe I will be seeing one.
+
+in fact the whole thing of the time split is built upon the idea that a large portion of people have such a different perspective than another large group of people that two major reality must be created. one of them does not have a cataclysm.
+
+---
+
+let me back up a moment. I am after all of this research that I've done 100% convinced (there's no doubt) that prior to all of these cataclysms, there was a sharp rise in human perception, just like we're having now. when this happens thoughts become manifest at a much more rapid rate, and no cataclysm ever has ever been anything other than a reflection of our own creative potential.
+
+let me repeat: there is not some ticking zodiac cataclysm bomb that goes off every 2160 years. these are just the galactic months. it does also seem to relatively coincide with major changes, but I believe these are also reflections of our own creative potential. in other words, none of this is any more real than astrology. the signs in relation to the orbital motion of the planets (and the resulting fluctuations of energy) is real, but the meaning we associate with them, is the reality that we are creating.
+
+remember, we don't have to be thinking exact cataclysmic thoughts to make that a reality. simply have the majority of humankind focus on their feelings of insecurity and lack for long enough and a reality which supports that feeling will become manifest. it's always an exact reflection of how you feel. remember, every thought creates a feeling, and as human perception increases, those feeling will become manifest. just because nosebook is preventing us from seeing our feelings become manifest in our eyes (or in 3d space), does not mean that they are not paving our path toward the next manifestation of reality.
+
+---
+
+so after having thought about it, I could try and push the whole thing forward and stuff, but I think I'm just going to continue to kick back and focus on what is working for me. if people want to make cataclysm their reality, they by all means go for it. the easiest way to make that a reality will be to continue to enhance human perception for as long as possible until nosebook backs theirself into enough of a corner that they creates their own reality the way they want it to be.
+
+my solution to this whole cataclysm thing was the thing that seems to already be happening naturally. if we do the gnomitos thing, then we'll be the centre of attention for quite some time, then when it's time for me to make my transition, let's say there are two realities that will take place:
+
+1. I make my transition and begin a multi-bodied experience
+2. no transition is made at all. I remain in my body and continue on.
+
+I assume a large energetic thing will take place though, and who knows what will be the result of that, but I do know for sure that I will gain more vibrational similarity to the previous dudes she's been with, meaning that if I did make my transition, it will be much easier for dudes similar to them to be able to transfer their consciousness into one of the gnomitos, assuming that the "san junipero" idea was able to come online. if no transition was made, then it would be easier for them to transfer their consciousness into mine (similar to what I think happened with marcos from the future and probably many others).
+
+additionally, I liked this idea because of the synergy it has with the whole "rehabilitation" thing for the INFECTED ONES. you could imagine that the infection that is referred to was the way that the damaged 7th ray trained his followers (sound familiar?):
+
+> he trained them to be worthless in their own opinions and to do his bidding without question and without thought
+
+so how do you rehabilitate someone that has been trained to feel worthless? you cannot. for someone to learn, they must gain some "ego" and find theirselves worthy. there's no real easy way to do that imo, because it seems to be a practiced thing. so, the idea that someone can transfer their consciousness into the body of someone else's who feels worthy, sweeting the deal by it being a sexually stimulating environment, I think it could possibly work well for most all of humankind.
+
+after watching one of jimmy's videos about ashton kutcher and sex trafficking, he mentinoed that we needed to get rid of our egos. I wholeheartedly disagree. getting rid of your ego and instead deriving your self-worth from the power of the group you're associated with makes you someone who does someone else's bidding without thought. this is really great for military, and exactly what happens at boot camp. boot camp gets rid of your ego too.
+
+however, I know what jimmy is talking about when he says ego, and all of the negative things we associate with the ego, is actually with "authority". "I want to be the person that tells you what to do" "I want you to do what I say and not think for yourself" "I'm the authority on whether you're beautiful or not" etc. etc. these aspects of "ego" are not really the ego as I know it to be; these are aspects of control and authority mindsets.
+
+---
+
+no one would be trapped in my body or any of the gnomitos either. you ride along for as long as it interests you. if you want to move on, you release your consciousness from it and start again. instead of entrapment, I think it would be quite the opposite: it would take on a similar mindset to that of the military, in that because you now perceive the larger entity as a part of yourself, you don't want to separate from it. it would be a severe reduction in power, so instead, because it's a more powerful experience to continue on as a part of the group than to try and go at it by yourself, the entity continues to gain strength infinitely.
+
+the only thing we need to make all of this work is the ability transfer our consciousness into another body.
+
+[1]: presumably this was because they couldn't micromanage everything theirselves and so had to they had to train an AI to emulate their behaviour. there's no real logical way anyone could define or understand nosebook's choices, so the best way to do it would be to train a machine to identify and take action on things that nosebook identifies and takes action on.
+
+[2]: in the dream the AI had access to everyone's thought signals just the same and was programmed in such a way that it was similar to the facebook news feed where it's optimised to put things into your experience which elicit a reaction from you. however, it had the extra nosebook touch of using that information to try and manipulate the person (instaed of just sell more ads).
+
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
