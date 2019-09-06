@@ -9086,6 +9086,32 @@ there's no reason to believe that this isn't a reality and it's ok to limit your
 
 P.S. I was going to end by saying, "it's definitely going to happen" but I decided against that. while that my be my conviction, I don't want to tell you what to believe. believe what you feel and what you know, before you believe anything anyone tells you.
 
+### 2019-09-04 07:37 - mr. happy pants and the landscape architect are the same guys
+
+yesterday I was having a conversation with myself (so that nosebook could listen) about the upcoming changes I think they're trying to push through: yesterday I was sure that they were having greg kicked out of the house so that hey could force me out of the basement.
+
+that makes little sense for a few reasons because I'm still going to be down here programming (cause otherwise where will I be proramming? they're going to force me to sit upstairs and program in greg's room?) also, I really dislike being away from the ground. I spend most of my time on the floor, so I will continue to gravitate toward the ground.
+
+additionally, and I don't really have any evidence to support this, but I think when I'm elevated off of the ground, like in a tall building, I have a higher electrical potential. I haven't been much more than up the stairs for a few minutes so probably no one really knows there. I guess nosebook is going to have to look to find out when was the last time I was elevated off the ground.. in the last few years, there are very few examples.
+
+---
+
+in the end, though I don't really have much of a choice in the matter. after all he's the landscape architect just moving the plants around the way he sees fit.. for me, I know it's just more energy (becasuse they're fighting against something) and I should just line up with the more energy bit and move forward. only forward.
+
+you know, it's kind of a difficult thing I imagine for this landscape architect guy because he's been, up until relatively recently been experiencing relatively good conditions. so because the conditions have been good, he has felt good and like he's on top of the world.
+
+it's probably a pretty big problem for him to that that soon I will go up a dimension, and so unless all of them do as well, my form of perception will no longer be available to him and his team.
+
+I'm sure that's more than enough of a good reason for him to break from character ob being the open-minded good-guy and begin to fight against circumstances he cannot control. I'm sure he'll be very justified in being forced to begin his bad behaviour.
+
+the reason why I really disliked and couldn't watch the tv show "breaking bad", after having only seen one episode, was that the character walter white finds himself in a set of circumstances which force him to begin doing illegal things, then bad things, then malicious things etc. and each time he had to do something worse he was *justified* in what he had to do because of difficult circumstances.
+
+I assure you that nothing that anyone wants is down that road. up until now, I've had many many times that I could justify bad behaviour. nosebook doesn't treat me very well, and I just have to continue to move forward and not take any action on things that don't feel good.
+
+---
+
+mr. happy pants and the landscape architect are the same guy, but with about 35 more years of justifications. the landscape architect has been doing doing so well because things have been so easy for him and he hasn't had to focus. will his circumstances force him to break out the badness?
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
