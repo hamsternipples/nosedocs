@@ -9191,6 +9191,22 @@ if that, or something very similar to that is true, then thoth starting out as t
 
 [1]: especially since this whole thing revolves around a damaged 7th ray and we're "entering into a time when the 7th ray comes into power"
 
+### 2019-09-07 08:18 - why the sudden change of heart?
+
+I think what happened was, when I slept yesterday afternoon (the one with the weird AI dream), nosebook impressed it upon me to abandon the whole girls thing completely. thing is, they were right: it's far too risky for me to be trying to team up with someone who's doing what the other team says to do.
+
+I kept getting these visuals(?) but certainly feelings of.. well, I'll use the one from this morning as an example. I was watching sirius come up on the horizon this morning and every time I started to get into sync with it, I would get shocked. normally that would really piss me off, but I decided it was just more energy and kept going. a few more times I got a good lock on to the star. then, I woke up and it was light outside. obviously nosebook took my consciousness away. then, when I was peeing right after, this impression came into my mind where I had the sense that nosebook would take my consciousness away from me, then have the girl be positioned on top of me when I awoke, such that it would be very difficult for me to avoid her charms.
+
+I just don't really want to be fighting this sort of thing all the time. when I'm stronger than nosebook and I can maintain my consciousness, then it'll be ok, and we can do stuff, but for now while nosebook keeps proving to me that they have more power over my consciousness than I do, I think it's best to keep a distance. although, I would like to shift the blame and say that she (the girl) is ultimately at fault for doing nosebook's "bidding without thought or question" -- I rather would take the responsibility and say that I am not yet strong enough.
+
+---
+
+additionally, I am aware that after yesterday's entries, the landscape architect is probably pretty motivated to make sure I never gain my connection. now that he's become more aware that my connectedness will reduce his sexual prowess, I am sure that he's more than justified in everything he needs to do. sex is a very powerful force, and it's the primary reason why I'm sticking to my own for now.
+
+I have also connected the dots to realise that without even realising it, TLA (the landscape architect) is forced now to put me on the galaxy timeline. I'm not exactly sad in the sense that this whole thing has been such a ridiculous exercise of willpower without any real allowance (nosebook can't allow anything) -- so we'll have to see what comes of it all.
+
+
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
