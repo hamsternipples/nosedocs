@@ -9163,6 +9163,33 @@ it's quite possible that not everyone will want this reality, so if there's goin
 
 [2]: in the dream the AI had access to everyone's thought signals just the same and was programmed in such a way that it was similar to the facebook news feed where it's optimised to put things into your experience which elicit a reaction from you. however, it had the extra nosebook touch of using that information to try and manipulate the person (instaed of just sell more ads).
 
+### 2019-09-6 17:33 - I consider myself to be a part of the INFECTED ONES, too
+
+if you take my behaviour and you compare it to nosebook's there isn't a whole lot of difference. in fact, I find more similarities to them than I do to other people.
+
+in this regard, I consider myself to be an INFECTED ONE. the difference is, I have had a lot of different circumstances in my life which have kind of steered me away from some behavioural responses that I now consider to be "bad ideas."
+
+not everyone has has the advantage that I had when I was younger to be in an environment that made it conducive to foster my mental and spiritual development. we unfortunately live in a world where that is not usually the setting people are in. and, for others, they may have an easy environment, but it's the difficulties and the resulting decisions which actually make the person stronger.
+
+I had a very fast-paced life which didn't allow me to get into trouble early on, then later going into adulthood with that lack of real-world experience, I was later forced me to make quite a few adjustments to be able to continue on. I really like going fast, and if I have to sacrifice whatever, to be able to maintain my speed, I do it.
+
+it is true that such a strong focus on more strength, more speed, more power, is potentially a bad thing, but in my experience it is not. my power is not gained externally. rather, it's gained internally -- so, for example, there are lots and lots of thoughts that are recognised in today's society as regular, normal, or justified thoughts, which I have identified as thoughts that slow me way way down. as a result, I don't take part in them. I'd rather go fast and I'd rather feel good than to entertain those thoughts.
+
+---
+
+final thing: one of the strange enigmas of the "A SIRIAN GUIDE TO HUMAN SPIRITUAL DEVELOPMENT AND THE NATURE OF HUMAN REALITY" is that they mention thoth a few times, but he remains strangely unmentioned in most of the rest of the thing. he is a 7th ray as well, so one would expect him to be mentioned at least more than once[^1].
+
+additionally, it is my supposition that thoth was the builder of the pyramids and many other monuments here on earth. he was *clearly* a guy that thought like I do: more strength, more speed, more power, and his teachings are littered with the balance of these two different forces: the square and the circle, yin and yang, etc.
+
+I would have expected him to have made more of an appearance. as a result, I have entertained the idea that thoth is actually the same guy as the original damaged 7th ray who started the whole thing off in the first place. I imagine that like me, he was also an INFECTED ONE, and because of his nature, no one was able ho rehabilitate him. instead, he had to come to the conclusions on his own and find his own way to rethink his damaged form of perception.
+
+I have also entertained the idea that this earth was created as kind of a sandbox for this recovering INFECTED ONE to begin to make his own choices. besides that, I am certain that he climbed to the very height of manifest physical experience and that's where he rethought a lot of his ways. it wasn't until he had attained such absolute power and strength that he changed tis focus to be more about balance between the physical and the conceptual.
+
+I don't know if it's true -- I would be referring to his consciousness, over the course of many lifetimes (including when he was named thoth of egypt) -- but it seems to make sense in my mind.
+
+if that, or something very similar to that is true, then thoth starting out as the damaged 7th ray, he became the template here on earth for which we can repurpose this "damaged 7th ray" form of perception to become quite literally the hottest new emergence this universe has seen up until this time.
+
+[1]: especially since this whole thing revolves around a damaged 7th ray and we're "entering into a time when the 7th ray comes into power"
 
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
