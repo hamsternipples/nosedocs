@@ -9247,9 +9247,9 @@ the reason why I said that it was kind of like an explosion is because if the re
 
 ---
 
-when I was younger, I found out that I had incredible power over my own sexual desire. I began masturbating very late in life (maybe 17+ years. it was after the hospital), and I found out that I could do it very quickly too, like say 20-30 seconds, and other times I could lay there and without even touching myself, I could make myself ejaculate. it obviously took considerably longer, but I could do it.
+when I was younger, I found out that I had incredible power over my own sexual desire. I began masturbating very late in life (maybe 17+ years. it was after the hospital), and I found out that I could go from flacid to complete very quickly too, like say 10-30 seconds, and other times I could lay there and without even touching myself, I could make myself ejaculate. I can't remember all the details, but it obviously took considerably longer (like at least a half hour) and was so much effort I determined I would not try that the same exact way, but it did teach me considerably about the value of focus. I found desire continues to build while I'm focused, meaning that desire (and everything really) continues to build while you have your attention on it.
 
-then, one day I noticed that when I would go a record speed, I barely felt any power at all, and other time I was trying the other way when I accidentally touched myself, and I shot myself in the face. the power had built up so strong it was accidentally activated with the tiniest amount of stimulation. thia got me thinking a lot about this buildup time (and subsequently about desire).
+one day I noticed that when I would go a record speed, I barely felt any power at all, and other time I was trying the other way when I accidentally touched myself, and I shot myself in the face. the power had built up so strong it was accidentally activated with the tiniest amount of stimulation. thia got me thinking a lot about this buildup time (and subsequently about desire).
 
 ---
 
