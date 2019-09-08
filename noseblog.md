@@ -9231,6 +9231,46 @@ another time splitting event may very well occur again, and this time nosebook w
 
 [2]: think about how impossible it would be for nosebook if *I* didn't ever sleep, was always there in my bodies' dream states and I could also control other bodies at the same time. we (I) would be a 24/7 persistent consciousness, thereby only allowing the things that were a part of my conscious perception to become a part of my reality. huge disaster for them! they would have to try and figure out how to do that theirselves if they really wanted any sort of security
 
+### 2019-09-08 09:18 - reversal on quality and quantity
+
+I gave quite a bit of thought to my idea on quality and quantity. I realise it can be seen from both angles, so it doesn't necessarily have to be one or the other.
+
+when I said "quantity" -- I was meaning from my perspective.. so, when I was with raquel, I invested a lot of mental time into thinking about her and trying to figure out different ways about hew wonderful she is. obviously, it didn't work out so well, because she could never believe me. she had her mind made up about herself on some subjects, and even if I could see her differently, she wasn't able to believe it. so, from that perspective there is a whole lot more quantity, I just simply won't be able to invest nearly as much mental time into each.
+
+I think that's actually a good thing though, because it's really great to have soceone around you that can see something about yourself that you don't yet believe yourself, and it's a whole lot easier to sync up with their perspective and believe it for yourself, but the real breakthrough comes when you're able to see it and believe it for yourself, without anyone else to facilitate that (or even if there is some sort of opposition to you becoming self empowered). as a result, I think it's fine that there is in fact more qantity then because then they will have a greater chance of achieving it for theirselves, instead of relying on my belief to get there.
+
+---
+
+so, this really means that I saw the whole quality and quantity thing completely backwards (actually, like I said it can be seen from both ways), because also with ... well, let's take a standard relationship again...
+
+the reason why I said that it was kind of like an explosion is because if the resources get realised too quickly, then they lose their impact. imagine if you had the ability to instantly manifest every single thing that you wanted. you would get bored so quickly, because there would be no time that occurs between desire and realisation of that desire, so the manifestation would have almost no power at all. desire is a force that continues to grow no matter what, and there's no way to stop it. you can resist it, but eventually its force will become so great that it'll overtake your resistance to it. however, if that force is never given a chance to build up, ... another example.
+
+---
+
+when I was younger, I found out that I had incredible power over my own sexual desire. I began masturbating very late in life (maybe 17+ years. it was after the hospital), and I found out that I could do it very quickly too, like say 20-30 seconds, and other times I could lay there and without even touching myself, I could make myself ejaculate. it obviously took considerably longer, but I could do it.
+
+then, one day I noticed that when I would go a record speed, I barely felt any power at all, and other time I was trying the other way when I accidentally touched myself, and I shot myself in the face. the power had built up so strong it was accidentally activated with the tiniest amount of stimulation. thia got me thinking a lot about this buildup time (and subsequently about desire).
+
+---
+
+so what I think happens in a lot of single relationships is that desire is strong, but it's never given a chance to build up. this ties into the conclusions of the book "cupid's poisoned arrow" where the author talks about how after orgasm, there was a lowering of energy and a disinterest that occurred afterward.
+
+my personal experience with raquel would be well, from my perspective, the opposite. from her's probably pretty close to what she described. I found myself more energised and more invested in the well-being of raquel than ever. I felt so much more alive and I could almost never sleep afterward because my mind was going so fast.
+
+what I think happens is, orgasm is a very energetic time where both parties both give and receive energy, and it *should* be rejuvenating to both, but if one side has a lot of resistance, no amount of energy expended will make a difference. I always get the mental image of someone getting shot with a water pistol: the water just bounces right off of them and makes a big mess. this is what I think the author of cupid's poisoned arrow was experiencing.
+
+the solution to that is to spend a little more time allowing the desire to build. the author recommends "karetza(sp?)" as a solution which is a non-sexual embrace. I can see how it would work, but it reminds me of eastern religions where they tell you to shun your desire, and therefore your greatest power. instead, the ability to direct and control this energy is, in my opinion, superior.
+
+---
+
+back to where I was... so in a traditional relationship, because the target for your creative energy is always there, then sex occurs much more frequently (at first), and this is similar to having instant manifestation... you get bored because there's no buildup. in contrast, when a person is single, imagine the amount of mental effort is put into building desire beforehand. you get showered and ready, put on your best clothes, admire yourself in the mirror, imagine all of the beautiful people you're going to see on your night out... etc. you expend a whole lot more mental energy in the preparation, that the final payoff is (depending on what you've been focusing on) much greater.
+
+in this sense, I will now redefine a single pair relationship to be traditionally more quantity over quality -- and the loss in quality is the reason why a lot of those traditional relationships stagnate. like I said, I for example found only increased interest and satisfaction in the relationship (and I think the difference here was one of resistance).
+
+---
+
+I don't really know why I wrote it like that. it was a really long winded way of saying that I think that, all of it is what you make of it, and even though I won't have the ability to mentally invest in each of them to the same quantity, the steady buildup of desire is what determines the quality more than anything.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
