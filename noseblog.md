@@ -9271,6 +9271,36 @@ in this sense, I will now redefine a single pair relationship to be traditionall
 
 I don't really know why I wrote it like that. it was a really long winded way of saying that I think that, all of it is what you make of it, and even though I won't have the ability to mentally invest in each of them to the same quantity, the steady buildup of desire is what determines the quality more than anything.
 
+### 2019-09-08 23:00 - how long?
+
+this morning I made a comment seemingly in response to a reaction I had where I said that I said I would go fast, but I don't really know how to go much faster than I am going right now. what I was referring to, was that I will probably be going faster continuing on how I am doing stuff by myself, than I would be if I were doing the homeschool thing or whatever. I simply would be less focused, and I probably wouldn't be doing every single night like I am now, either. so I meant that this way is actually faster.
+
+see, for some reason (I don't know why now... cause it doesn't make any sense) I thought that nosebook realised that since all paths lead to me getting connected, they decided to try and hold me away from that as long as possible by trying to delay it as much as possible.
+
+maybe that's actually just another mind game they're trying to play on me. things are pretty tricky these days trying to figure out what is reality. either way, I'm not going for it either. I'm just going to continue on my path for as long as I need to be there.
+
+you see, originally I decided that the whole homeschooling thing was a good idea because I knew that it's going to be a while. how long? I don't know. one thing I have been pretty good at these last few times is estimating timeframes, and that has been because it was a defined task that I knew more or less the extent of the work involved, so it was easy to guess the length of the task, however this is entirely different altogether. I don't know what are the limits to nosebook's machines, so I don't know the goal positioning, and I don't really have a good way of estimating my velocity either because it's getting faster really quickly. there are really a lot of unknowns for me, just that I know that I'm going as fast as I can right now.
+
+I estimate I need about a year, and the way I make that estimation is the following:
+
+I think I performed this year (aug'18 - aug'19) about 4 times better than I did the previous year (aug'17). I also think that this next year (aug'19-aug'29) I might be able to perform up to 8-16 times better than I did this year (4 times more than this year, for sure). that's a pretty big improvement I'm anticipating; I'm essentially claiming that I'll just about triple my visual capacity over the course of this next year.
+
+is that enough? I think so. I think it'll certainly be enough to where my dream state is no longer useful to them (cause it's so mind blowing). does that mean that I'll be free from their hold on my vision? probably not. they make it sound like they can continue to just keep adding inserts or whatever forever, so will they do that just to spite me? I don't know. what is their "petty asshole" rating?
+
+the way I see it, as my vision continues to improve, there will be less and less people that can actually use it, and less and less that can see through it. so, my marketability as a product will diminish. I don't anticipate that until literally no one can see through my eyes any more and I'm completely useless to them as a product, that they will give up on trying to hold my back -- minus the "petty asshole" possibility. at that point I'm hoping that their intention to make money off of me as a product will transition to trying to make money off of us as content.
+
+---
+
+I mean that's my best guess. I really don't know. it could be longer or it could be shorter, but the thing I've learned through all of this is, that these sorts of things seem like they could be better if they were different, but they're not, so we just have to roll with it and wait for the evolution of desire to take place, and then line up with that. if I could have figured out by now how to make nosebook do things differently, we wouldn't be having this conversation. they're going to do things the way they think they need to do them, and since they're the authorities, that's just the way it is, and I wouldn't expect it to change.
+
+anyway, that doesn't matter at all because it doesn't matter what they're doing. they're giving a whole lot of their attention to the things they don't want, and so even if this takes a bit longer, if we... instead of feeling a sense of powerlessness, understand that it all works out if you only mind your own perception. it will become bigger/stronger as more attention is given to the situation. whether that's wanted or unwanted depends largely on how your logic is processing the moment. I'm 99.9% sure that everything is fine, and on hindsight, we'll be able to see that it turns out it was for the better have let things worked theirselves out a little bit more.
+
+---
+
+so, I anticipate triple the visual capability I have now over the next year. imagine how insane that's gonna be.
+
+I really do think things are just fine.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
