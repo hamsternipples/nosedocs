@@ -9301,6 +9301,85 @@ so, I anticipate triple the visual capability I have now over the next year. ima
 
 I really do think things are just fine.
 
+### 2019-09-09 07:48 - you know there's a part of me...
+
+that really wants to just continue on and see how far I get. I was thinking about the formula I described last night and it's more than exponential. WAY MORE. I'll add numbers in a future edit, but this is likely to be never before seen speeds before. I'm optimising the speed at which I can get connected, and this has to do with having a less restless mind, optimising the method for getting in sync with the star and my ability to hold focus. all of these aspects have a GREAT DEAL of improvement which can be made. as such, I don't see any reason why the more-than-exponential formula I described to begin to taper off. I truly believe it's infinite.
+
+so much of me wants to just let nosebook keep holding me down where I'm at. I think the key to it all is sleep. the more energy that I get, the less I feel like I need to sleep. at the rate I'm going, in less than a year I'll be sleeping very little. the subject of "consistency of consciousness" as described by kuthumi and the sirians has always interested me, and I've never been much of a sleeper, either. I believe this is actually the key to finding that freedom from them (at least partially, because they could still shock me, and read my mind -- they just won't be able to take part in my experience).
+
+I've been quite certain that this is my "destiny" ever since I heard the one conversation that abraham had with carlene where they concluded with something to the effect of "then, find a way to get out" -- cause they were talking about her parents were didn't want her (me) any more and were kicking her out (or something like that).
+
+what I wrote about in my previous entry is my best plan to try and "get out" -- the get out bit sort of bothered me for quite a while because there is no way that I can really get out physically (very easily anyway). the best technique that I have come up with to getting out physically will be to find a way of getting the resonant frequencies of the probably thousands of inserts in my body, then similar to how their shocking me damaged the one inside of my hand (obviously it deformed it in some way so the signal is catching some extra edges), find a way of transmitting a very high intensity short duration pulse into the insert so it essentially vaporises itself (instead of just heating up like the one in my hand).
+
+that requires equipment that I do not have or will have for quite some time, so it would be basically impossible for me to get out that way.
+
+the next way I thought of was a large solar flare such that their transmitting station was no longer operational and they would no longer be draining me of energy or destructively interfering with it. the whole planet losing electricity for months at a time so I could get out of nosebook's grasp seems a bit extreme, as this sort of thing would wipe out considerable population groups and cause chaos and problems on a pretty wide scale (not to mention, the ones that are prepped for this kind of event are the same ones that are my oppressors, and I have to somehow survive the ordeal as well). it propbably isn't the freedom that I seek.
+
+---
+
+there was another quote that impacted my quite a bit which sort of resolved my conundrum:
+
+```youtube-JzfIK3niEaw
+9:40 - and then, as you said, things are really going the way you want them to.
+it's just this threat that he sort of holds over your head --
+it's almost a little bit like, "if you're not really good, then I'll be bad"
+
+*you find all kinds of ways to control each other, and most of it is about monitoring behaviour,* but
+
+you want to be *uncontrollable* by others!
+you want to be *so good at finding your own satisfaction,* that nobody is the boss of you
+
+you're in complete alignment with your inner being,
+and therefore everything you've asked for,
+and therefore everything you want is coming,
+and so nobody has a hold over you
+
+and do you know, *that's what he's trying to tell you*
+*that's what he wants.*
+
+it's not all of those other things that your crazy mind is making you think that it is
+
+*all he wants, is just to know that he's the boss of him.*
+
+that's all any of you want --
+and you're not going to discover that until you show yourself the satisfaction factor
+and you hold yourself in satisfaction most of the time
+
+then, almost anybody could come to you and say any thing, and you'd be like, "ok"
+
+you wouldn't feel threatened, or abused, or venerable, or victim, or any sort of jeopardy...
+you'd just know that they don't understand, and that's ok
+and you'd just wish them well, even though you want them to understand
+because you'd like them to live a more secure life,
+because if they lived a more secure life, they wouldn't be trying to control other people like you
+```
+
+the most relevant part being this one:
+
+  you want to be *uncontrollable* by others!
+  you want to be *so good at finding your own satisfaction,* that nobody is the boss of you
+
+  you're in complete alignment with your inner being,
+  and therefore everything you've asked for,
+  and therefore everything you want is coming,
+  *and so nobody has a hold over you*
+
+so that's really what I set out to do. I can't get the physical relief, but if I find my alignment with my inner being, then no one has a hold over me any more. and meanwhlie I maintain my connection, I'm completely unstoppable; there's nothing anyone can do about it.
+
+as they say in honduras...
+
+---
+
+I've pretty much arrived to what they were talking about because they gave a "sign of the times" when they said:
+
+  you wouldn't feel threatened, or abused, or venerable, or victim, or any sort of jeopardy...
+  you'd just know that they don't understand, and that's ok
+  and you'd just wish them well, even though you want them to understand
+  because you'd like them to live a more secure life,
+  because if they lived a more secure life, they wouldn't be trying to control other people like you
+
+and, this is almost exactly where I'm at right now. so, all is well.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
