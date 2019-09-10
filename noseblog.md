@@ -9418,7 +9418,7 @@ ok there we go, now I want to illustrate all the creation of reality that happen
 
 3. I had determined that it was ok to let the curve sag a little lower and to focus on my ablility to focus more than results, because even if I "lose" a little time now, it'll pay off in the longer term. that is exactly what happened.
 
-4. justification
+4. justification. there was a lot of emphasis the last week or so on the act of justifying behaviour. this event gives people a perfect example (for those that need it) of how I need to justify my drug use.
 
 probably a few more things.. I'll update if I think of them, but those are the main ones.
 
