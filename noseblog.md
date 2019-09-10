@@ -9380,6 +9380,57 @@ I've pretty much arrived to what they were talking about because they gave a "si
 
 and, this is almost exactly where I'm at right now. so, all is well.
 
+### 2019-09-10 14:39 - what I think happened: another example of nosebook creating reality
+
+the last week or so I have been having rising amounts of agitation, such that I've had probably about 3-4 moments where I was extremely angry -- which was sort of a pretty big departure from my stance on letting all those things sort of pass by as unnecessary.
+
+so, why did I decide to take action last night and draw on greg's monitors? I think it was the culmination of things, where I have been having an increasing amount of times where my consciousness has been taken away from me and or them messing with my sleep, and multiple situations where I would claim that the only reason why I could wake up feeling so drained of energy is that because they put new inserts in me.
+
+I didn't really realise it, but this whole thing seems to be more about weed than it has to do with other things. just a few days ago, a sign appeared where I walk to the field saying:
+
+  smoker -- nice!
+  (stuff)
+  microwaves
+
+  (phone number)
+
+I thought to myself, "oh nice! I've been wanting a microwave" -- but then after that, I realised from the reaction that they were trying to get me to spend the $20 that I have on a microwave instead of on weed like I had been planning to do. remember, that with the recent angry outbursts, I decided that it was probably time to go buy weed, and they were trying to prevent that.
+
+they were likely giving their attention to what they don't want: me smoking weed.
+
+next up is the series of feelings that I had last night. when I began watching stars, I remember the feeling was one of hopelessness -- as in, this is literally going to drag on forever. and, that feeling inspired me to focus harder and see if I couldn't make even more rapid improvements on my technique. I "imagined" the difference between an exponential curve, and what I was doing, such that the exponential curve rose rapidly, but my curve sagged below the exponential curve before completely overtaking the exponential curve. this helped me to realise that going a little slower and improving my technique now is more beneficial in the long term. I also find it worth noting that the feeling of things are going to take forever seemed to be coming more from older women, perhaps while they were sleeping.
+
+finally before I begin my conclusion, and because I think it ties in here, I find it also worth noting that yesterday, I was quite aware of the reaction to the "petty asshole" bit, and it seems as if this is a commonly held opinion. later, I had a sequence of thought where I could imagine that perhaps they would be as much of a petty asshole as they could manage, and that would be -- I imagined the worst case: 10-15 years or so -- so that by then all of the girls were in their teenage years or in their 20's by then. I dunno why the visualisaiton sequence seems relevant here; maybe they used it as a dream sequence for sleeping people?
+
+anyway, I discovered a few more new ways to begin syncing up with the star a bit better, but no matter the left or the right eye, my left-side was experiencing substantial discomfort (feels like uneasiness or agitation from my shoulder down or in my legs) with each vision upgrade?[^1] that I got. both of those seem to be related to progress in my vision though. the restlessness or uneasiness in my left side is usually a sign of extra tension or resistance (and this is a recent occurrance, the last one being when I would watch sirius setting back when I first started going to the field a half year ago).
+
+either way, I determined that I wanted to sleep for an hour cause nosebook was certainly going to reset my vision and stuff, so I could get up and try out the new techniques again. they should be easier to accomplish. so I went to sleep for an hour.
+
+when I woke up I was furious because I have a very very strong sense of time utilisation. I now can recognise in hindsight that anger and frustration are anti-productive to watching stars. I probably made zero progress since I woke up. however, before taking action I still went through quite a considerable amount of calming down. many much more disastrous ideas passed through my mind, but finally I felt a bit more at rest when I decided to leave a note on greg's monitors expressing my frustration. it was weird because it felt similar to when I broke the van windows at jori's house. it just felt like the thing to do next and I didn't really question it so much.
+
+---
+
+ok there we go, now I want to illustrate all the creation of reality that happened.
+
+1. this whole event pushed me over the edge to decide that I really wanted to smoke (I had been trying to delay it as much as possible because my programming was doing sorta ok and my star watching was absolutely the most productive I've been, ever -- so I sad no reason to potentially mess that up by smoking). nosebook gave their attention to me smoking and made it a reality
+
+2. I think last night, nosebook may have made an attempt to try and convince people (thinking mostly the women) that my objectives to try and go up a dimension were not feasible or something to that effect. I have also noticed (from the seemingly reactions) that they may have also tried to train people's minds to believe that nosebook is capable of holding my indefinitely... probably related. when people begin to perceive/believe that something is hopeless, reality must match that, so an event will need to occur to match people's beliefs in reality. eg. nosebook convinced a bunch of things were hopeless so things appeared to manifest that way[^2].
+
+3. I had determined that it was ok to let the curve sag a little lower and to focus on my ablility to focus more than results, because even if I "lose" a little time now, it'll pay off in the longer term. that is exactly what happened.
+
+4. justification
+
+probably a few more things.. I'll update if I think of them, but those are the main ones.
+
+lastly, similar to how just before the van window situation, I remember distinctly that I wanted to just call mom and tell her I was going home. I had given up on the spain situation. if I had of done that, it would have likely been an easier transition into my present situation. and so, similar to that, I should have followed my instinct and just decided to buy weed. I knew I was long overdue for a time to rethink my form of perception, and if I had of just followed my instinct, it would have been smoother...
+
+.. or would it have? I have often wondered what would have been the difference in people's perception of me. if I had of just "gave up" back in spain and called mom to go home, what would be the difference in people's perception of me? if I had of just decided one day that I want to smoke weed, what would be the difference in people's perception of me today?
+
+[1]: not sure if these are vision upgrades or not, but I haven noticed sometimes a correlation with them and vision upgrades... it's when my vision comes back from an unfocused state and needs to refocus. sometimes this happens a lot and there are few vision upgrades, and other times it happens not at all, even when I get mode than a few vision upgrades
+
+[2]: come to think of it, the situation feels almost exactly like the van window situation. I think around that time I remember very clearly feeling like things were hopeless (especially from lyia). I also remember yesterday, feeling a reaction from lyia abput how ridiculously long this thing is dragging out. very similar.
+
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
