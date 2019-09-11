@@ -9430,6 +9430,17 @@ lastly, similar to how just before the van window situation, I remember distinct
 
 [2]: come to think of it, the situation feels almost exactly like the van window situation. I think around that time I remember very clearly feeling like things were hopeless (especially from lyia). I also remember yesterday, feeling a reaction from lyia abput how ridiculously long this thing is dragging out. very similar.
 
+### 2019-09-10 21:32 - how would you be (in the future) if you were X
+
+start acting that way today.
+
+---
+
+when I was with marcos, I was in a pretty diminshed state when I arrived so I had to come up with ways to trick myself into a better now.
+
+the way I did that is, as often as I could remember, I would try to figure out how I would be in the future if I were successfully running a big web page. I formed habits out of the perception that I saw as I imagined myself in that successful state. eg. what habits did I have? what time did I wake up? when did I sleep? how did I organise my sleep and eating habits, etc.
+
+then, naturally it became easier to perceive myself with more than just physical habits. I could imagine what kind of personality I would have. it became essentialy a redesign of my personality, to the personality of what I thought that successful person would look like and what qualities they had.
 
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
