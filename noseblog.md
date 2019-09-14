@@ -9436,11 +9436,53 @@ start acting that way today.
 
 ---
 
-when I was with marcos, I was in a pretty diminshed state when I arrived so I had to come up with ways to trick myself into a better now.
+when I was with marcos, I was in a pretty dminshed state when I arrived so I had to come up with ways to trick myself into a better now.
 
 the way I did that is, as often as I could remember, I would try to figure out how I would be in the future if I were successfully running a big web page. I formed habits out of the perception that I saw as I imagined myself in that successful state. eg. what habits did I have? what time did I wake up? when did I sleep? how did I organise my sleep and eating habits, etc.
 
 then, naturally it became easier to perceive myself with more than just physical habits. I could imagine what kind of personality I would have. it became essentialy a redesign of my personality, to the personality of what I thought that successful person would look like and what qualities they had.
+
+### 2019-09-14 13:03 - preempting the catastrophe
+
+when I was stoned, an idea kept flashing through my eyes which I tried to write down but it made little sense, even to me. I gave up and decided I would try again. the idea comes from my own history. mdma for me was a logic reducing drug (it made me nearly all feeling oriented). I did that after a lot of mushrooms which was a consciousness/logic expanding experience. then, after a near cataclysm like circumstance where I essentially didn't have any money to eat, marcos and I joined forces and I went to live with him at his house.
+
+what happened is, during the mushrooms, my consciousness expanded tremendously. then, when I did th mdma, I lost most all of it, so it was like a huge vacancy in my head of complexity/novelty that needed to be filled.
+
+marcos was a really great platform to begin the next phase of my life. this ties into my new perspective of what "unwanted" is. you can see that if you want edible food or fruit, to instead only have a bunch of dirt is "unwanted". however, a seed gets planted and eventually a tree or plant grows which converts this unwanted dirt into something wanted.
+
+you could also think of a placenta around a baby as something unwanted. or the casing of a bullet or scaffolding as something unwanted. these are things unwanted in the final incarnation of the thing, but are necessary for development. really, unwanted is only something temporary and can be seen as a kind of "launching pad".
+
+first, let's take a look at what a cataclysm is: a cataclysm is when complexity grows beyond the ability for the underlying structure to support it (whether that's your own mental belief systems or the foundations of society). in every case that I have come across, cataclysm occurs when complexity has risen to new levels where a purging of useless complexity occurs. this is why in almost every case, the person looses almost everything only to realise later that the stuff that was lost wasn't really necessary in the first place. it was extra complication that was slowing things way way down.
+
+so, when I decided to expand my consciousness tremendously right before my impending doom, I essentially avoided the cataclysm entirely. sure I lost a lot of "stuff" but it wasn't valuable anyway. what was really valuable to me was all of the understanding I gained in the process of it all about how these sorts of deceptions work. it was exactly what I needed to be able to pass through the previous 2 years of my life.
+
+---
+
+so, when I talk about marcos, I almost always have a positive perspective of him. the things I learned couldn't be acquired with physical possessions. what really occurred was that he provided a primitive (basic) form of logic to start with as I went from there. his form of logic was enough for me to begin with, and I have since revised and made many improvements on it, as I am certain that I have much more complex things that will fill that space.
+
+thanks marcos.
+
+---
+
+so how does all this fit in? where am I going with this? well, directly I began to see this opportunity to begin to show up where somehow (and I have no idea how atm), there would be the opportunity for many people to begin expanding their consciousness and not really have it detrimentally affect their ability to live and survive.
+
+why do I think that's important? I believe that entire new species are birthed out of an overload of complexity or novelty, and the reason why they're birthed is to be able to process that new level of complexity. in computers, we call these abstractions to try and hide the complexity. dumb abstractions, however, which obfuscate and disguise the way it operates as something new, are not what I'm talking about.
+
+---
+
+the other night when I was perceiving how we would essentially recreate ourselves as we became a new universe unto ourselves (we define ourselves within our own creation), I could see that nosebook could (and should) try to boost some bros through the same timeline. they would look like me, talk like me, mostly act like me, but these are other dudes that have transferred their consciousness into mine. the difference is, instead of fighting nosebook, their interactions will be exactly what nosebook wants to make. instead of gaining the energy necessary to create a new universe the way that I am doing it by letting contrast do the work, they were boosted by nosebook instead to achieve the same capacity (just like how they're essentially shutting down the manifestation of emotion in people's eyes to be able to run their vision at my power level, they would do the same for all aspects).
+
+these boosted bros would create "demiurge" timelines, because they achieved a power level not naturally or by manipulating conditions. the universes they create would be similar to the one we're in now where LOA creates the exact thing to get things back in "balance"[^1].
+
+I perceived this as something I didn't really want. I'm still working on the idea, but it seems to me that I had already begun the intuitive approach to juking the cataclysm by aiming for the gnomitos thing.
+
+the gnomitos thing may really inhibit my logical/productive emphasis on this world as instead of beginning to build complexity with my mind, I'm doing the ultimate in trading speed for acceleration, or rather, expanding my consciousness greatly by letting it exist in more than just one body.
+
+this has interesting implications because in order to counter this, nosebook will have to switch things up if they want to make a demiurge timeline, because the power level will be significantly increased (because we are more than one person), so nosebook would have to instead find a way to boost multiple people through without things going wrong.
+
+it was interesting for me to see that pattern. obviously, there is no change to how things are going. I'm becoming more and more step-by-step as I approach getting connected. it was very evident to me that it has to be similar to the peak of a sine wave as it eases-in to the peak. it won't be sudden or dramatic at all: it'll be the next logical step.
+
+[1]: balance isn't the word I'm looking for, because it's always in balance. to illustrate what I mean, if the consequence of the creation of this universe under supervision is this nosebook-like interface to reality, then LOA creates circumstances and events which bring things back to letting LOA do all of the heavy lifting, anrd back to a "next logical step" reality.
 
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
