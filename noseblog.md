@@ -9484,6 +9484,37 @@ it was interesting for me to see that pattern. obviously, there is no change to 
 
 [1]: balance isn't the word I'm looking for, because it's always in balance. to illustrate what I mean, if the consequence of the creation of this universe under supervision is this nosebook-like interface to reality, then LOA creates circumstances and events which bring things back to letting LOA do all of the heavy lifting, anrd back to a "next logical step" reality.
 
+### 2019-09-14 20:41 - boosted?
+
+one of the reactions I had was to be thinking how completely weird my comments in the previous entry were... well, I suppose it's a slinging competition now where nosebook and I are seeing who can believe the most outrageous stuff now.
+
+I use the word "universe" to mean just what we know a universe is. I could clearly begin to understand the nature of our existence from the perspective of the inner being of the universe (that is the bigger thing that is the frequency of the all of the potential versions of itself). it was clearly this larger part that I have understood to be someono's spirit or inner being. it also seems to apply to "inanimate" objects too such as corporations or families.
+
+the definition of universe could be smaller as well, consider the hypothesis I gave a while back where we were all living in my dream state, and all of this is taking place in a parent "universe" where my body resides under nosebook control, and all of this is just an elaborate dream state with a lot of restrictions on it. if I were to be able to go up a dimension, they would much less insight into what is happening in my dream state (from my perspective) and would no longer have such an easy time limiting it (like when they prevent me from flying in my dream state here).
+
+whether it's the matrix universe or the real universe, it doesn't matter much to me in practicality because I could see that complexity would grow at such a rapid rate, we would create the world we live in (whether reality or virtual reality, it doesn't matter), and finally redefine (recreate) ourselves.
+
+---
+
+so why did I carry on for so long trying to explain nosebook boosting someone through a timeline to create this new universe? I think it's important because it explains quite a few things that I had not understood. for example, I've always wondered why we have such a fascination with worshipping a higher power, and why we're so likely to follow orders from a higher power (perceived or real). we seem to gravitate toward this idea that my well-being depends on the satisfaction of a higher power.
+
+in my perspective, it is imperative that I take things next logical step because any large jumps and I would overshoot the runway for connection with who I really am. if you're being boosted, this is total rubbish. instead, all you need to do is to make sure that nosebook is getting the sex and money they want and they'll keep upping the power levels. no need for emotional control either because they can just neutralise the effects your emotions has on your body. this is important because to keep nosebook satisfied, you won't need to decrease your resistance in any way. decreasing resistance will make you more sensitive and that won't make you a stud. instead, just dampen all sensation so you can last like a champ.
+
+you can see how this creates a whole lot of the psychosis that we have today, where men are expected to to decrease their sensitivity so they can look more manly, totally ignoring all things emotional (because all of that is sissy stuff). it also explains the other strange thing I couldn't figure out: why do people want to pay money to boost their MMR. why do people insist on faking things? I've never understood this concept at all, as it makes no sense to me, unless this "universe" was founded on the idea of appeasing a higher power (nosebook) so that they could boost you to appear much more powerful and capable and with a lot more control than you really are/have.
+
+---
+
+I can see that if I choose to do this universe solo in the sense that it's just me out there, a lone hotshot, blasting through the obstacles as they come to me increasing my power, the universe it will create will be in that frequency. like I mentioned in the previous entry, it now seems even more obvious to me that the desired path forward is to expand my consciousness with the gnomitos project.
+
+there is a final idea I want to add: picses was the era of community and group empowerment and the realisation of the influence of the body or group. this whole nosebook boosting thing fits right into the definition of the era with the group empowerment bit. this era is about self-empowerment and the realisation of the influence of the individual. if you take a step back and look at it, the present form is a kind of hybrid between the two eras. they will have to figure out the next version, and I have no doubt that their next version will combine this era and the one to come together in a way which is truly disgusting.
+
+... people will buy into the new crap long enough for enough desire to be created for something new, and then I'll show up again, and then we'll do it all again. each time hopefully the contrast will become greater and an ever bigger new thing can be created.
+
+---
+
+does it last forever? yep, I'm afraid so, so just get used to the idea that contrast exists and it's the necessary component to all creation. I think that there's a way to make the contrast have less "meaning" to it, but this is a form of perception. for example, a person dying could be perceived as just another colour, rather than a "loss" -- and I believe this perception of "loss" or death/destruction (cause there isn't any) was built into us as a human race to be able to perceive the physical realm in such a way which would attract (and ultimately trap) entites that love and need "expendables" (people, technologgy, ammunition, etc.)
+
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
