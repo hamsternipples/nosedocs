@@ -9512,8 +9512,37 @@ there is a final idea I want to add: picses was the era of community and group e
 
 ---
 
-does it last forever? yep, I'm afraid so, so just get used to the idea that contrast exists and it's the necessary component to all creation. I think that there's a way to make the contrast have less "meaning" to it, but this is a form of perception. for example, a person dying could be perceived as just another colour, rather than a "loss" -- and I believe this perception of "loss" or death/destruction (cause there isn't any) was built into us as a human race to be able to perceive the physical realm in such a way which would attract (and ultimately trap) entites that love and need "expendables" (people, technologgy, ammunition, etc.)
+does it last forever? yep, I'm afraid so, so just get used to the idea that contrast exists and it's the necessary component to all creation. I think that there's a way to make the contrast have less "meaning" to it, but this is a form of perception. for example, a person dying could be perceived as just another colour, rather than a "loss" -- and I believe this perception of "loss" or death/destruction (cause there isn't any) was built into us as a human race to be able to perceive the physical realm in such a way which would attract (and ultimately trap) entities that love and need "expendables" (people, vehicles, technologgy, ammunition, etc.)
 
+### 2019-09-15 09:25 - what about all this fakery?
+
+when I was thinking about all of this, I was requesting to nosebook that they go ahead and try to get people to doubt as much as possible the things I was perceiving. why? because I could see that the opposite of doubt is being sure of oneself.
+
+then, I could see that being sure of oneself was actually the best state of understanding. I classified it in the following way: the two greater systems of understanding is doubt and being sure of oneself. the two minor systems of understanding are belief and disbelief.
+
+---
+
+finally after thinking about that for a bit, it occurred to me that the "damage" that the 7th ray sustained in the transition process was one where he thought that believing his own logic was the same as being sure of himself.
+
+I don't know how groundbreaking this revelation appears to others, but for me this pretty much explains the whole thing. I'll explain further as I go along in the future. this is pretty much the sandy foundation upon which their whole structure is built.
+
+---
+
+I also find it kind of interesting that I could see the very first day that what was happening is that as their illusion gets revealed, it will no longer have such an affect on people and it'll force them to go up a dimension. I wonder if this little bit was the beginning of the avalanche.
+
+another thing that kind of stuck in my head was when terence kept saying that the universe is made up of language. I had been thinking about syntax earlier, and syntax seems to be relational, eg. it's the format with which two things interact. this isn't what terence was talking about though. in another clip I remember him talking about this language where a baby is is a crib and a hummingbird flies into the window and the baby is ecstatic because of how beautiful it is, and then the mom says, "bird, that's a 'bird'" -- and it totally strips the moment of it's beauty and colour as the mother sticks this once unbelievable thing into a mental box and reduces it to a few syllables for the child.
+
+nosebook seems to control everything with words. they know everything in my reality, every thought I think, and the sensation that I feel with a set (combinations) of words. they are constantly reducing my world down to only things they can label with words. if they cannot label it with words, they want to make sure that I do not experience it.
+
+the more I become aware of what is happening in my dreams, the more I realise that my dreams are likely so fantastical that it's difficult to make sense out of them or to try and extract information out of me in them, so nosebook has built up a set of rules to dictate what I can and cannot do in my dreams. absolutely no flying is allowed, no feelings of energy movement either, etc.
+
+I'm pretty sure that I want to become conscious in my dream state, and I'm pretty sure it'll happen soon as well, but I can't help but to notice the similarity to my limited dream state and my everyday experiential world. they feel nearly the same.
+
+so, while it may seem a bit far fetched that we're all living inside of my dream world in a parent universe, this idea really does not seem so far fetched to me now. to further make things quite interesting, the montalk gnosis series mentions something like this[^1], and it seems to be a somewhat popular movie plot device, as well. in fact my whole vision into the future is predicated on this kind of technology existing (san junipero) so it may very well be. that means then, all I have to do is "wake up" or as I was seeing it previously (which is the correct way to see it): get connected to who I *really* am.
+
+if we are in fact living in something like a dream-state matrix-like reality of some sort, then you cannot imagine the amount of contrast that would have produced, and we're going to essentially take all of that and cash it in and create what we want to create from it.
+
+[1]: "This calls into question when the World Dream began. Did it begin with the primordial schism between Logos and Corrupt Demiurge? Did it begin with the failure of Christ’s mission? The answer is that every Fall induces a corresponding World Dream, which nest within each other like dream levels depicted in the film Inception. To awaken from the primordial World Dream, one must first awaken from a series of lesser ones. In theory, awakening could therefore begin with the most recent Falls and proceed backwards."
 
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
