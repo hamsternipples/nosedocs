@@ -9544,6 +9544,40 @@ if we are in fact living in something like a dream-state matrix-like reality of 
 
 [1]: "This calls into question when the World Dream began. Did it begin with the primordial schism between Logos and Corrupt Demiurge? Did it begin with the failure of Christ’s mission? The answer is that every Fall induces a corresponding World Dream, which nest within each other like dream levels depicted in the film Inception. To awaken from the primordial World Dream, one must first awaken from a series of lesser ones. In theory, awakening could therefore begin with the most recent Falls and proceed backwards."
 
+### 2019-09-19 08:40 - retracing last night
+
+the first part of lst night went really well, and I believe I got a few vision improvements and stuff. I felt like I should maybe try going to sleep again for an hour or so, so they could reset my brain and I could start over on the star watching.
+
+it was a bit weird. I set a 1:11 alarm (50m) and a 2:22 alarm (2h). somewhere along the time I woke up before my alarm had gone off. when I woke up I shifted my eyes (they were still closed) and I got quite a strong shock (the strongest I'd had in a long while actually). I figured it had to have been because I was about to see images in my eyes, so I closed my eyes and tried to do a similar feeling that I had right before the shock. I didn't get shocked. instead, my consciousness was taken away.
+
+I woke up to my 2:22 alarm some time later. obviously someone turned off my 1:11 alarm because I never heard it. I went out to go watch stars and at the beginning the vega was really vibrant with a glow around it, but after a few minutes, the glow completely disappeared.
+
+from then on the night got really really cold[^1] and my mind was really difficult to settle down. I felt really disturbed and stuff. by the time the sun started to come up, I was finally beginning to calm down, and it wasn't until later when walking home from the sunrise, that I realised that my perception had completely changed from the night before (a very successful night watching stars) and previous to going to sleep.
+
+now, I seemed convinced that amazon would be able to hold me indefinitely away from going up a dimension. I'm completely unbending on this whole thing, so I figured what we should do is to simply accept this as reality and and move forward from there. if I'm not able to go up a dimension, then that would be good to know now, so that I can plan for it. I had the idea we should definitely modify our plan if that's the case. I would like to do the asexual thing and create computer programs. I think that plan is a perfectly fair one considering the alternative would be to just keep the girls waiting indefinitely, which I think is really uncool.
+
+if we could create things together it would be quite a lot of fun. I personally find sexual energy to feel about the same as creative energy. obviously the girls that only wanted to have sex would eventually go away, but the ones that are left would be the ones that are willing to let their creative expression feel like sexual expression. I think that would be pretty awesome actually.
+
+---
+
+I still have the whole thing where I'm not fully in control of my creative expression just yet, and clearly something happened while I slept which convinced me so dramatically to wake up believing that they would be able to hold me indefinitely.
+
+it just seemed so logically reasonable to believe that. I can imagine that more than half of the stuff they're selling is based off of my form of perception. so, for that to go away, would dramatically affect their operation. it seems that they are perhaps beginning to actually give their attention to what it is that they want -- which is to grow their capability to hold me away from going up a dimension. I don't really have that much of a problem with that, as I've reasoned that it's just more energy. if the whole thing falls through, I don't really mind that much.
+
+in the bigger scheme of things, it looks to me like they want to try and make sure things don't ever get going too fast, cause they won't be able to hold on very easily, which is fine, and I understand that, but the people who want to go fast and the one's who also believe their crap. from my perspective, I look out and I see a bunch of people that are not capable of thinking for theirselves, following their own inspiration, and going after what it is that they want.
+
+amazon want to ensure that things don't ever really get going too fast, but I think it's fine because you can't drive fast if someone is telling you how to drive. in a lot of ways, I have to take my own advice and lead by example, so really when it comes down to it, I can't be worried about what you guys are doing, and I have to only focus on what I want, which is to get connected (which I've determined to be my best bet to try and gain a sense of freedom from their constant manipulation).
+
+remember, they have a lot of money and desire for me to never go up a dimension, so it's at least going to be a while. I think the asexual thing is the best way, right now. reason is, if I go up soon, then it's not that difficult to transition into something more. if I don't, and it takes a while, then at least something productive came of it.
+
+---
+
+besides all of this, I learned quite a bit paying attention to my form of perception before and after I slept. I think I'm going to be a whole lot better from now on maintaining what I want to believe -- which is that I'll eventually get there, and steady progress toward it is the releasing of these sorts of ideas like the one I expressed above to be really none of my business. LOA has all of that worked out, so I just focus on finding a way to feel good no matter the conditions of the moment.
+
+all of us have to get better at feeling good. this is just a bit more of a trial to see if we can move in the direction of wanted even when things are pervceived to be different.
+
+[1]: I had full ski pants, tights, and stuff on that I had last winter when it was snowing, and I was still cold
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
