@@ -9578,6 +9578,20 @@ all of us have to get better at feeling good. this is just a bit more of a trial
 
 [1]: I had full ski pants, tights, and stuff on that I had last winter when it was snowing, and I was still cold
 
+### 2019-09-19 16:47 - I mean as a time range sort of thing...
+
+when I say do the asexual thing I mean that let's say they're going to be able to hold me for only one year, then the asexual thing isn't really necessary, but let's say they can hold me for more than a year, then I'm strongly advocating for it, because why not.
+
+it seems clear to me that they're a bit stuck because they cannot hold a position on the matter very easily. if they say it's not going to happen because their whatever depends on it, then it looks really bad and everyone blames them. if they say they say, it *is* going to happen, they people feel hope and don't despair so much, which is what I think is happening, because even though they are probably saying it's going to happen, likely at the same time, they're ensuring that it doesn't. meaning, the image they are presenting is only what they think (and probably know because they read everyone's thoughts and communicate with us in our dream state to try and figure out the best action to take).
+
+it also seems pretty evident to me that they're working their hardest to ensure that I'm not technically capable in any way. for some reason they don't want me doing anything technical -- which basically implies that they're probably hard at work against the whole asexual thing as well, because what could possibly be worse than me being technically capable? young *girls* being technically capable, too. I think they think that women are meant to be dominated and men are to do all the difficult/important stuff.
+
+am I pushing to try and force them to take a position? I don't think so. I'm ultra bored and and want to be creating things. they'll likely continue on presenting one image and then working against the very image they're trying to present. this is pretty split energy, and it means they won't really go anywhere, so things will just naturally fall apart because they're not moving in any direction.
+
+when I said yesterday that perhaps they're beginning to align with what they want (which is to keep me in a holding pattern), it feels today like they're going back to their split energy again, because I think they're not happy with the reality that's creating. they probably thought I would try and fight against it, but I'm totally fine with them trying to keep me in a holding pattern; it means enormous amounts of energy for me, and I know for sure still that I will eventually get it.
+
+"eventually" might be a while though, which is why was hoping we could start by putting our energy into creative things.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
