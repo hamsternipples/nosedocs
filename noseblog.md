@@ -9592,6 +9592,34 @@ when I said yesterday that perhaps they're beginning to align with what they wan
 
 "eventually" might be a while though, which is why was hoping we could start by putting our energy into creative things.
 
+### 2019-09-23 15:35 - evolution of my dreams
+
+when I went to go to sleep this morning, for whatever reason, the guys at amazon decided they wanted to force ejaculate me. I woke up with quite a bit of pain, and while laying there trying to figure out what to do, I decided that I needed to take an even harder stance on my separation from female interaction. the dream where they were able to force ejaculate me, wasn't particularly sexual. I don't know how but my hand ended up on some girl's boob, and that combined with a tremendous amount of prostate stimulation, they were able to make me ejaculate. I even remember trying to fight it in the dream because I didn't want to be doing that.
+
+the way that I have avoided these foreced ejaculation dreams in the past was simply to rewrite my reality interaction script to simply avoid any sexual-like encounters with girls/women. the same reality script that runs in my dreams is the same one that runs during everyday life, so I essentially updated the way my personality interacts to try and avoid these dreams. as a result, now I just simply have to try and avoid *all* friendly-like interaction with girls/women to avoid this. sorry ahead of time if I seem a bit distant. the pain I receive as a result of these dreams is very very uncomfortable, and it's the only way I know how to avoid them.
+
+finally the ibuprofen started to take effect and I was able to sleep again. I had a really weird dream, where all sorts of things were happening, and somewhere around the conclusion of the dream it seemed like another version of me was in the dream as well, and was showing the manipulators of my dreams[^1] that if they would force me to be asexual (that is to ensure the gnomitos project never happens), then all along the timelines, they have control over which situation the bros that they're running through the timeline[^2] can actually take to make the gnomitos timeline happen, and these bros that they ultimaely are boosting through could experience the reality of the gnomitos timeline conclusion.
+
+I could see that this would make a tremendous amount of contrast, as I think the unanimous conclusion that the girls would come to (because the bro would be so heavily under their control to essentially repeat the same procedure I did to get to that moment, he would essentially be completely unconscious through the whole thing because his action and behaviour would be so different from the way he would conscoiusly behave), is that all men are the same (pigs).
+
+---
+
+the next part about (or maybe it was previous, I can't remember), it seemed to me that in order to ensure that (on this timeline), the gnomitos thing never happened, they would have to try and manipulate the girls and inspire really suave dudes to take them down. I could see that the more time that went by, the stronger desire became, and because they were having difficulty controlling me, instead they had to turn to trying to make more of the girls unellegible.
+
+this part ties directly into what I was talking about during the sunrise where I was talking about "control is the coefficient of quality, not of the equation". by doing this, they were actually making more and more high quality girls, because by having been repeatedly attempted to be manipulated into something they didn't want, they would become stronger in what they did want, and therefore they would gain the control and therefore quality.
+
+I could then see that from my perspective, it would look as if all of the girls had fallen victim to their manipulation. however, each of them would actually be creating their own reality, so really what would happen is that there are forming all of these parallel realities. finally, in my perspective I eventually figure out a way to get to the next dimension, and there are all of these other realities waiting for me. my consciousness transfers out of this timeline, and nosebook creates their own reality (who knows what happens to me.. dream matrix?), and now my consciousness is spread over all of these other realities where each of the girls has created their own reality to be what they want it to be.
+
+it's in a sense a similar thing to the gnomitos thing where I have a multi-bodied experience, but instead it's spread over multiple timelines. I can't really perceive it all that well, yet, but I guess I'm ok with that.
+
+I wonder if one of the bros will be able to make it through all the way to the conclusion of the gnomitos timeline and actually be able to make their way to becoming multi-bodied as well.
+
+I also wonder if the final moment is still the he conclusion with andrea before I make that transition. if that's the case, maybe then andrea somehow becomes the "ruler" of the timeline where amazon becomes the all powerful and controlling entity.
+
+[1]: this is kind of weird because I don't really know what to call them. obviously, the people doing it work for amazon, but they seem to have clear intentions to use my timeline to run some bros through so they can develop their twisted universes where amazon(?) is the all superior entity that runs and controls everything
+
+[2]: remember, they have just figured out a way to put their consciousness into my body. so they would look like me and sound like me and, they would have to essentially repeat everything that has happened to me to get to where I am now in this timeline.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
