@@ -9620,6 +9620,16 @@ I also wonder if the final moment is still the he conclusion with andrea before 
 
 [2]: remember, they have just figured out a way to put their consciousness into my body. so they would look like me and sound like me and, they would have to essentially repeat everything that has happened to me to get to where I am now in this timeline.
 
+### 2019-09-23 16:24 - actually that dream could be the pinnacle of all that is wanted...
+
+from any girl's perspective who wants to create their own reality, the layout offered in the previous entry is exactly what any of them could be wanting. all any of them would need to do is to simply create their own reality in the sense that they identify what they want and move in the direction of it. could imagine hundreds/thousands of different realities where each of them become the only or one in a group of girls that was able to hold out for what they wanted.
+
+it could very well work out -- and woah, this is going to be very mind blowing from my perspective. nothing really changes for me though; I just continue on doing what I'm already doing.
+
+this would allow each of the girls to have their own individual kenny that they can use to create the reality they want to live.
+
+it also creates a new problem for me to solve: once there are multitudes of different timelines with so many different implementations, how to merge them all back into one?  or, why not leave them separate and instead transform our consciousness such that we all occupy multiple bodies? that would make merging and further expansion much easier. it's a fun idea for me to think about
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
