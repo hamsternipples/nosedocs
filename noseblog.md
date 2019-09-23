@@ -9630,6 +9630,24 @@ this would allow each of the girls to have their own individual kenny that they 
 
 it also creates a new problem for me to solve: once there are multitudes of different timelines with so many different implementations, how to merge them all back into one?  or, why not leave them separate and instead transform our consciousness such that we all occupy multiple bodies? that would make merging and further expansion much easier. it's a fun idea for me to think about
 
+### 2019-09-23 16:55 - three major timeline types
+
+right, so the main timeline which everyone subscribes to by default will be the one with amazon achieving world domination. probably in that one I won't make it up to 5d, and they will have managed to keep all of the gnomitos timelines from being able to happen. assuming the conclusion (for me) of that timeline is the encounter with andrea, that will essentially allow for many dudes to become vibrationally resonant with me, and would therefore be more compatible with me vibrationally, so that they could try putting their consciousness into mine and seeing how far they can/want to go on my timeline.
+
+the second set of timelines will be for any of the girls that want to make their own reality. in these timelines, they will find theirself becoming the only one or with a few others (really anything is possible actually), to create the reality they want to live in.
+
+the last ones, will be all of the timelines created by all of the boosted bros.
+
+---
+
+you can see how there is a lot of intermixing here, and every one (cept for the third one), is guaranteed to gain timeline technology in their future, but because they're aleady controlled by someone with timeline technology, amazon would have the ultimate control over it all. so, really only two major types afterall.
+
+there is a fourth possibility too, where I do not make my transition in andrea's timeline and she creates her own reality there too. I guess it's not 3, it's 4.
+
+the one thing I can tell is that it's going to create a lot of divere experiecnes with a lot of intermixing.
+
+and I don't really see it yet, but perhaps the whole gnomitos thing was an echo of the following era.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
