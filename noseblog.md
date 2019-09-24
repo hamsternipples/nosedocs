@@ -9648,6 +9648,28 @@ the one thing I can tell is that it's going to create a lot of divere experiecne
 
 and I don't really see it yet, but perhaps the whole gnomitos thing was an echo of the following era.
 
+### 2019-09-23 19:55 - thoughts on sleep
+
+@[youtube](https://www.youtube.com/watch?v=z30Wkbc8W_M)
+
+greg and mitch have once again summoned my thoughts on some important ideas, nice! :) here is my response to their video:
+
+---
+
+I don't experience much of what you guys talked about. I think I did kind of did more as a kid, but I'm fully capable of maintaining (most) cognitive  function while sleep deprived. it's not actually sleep deprivation, because I seem to not need/want to sleep. contrasting that with what you guys talked about, I have formed my own theory about what is happening:
+
+scientists know that memory is not stored in the brain, so it seems most likely that memory recall is actually the ability to "tune" into the memory. I think we store in the brain certain "keys" or ways to help that tuning device, which is why a song or smell (or other forms of stimulation) can bring back a memory very clearly. these forms of stimulation act on the brain on a conceptual level, and just like how your brain processes emotional pain the same way it processes physical pain the same way, the reverse is used to conjure the memory. so what I'm saying is that we conjure memories emotionally. this seems to go with the assertion that the hippocampus is directly involved with emotions.
+
+memory and emotion seem to be very closely linked. I can identify that almost all strong emotion that I feel is rooted in some form of memory (rather the concept of what that memory means), so it seems that very light emotion (concepts) is actually the mechanism to creating these keys for storing and recalling memory.
+
+it seems to also be linked to emotion in the beauty sense as well. I don't know if you've ever noticed being around someone on coke or mdma (or someone who just had good sex), but they appear more attractive. I think that's because they feel better. you know this is evident to a lesser extent, but when people feel better, they almost always appear more beautiful. waking up after sleep is the easiest way to feel better, and so naturally you will appear more beautiful. (have you noticed someone who wakes up pissed off, they appear 2-3 times more pisser off than normal mid-day pissed off?)
+
+---
+
+so, now here's my theory of why we need sleep: if you can imagine that throughout the day, as you observe things and as you think about things, every time that you do, you have an emotional response to what it is you're observing or thinking. if they produce negative emotion, you're essentially adding more emotional "dissonance" into the frequency of your memory tuner. as the day progresses on, you start to become tired, and when you release your consciousness to sleep, you spend the amount of time between rem cycles not thinking or observing, and so therefore not having any emotional responses to things. you could think of this time before rem as the time that your brain frequency attenuates down to nearly no activity. you go into a rem cycle and that activates your emotional system as you react to your dreams. if you're feeling good enough, you'll wake up, and if you're not, you'll go back for another cycle.
+
+I believe that my  "secret" to maintaining cognitive function even after not sleeping for a while is actually a testament to my capability to finding a way to feel good no matter the conditions. that's it!  that's really all there is to it, I think.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
