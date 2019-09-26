@@ -9694,8 +9694,77 @@ the extra contrast those timelines provide has to be good for something.
 
 [2]: because my consciousness would not be immediately be fully receptive of their frequency, they would have to live out some portion of my life in a dream state. they would essentially have a 20+ year coma where their experience would controlled by amazon (other people could watch along as well) until they were stable in my experience, then they would wake up, or amazon could not attempt to let them learn and grow and get up to speed with me to have a real conscious experience, but instead keep them in the coma forever, even after they got to the "manifestation". it's up to them I suppose. both ways potentially have different implications, but either way, when you become aware of what you don't want, immediately the universe provides a way toward what you do want.
 
+### 2019-09-26 13:32 - further progress into understanding what I was seeing
+
+as I've continued on thinking about what I was seeing with the three (4) different timelines, I've begun to get a clearer view of it all. this is what I anticipate something similar to this will happen[^1]:
+
+based on reactions I've been getting, it sounds to me like they're not going to be able to prevent me from getting connected for a whole lot longer. I think it'll happen within the next 2-3 years or so. during that time I'm going to be continuing to watch stars and stuff and the 4th dimension will continue to expand.
+
+it's *possible* also that I will never make it up, and like I am now, continuing to improve day by day, that in a few years my disconnection may be so imperceptiblee, that even though I'm stuck in 4d for a while, it won't really matter a whole lot. I'm beginning to have complete power over the way I feel and where I direct my energy, so even if I remain in 4d, it's not really that big of a deal.
+
+if I do remain in 4d for the duration of the time, I can see how for some of the younger guys working at amazon, a continually improving 4h dimension is pretty exciting. however, for the more resistant types, it's not so cool. I perceived that they were kind of like symbolic of unnecessary complexity that would kind of die off as the new thing emerged (much like an eggshell, placenta, or scaffolding).
+
+once again, it doesn't matter to me because of the rate at which I'm making improvements, it doesn't really matter. in one year, even if they were to 10x the difficulty and I didn't even have stars, I am certain that my improvement would still be so substantial that it doesn't make a whole lot of difference.
+
+---
+one of the things that has become so apparent to me is how incredibly unstoppable all of this is. it seems logical that the reason why we're in the present situation is because they have refused to allow me go get connected. as you know with LOA, every time you're faced with the reality of something you do not want, what you really do want gets bigger and more powerful. it looks to me like this entire time I've been trying to get connected for so long, that more and more energy is being summoned. then, take into consideration the multitude of different desires that harmonise with what I want. each time I've been faced with the "evolution of desire" it gets bigger and it harmonises with desires from more entities.
+
+if you imagine what your inner being is, consider it as the product of the culmination of everything you've ever experienced. however, before you were you, you were that source energy version of you, which is the culmination of a whole lot of things ... etc.
+
+in the process of wanting to get connected, my desire began to harmonise with a whole lot of other people's as well -- and it just kept getting bigger. you could imagine that my desire to get connected harmonises with quite few desires with other people on this plant. you could imagine -- and I don't know if you believe that human race emerged out of billions of years of natural selection or if some sort of intelligent creation was involved or not -- but you could imagine that their desire is also mixed it as well. what if all of this is hinged around galactic alignment coming up here soon (or other stellar desire[^2])? what if the psilocybin mushrooms have a stake in all of this? what about all of the others? surely, there's a lot of energy focused on my present situation -- and of that I have no doubt.
+
+you can see then that if you were go get connceted to (harmonise with, get into alignment with) to your inner being, then you would be in perfect resonation with everything that all of the culmination of everything you've experienced. however, your inner being has an inner being too, so if you could get into alignment with that too, and so fourth, all the way up, you could imagine that the universe also has an inner being too. the culmination of everything this universe has experienced has lead to a further expansion for it which is desired.
+
+what I'm saying is, I believe that their attempt to keep me disconnected actually made things a whole lot more as my desires had to continue to harmonise with the bigger and bigger amount of energy summoned.
+
+---
+
+why I'm saying all of this is to ensure you all that we are an absolutely brilliant species. we have built in tuning equipment in our bodies and brains. what this means is that everything I've been experiencing is available to everyone.
+
+if you were to get connected to your inner being right now, you would become a very powerful person. however, not 100% of what your inner being has in your manifestation pipeline is in alignment with what the planet desires (for example), but this is no problem because it's just part of the contrast which builds the desire of the planet toward what it really wants.
+
+however, (for example) if you were able to tune to the superset of who you are and tune to what the part of you which is resonant with what you want and what the planet wants, by tuning into the collaboration of your inner being and the planet's inner being, you would become an even more powerful person than someone only connected to their inner being. the reason for it is obvious: the planet has a whole lot more energy invested in what it wants, so what it wants which combines with what you want has much much more energy involved.
+
+I don't really know how far up my tuning goes, but I would guess that a whole lot of what I want, combines perfectly with what the planet and the galaxy wants. it has so much energy invested in this, I consider this to be completely unstoppable.
+
+---
+
+let's get back to what I think will happen now that I've taken the time to illustrate how unstoppable all of this is. whether I go up a dimension soon or not is not relevant. what is relevant is that you can imagine that in some period of time, I'll be pretty connected, and I should be able to maintain that connection pretty well, too.
+
+I had previously hinged the whole girls thing on the prerequisite of getting connected. so, once I'm connected, you could imagine that now everything is a green light. well, the twist in all of this is what I was perceiving with the three (4) timelines.
+
+so let's remember what makes a timeline split again. a timeline split occurs when collectively strong enough desire exists for two conflicting things to become manifest. because they cannot both exist in the same timeline, a split occurs. both sides of the split perceive the reality they have been giving their attention to. there are infinite versions of you, however consciously, you only exist on one timeline (kinda).
+
+so, to make multiple timelines there needs to be a irreconcilable difference in desire. I will continue to work on different technological things as we progress, and instead of just jumping right toward the whole girls thing, I'm going to continue on creating new things. I'm going to do things from an asexual point of view, because I have interest in creating some different technological things like the ablity to use my computer with my mind, etc. these things are important to me, and I think that they're going to be pretty cool thing for people to have.
+
+I'm creating these things primarily with the intention of having some sort of capability to ensure that all of the timelines where the girls create their own reality, we have the technical capability to begin doing things right away. you'll see as time goes on :)
+
+the other main reason why I think the technical aspect is so important is because it appears that amazon feels very threatened by the idea of girls (or even the general public) with technical capabilities. I imagine they're going to fight against it quite a bit. take, for example, the previous month with the neighbour. I think this is an irreconcilable reality for them to live in, so it'll make time splits. I suppose other things could be possible to make time splits, too.
+
+the point is, from my perspective I'm going to be going down the creative/technical path, and any girls who want to make their own reality can make it. consider that I am essentially two aspected (very similar in fact to how a woman is), where my default nature is one way, but I can be convinced (once I'm connected) to also be another way.
+
+---
+
+I really like this way of doing things, because it makes the girls assertive. if they want it, then they can get it. they can create their own reality however they want it to be.
+
+the next thing I really like about it is the whole thing of unexperienced desires: the reason why I found the whole gnomitos thing so attractive is because I could see that if I could have a multi-bodied experience, then many of me could be working on a project and many of me could be interacting with others at the same time, sort of obtaining the best of both worlds. however, with this new plan, I won't have that. instead, my consciousness will be spread over different timelines. it's kind of like the ultimate test. LOA says that once I have desired something, it has be eventually become manifest. so, let's test LOA and see how that reality can become manifest.
+
+additionally, I used to be convinced that your consciousness could not experience more than one timeline at a time. what I am proposing sounds *"impossible"*. I love that! how will this "impossibility" be reconciled? remember, abraham said that if this time/space reality has inspired a desire, it has the wherewithall to deliver it -- right? so, once again let's put LOA to the test and see what happens...
+
+lastly, if I'm going to be going the next 20 years with my perception here remaining here with the amazon bros, that means, I would assume, that at the end when I make my transition, I will become conscious on the other timelines as well. I don't really know how that works out mechanically yet, but if on the other timelines also I were to conclude with andrea, that could be the common factor, uniting my consciousness across timelines? I dunno, it's speculation, but the point is, that I won't be experiencing the whole "fun" part of the whole bit. that would again be another desire that LOA has to find a way of making itself manifest, too. once again, let's put LOA to the test and see what happens.
+
+I do have an idea, because if you think about what I've been supposing this whole time, is that my consciousness will continue to expand, to where the perceived "I" is a planet, then a sun.. galaxy, etc. all the way up. this requires an expansion of consciousness, but then once again a unification of consciousness. next stop is planetary, so somehow I will have to get all of my consciousnesses onto the same planet, and somehow they need to combine once again into a single conscious unit. the challenge of this thrills me, as I don't really know how (at this moment) that could even remotely become possible. obviously a new (not yet know presently) technology will make this possible, and that's kind of exciting. we're going to need to seed the planet with the technology just like tesla did with this one, then transfer all of our consciousness into the planet, such that the culmination of contrast makes this new thing (which I'm anticipating to be the manifestation of 6d among us on this new planet).
+
+it all sounds pretty exciting to me. I'm really pumped.
+
+[1]: this is all speculation, and it seems that things are rapidly changing so things could change again; I don't really know. however, I think this was important for me to realise *before* I got connected, to kind of ensure it gets "set it into stone" a bit.
+
+[2]: we really don't really have much of a clue how solar desire works. I think it's pretty possible to imagine the desire of our planet. people who have done ayahuasca journeys have commonly spoken of connecting up and communicating with that desire. we definitely are clueless to the nature of desire for a galaxy and we're certainly no were close to understanding how the desire of a universe works. these things are just too big and complex for us to really wrap our heads around yet.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
+
+http://grahamhancock.com/phorum/read.php?1,47200,47200
 
 ### 2019-04-24 ??:?? - the point of it all is to make iterations on yourself
 
