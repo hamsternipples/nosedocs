@@ -9761,6 +9761,40 @@ it all sounds pretty exciting to me. I'm really pumped.
 
 [2]: we really don't really have much of a clue how solar desire works. I think it's pretty possible to imagine the desire of our planet. people who have done ayahuasca journeys have commonly spoken of connecting up and communicating with that desire. we definitely are clueless to the nature of desire for a galaxy and we're certainly no were close to understanding how the desire of a universe works. these things are just too big and complex for us to really wrap our heads around yet.
 
+### 2019-09-30 08:29 - we need to __overshoot__ the goal for the girls thing to happen
+
+one of the interesting things I was thinking about last night was that the goal is to just kind of ease into things. I was thinking about ... we're severely underperforming right now. I am WAY behind on where I should be. every time there's a whole lot of contrast, it seems to have been necessary to get back to where I should be, which is approaching centre.
+
+so, I reason it to these three (5) ways:
+
+1. we undershoot the centre by so much the girls are there to catch back up to speed
+2. we overshoot the centre by so much that girls are there to slow things back down to speed
+3. we approach centre in a straight line and nothing bad happens. it's just a nice easy thing and no cataclysms or anything like that
+
+this will be the subject of this discussion and potentially others they have different outcomes and meanings.
+
+take #1 and #2, they are both have the outcome that girls will believe in other girls. compared to #3, *any girl* can find that in her dreams. she can believe in herself and make it happen.
+
+the other disadvantage of a choice of #1 or #2, that is you do not have control over the planet. there's no way for this whole air becoming more oxygenated as people feel better problem, and that will surely expand at much more rapid rate if I'm having sex, so that whole idea/timeline certainly leads to calamity. you cannot stress the planet with that much energy and not expect a severe reaction to suddenly my energy vanishing (eg. I make my transition). navigating by dreams, you can watch the planet's energy levels as sex happens and stuff -- and, you'll probably be able to try out solutions potentially.
+
+the dreams give a sense of a guidance system too because in a more energetic atmosphere, their world will change *much* more rapidly than ours (they will overshoot in time). our approach is to go toward centre.
+
+---
+
+the real important thing to look at here is to see instead how this applies mentally to the female population. for #1 and #2, girls will grow up believing in other girls instead of learning to create their own realities (at first in their dreams).
+
+the next thing I thought was important is that it may be prudent to make a girl asexual as well. I then thought about it, and maybe actually you'll want to make more than one (guys are kind of fickle sometimes). then, do the same thing as an opposite navigational device.
+
+the reason why is when the planet is eventually will be all in a line and you'll be able to see the movements within the line -- and so by perceiving the line, you are no longer a part of the thing, but a perceiver of the thing.
+
+---
+
+on that note I was thinking about drugs also and it's quite possible that to ensure no hallucinations amazon will be removing any and all visual effects -- so basically psychedelics are really boring now.
+
+the funny thing is they take away the visual properties of going to 4d or 5d or whatever, but you're still capable of the thing, just not visually/experientially. however, you are still getting closer to it vibrationally, so as they get better and better at removing the effects, we'll get better and better at becoming the thing.
+
+once you are vibrationally equal to what that drug was trying to show up (but they've blocked) will become manifest when you become it. this is the same concept as becoming a perceiver of a thing, but not the thing itself (however looked at from the opposite end, or backwards)
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
