@@ -9795,6 +9795,18 @@ the funny thing is they take away the visual properties of going to 4d or 5d or 
 
 once you are vibrationally equal to what that drug was trying to show up (but they've blocked) will become manifest when you become it. this is the same concept as becoming a perceiver of a thing, but not the thing itself (however looked at from the opposite end, or backwards)
 
+### 2019-09-30 09:18 - after dreams, they become reality
+
+eventually after having given enough attention to that dream reality, it will become reality. nosebook will eventually figure out how to tune into those realities, and eventually me, as well.
+
+meaning, one morning you will wake up and have the experience you dreamed about. when that happens, after 20 years or so, I'll become conscious there with you. this is kind of a good place and time to experiment and stuff as much as possible. I doubt they will be apart of my memory.
+
+meaning, that my experience will begin then, not necessarily now. I do suppose in parallel to that, I will begin to get a "sense" about some of these other versions of myself, that even here I'll sometimes feeling of something other than my experience, but that's about it I'm pretty sure.
+
+---
+
+there is another thing I want to point out about the other two possibilities, but I cannot remember it at this moment
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
