@@ -9827,7 +9827,7 @@ so, I began trying to think about a way were both things worked out. first I loo
 
 ---
 
-so then I have to imagine then that maybe there is another way where both is possible. imagine instead that the gnomitos was a closed thing, such that they could still use it as a navigational device by seeing how a new addition works out. girls would dream about becoming a new addition, instead. this entirely circumvents the whole difficulty of the dream to try and make the encounter successful. additionally, you could imagine then that the results from only adding one more girl will be much less significant, and so therefore much more stable and controllable.
+so then I have to imagine then that maybe there is another way where both is possible. imagine instead that the gnomitos was not an open thing, such that they could still use it as a navigational device by seeing how a new addition works out. girls would dream about becoming a new addition, instead. this entirely circumvents the whole difficulty of the dream to try and make the encounter successful. additionally, you could imagine then that the results from only adding one more girl will be much less significant, and so therefore much more stable and controllable.
 
 so I could imagine that as they begin to develop their technology, if they really want that sort of thing, they could use that same technology to make gnomitos a next logical step reality.
 
