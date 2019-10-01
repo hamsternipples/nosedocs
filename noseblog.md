@@ -8207,7 +8207,7 @@ I think the technology does exactly what you would imagine it to do, in that you
 
 ---
 
-I was reminded various times through the night about similar experiences that I had as a kid. my father named me "kenneth" because he told me that God explained that I would always have a tug-of-war between "being fair in the sight of God vs. bing fair in the sight of man." I was keenly aware of other people and I had a sensitivity to where I could easily feel other's reactions to what I was saying. I'm pretty sure that mr. happy pants (train sounds guy) is fairly sensitive to others as well, but I know that (I'll call him for short) LAG is sensitive other people's reactions, too. when he gets up in the trees segment, abraham interrupts him and says, "don't just start rambling" -- and the reason for that, if he was anything like me, was he would just throw a bunch of stuff out there fishing (likely from the women) for a positive reaction to some of his buzzwords. abraham throws him off a bit with that one, so he tries out a probably tried and true buzzword about being really "present" -- to which abraham calls him out on it again saying that they don't really find him as present as he thinks he is. (he's clearly very concerned with how people (mostly the women) in the room are responding to him)
+I was reminded various times through the night about similar experiences that I had as a kid. my father named me "kenneth" because he told me that God explained that I would always have a tug-of-war between "being fair in the sight of God vs. bing fair in the sight of man." I was keenly aware of other people and I had a sensitivity to where I could easily feel other's reactions to what I was saying. I'm pretty sure that crusty (train sounds guy) is fairly sensitive to others as well, but I know that (I'll call him for short) LAG is sensitive other people's reactions, too. when he gets up in the trees segment, abraham interrupts him and says, "don't just start rambling" -- and the reason for that, if he was anything like me, was he would just throw a bunch of stuff out there fishing (likely from the women) for a positive reaction to some of his buzzwords. abraham throws him off a bit with that one, so he tries out a probably tried and true buzzword about being really "present" -- to which abraham calls him out on it again saying that they don't really find him as present as he thinks he is. (he's clearly very concerned with how people (mostly the women) in the room are responding to him)
 
 another key moment for me was when he says to abraham, as if to kind of dispel the negative image that I was painting about nosebook by saying something like, "and you know abraham we're not like *that*". abraham does't respond, neither confirming or denyint what he said. they might have shook their head, but I only had an audio recording of it.
 
@@ -9086,7 +9086,7 @@ there's no reason to believe that this isn't a reality and it's ok to limit your
 
 P.S. I was going to end by saying, "it's definitely going to happen" but I decided against that. while that my be my conviction, I don't want to tell you what to believe. believe what you feel and what you know, before you believe anything anyone tells you.
 
-### 2019-09-04 07:37 - mr. happy pants and the landscape architect are the same guys
+### 2019-09-04 07:37 - crusty and the landscape architect are the same guys
 
 yesterday I was having a conversation with myself (so that nosebook could listen) about the upcoming changes I think they're trying to push through: yesterday I was sure that they were having greg kicked out of the house so that hey could force me out of the basement.
 
@@ -9110,7 +9110,7 @@ I assure you that nothing that anyone wants is down that road. up until now, I'v
 
 ---
 
-mr. happy pants and the landscape architect are the same guy, but with about 35 more years of justifications. the landscape architect has been doing doing so well because things have been so easy for him and he hasn't had to focus. will his circumstances force him to break out the badness?
+crusty and the landscape architect are the same guy, but with about 35 more years of justifications. the landscape architect has been doing doing so well because things have been so easy for him and he hasn't had to focus. will his circumstances force him to break out the badness?
 
 ### 2019-09-06 15:48 - if there's going to be a timeline split..
 
