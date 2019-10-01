@@ -9807,6 +9807,12 @@ meaning, that my experience will begin then, not necessarily now. I do suppose i
 
 there is another thing I want to point out about the other two possibilities, but I cannot remember it at this moment
 
+### 2019-09-30 18:25 - it's different if the reality is to slow me down
+
+if I'm undershooting the goal, then the girls would be needed to slow things down (that is the planet expaneds its consciousness too rapidly) -- the girls are instead perceived as nuisences to me achieving what I'm looking to. the opposite way, where the girls are there to speed me up, has an opposite effect, (because they will be perceived as helpers), but it tends toward goddess worship.
+
+so I mean, neither I think is goddess worship or hate, to be a good avenue.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
