@@ -9813,6 +9813,24 @@ if I'm undershooting the goal, then the girls would be needed to slow things dow
 
 so I mean, neither I think is goddess worship or hate, to be a good avenue.
 
+### 2019-10-01 14:19 - why not both?
+
+had some interesting reactions this morning, and they were a bit mixed between a whole bunch of people thinking they would do a "chapuza" -- something I had not anticipated: that belief in their capability to not mess things up is pretty low I guess.
+
+the other ones seem to be involved with the opposite end of things, kind of like, "oh, maybe this isn't what we wanted" -- so for this one, I have to imagine that they're trying out this timeline idea. maybe they've figured out some simple tuning into other timelines and found that maybe things went a little worse than they had imagined.
+
+---
+
+so spirits were a bit low this morning but I was reminded of a thing I was thinking about where a "division" isn't just two things; it's 4 things: right or left, and both or none.
+
+so, I began trying to think about a way were both things worked out. first I looked at behind all of the desire to do the asexual approach as a sure means of curving in perfectly, it also means to me the ability to express myself creatively. this is so very important to me, and I don't really know why, but all of my life I've had to be creating *something*.
+
+---
+
+so then I have to imagine then that maybe there is another way where both is possible. imagine instead that the gnomitos was a closed thing, such that they could still use it as a navigational device by seeing how a new addition works out. girls would dream about becoming a new addition, instead. this entirely circumvents the whole difficulty of the dream to try and make the encounter successful. additionally, you could imagine then that the results from only adding one more girl will be much less significant, and so therefore much more stable and controllable.
+
+so I could imagine that as they begin to develop their technology, if they really want that sort of thing, they could use that same technology to make gnomitos a next logical step reality.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
