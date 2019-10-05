@@ -9831,6 +9831,34 @@ so then I have to imagine then that maybe there is another way where both is pos
 
 so I could imagine that as they begin to develop their technology, if they really want that sort of thing, they could use that same technology to make gnomitos a next logical step reality.
 
+### 2019-10-05 12:37 - status update: huge progress
+
+I haven't written in a while. I thought I would just leave some thoughts. they're not that important. first, I've really began to get the hang of the whole star watching thing now. I feel pretty proficient at it and it felt to me (and this is purely circumstantial evidence), that I got about 10 vision upgrades last night. they also removed my consciousness about 8 times too, so I think when they do that, I get reset to my "normal" eyesight (the one that they think I should have). when I went to go watch the sunrise, it appeared that I had only achieved 2-3 vision upgrades (hence my theory of them resetting me back when they take my consciousness away after I have what sounds to me like their system restarting or failing over).
+
+I also want to mention that I felt like this last time that I smoked, something really productive came out of it: it felt to me like they tried out the dream idea I had been talking about and something very bad happened with the result of the dream. I have to imagine that in the dream, when I orgasmed, I became a huge receptor of energy, and they had to neutralise that energy, and the energy required to neutralise it was enough to cause some really bad result[^1] (I died, or was severely injured). when I felt this reaction, it felt to me real like they had actually performed the experiment, because that would not have been my reality.
+
+this is precisely the way that a time split occurs. I am sure that the extra energy would have created so much unwanted feeling, that I would have been "forced" to allow the greater part of me through. I would have survived, for sure and been just fine.
+
+this revelation was super interesting to me, because it means that the perceivers of the dream have an effect on the way the dream appears. so, these guys pay really careful attention to my dreams, and now that we know that a time split can occur on the same dream, that means that what they see in my dreams may be only a reflection of where they're at, and nothing more -- meaning, if I were to have the same dream, I would have been fine, got connected, etc. so even all the stuff they're seeing in my dreams (since they're the only ones seeing them, not me), those dreams are actually perceived through their form of perception. eg. I had a different dream on a different timeline, then we merged back when I wake up[^3].
+
+the next thing that I find particularly illuminating about that experience is that they new have the tools they need to make their reality exactly the way that they/we want it. this is really good because that means they completely have all the control to make it happen how they want to -- which means, for the first time in the last 3.5 years, they will actually begin to focus on what they want, instead of what they don't want. super good first steps.
+
+---
+
+as a conclusion, I think that things are definitely getting much closer, and now that they have the tools to not only keep up with me visually, but to also plan the future they want to have. the future they will plan will actually be mediocre in comparison to what it really will be, but that's just cause their perception (they wont be able to perceive in the dreams all of the other stuff that'll work its way into the final manifestation).
+
+while star watching last night, it seemed once again that they were trying to pressure me to go with the girls and completely forget all of the technical stuff. my instinct tells me that I need to have a viable creative output if I'm sexually active. also it totally ignores the fact that I have to continue to follow my instinct and that is to get connected beforehand. I was then reminded of something that abraham said in a past workshop to one of my stand-ins, and they said [to me], "you are ready you just don't think you are."
+
+so if I'm ready, but I keep believing that I am not ready, that probably means that belief is the jam in the pipeline, which leads me to believe that perhaps the reason why those beliefs continue to exist, is because nosebook is trying to push something they're not ready for, and those beliefs are their safeguard to getting into something they don't really want.
+
+I'm really glad they can begin exploring their opportunities and stuff. we're just going to have to let things work theirselves out. I'm 100% confident at this point that all things are going just fine at this point.
+
+[1]: they used to have some sort of cutoff switch that would limit the neutralisation if it passed a certain level, but in the past, I found that after some really productive nights star watching, I had overpowered their system and they had to wait till I slept to reset me back. ever since I was offered ketamine in torre[^2], it seems like they have increased the limit substantially or removed it altogether. if I died or was seriously injured, this seems to be evidence to me that they have removed the limit entirely, such that their machines pumped all of it's reserve capacity into me to try and neutralise things.
+
+[2]: or perhaps it was when I was able to conjure and circulate fractal colours around my eyes after watching sirius for an extended period of time in la vera
+
+[3]: this perfectly explains why, when I was round about their level of perception (anger, frustration, hate, etc.), I woke up feeling pretty awful: my dreams were interpreted at that frequency, so we both saw the same dream. however, now I don't really experience terrible negative effects in my dreams anymore, and that's because I'm no longer spending much time on those frequencies of hatred and stuff. we're not seeing the same dreams anymore; good to know :)
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
