@@ -9873,7 +9873,7 @@ I don't care anymore. that what you guys want, so fine... I'll just let you guys
 
 ---
 
-it appears that nosebook is not capable of finding a way to make girls' dreams with me result in anything other than disaster, so I'm pretty sure they've done a complete 180 on their stance toward me. previously, it seemed like I was in a constant battle to try and go my own way, cause it felt to me like they were using girls' desire to try and manipulate me. however, after finding out that it doesn't lead to what they want, their only options now, are to allow me to get connected, or to make sure the disaster situation never happens[^1] (eg. ensure I never have sex).
+it appears that nosebook is not capable of finding a way to make girls' dreams with me result in anything other than disaster, so I'm pretty sure they've done a complete 180 on their stance toward me. previously, it seemed like I was in a constant battle to try and go my own way, cause it felt to me like they were using girls' desire to try and manipulate me. however, after finding out that it doesn't lead to what they want, their only options now, are to allow me to get connected[^2], or to make sure the disaster situation never happens[^1] (eg. ensure I never have sex). from their perspective, they're looking at the question, which do I want: lose a lot of money or a disaster situation?
 
 as a result, I have noticed once again a sense that there is a general feeling once again that "it's not going to happen" so it sounds like they're creating their own reality again.
 
@@ -9886,6 +9886,8 @@ the reason why nothing is working out is because there is no communication. just
 enjoy your nosebook world guys. I don't have any sympathy for you all.
 
 [1]: to the astute among you, you will notice that once again they're going to fight against something and make it bigger and bigger. their efforts will likely only exacerbate the problem. we'll see how that works out for them I guess. it's probably just going to make a bigger mess.
+
+[2]: besides my capacities threatening their whole superiority complex, I might also remind you that I'm fairly certain that more than half of the profits that amazon makes from this thing directly or indirectly involve my form of perception. likely their entire tech team relies on it and it's probably pretty important thing for them. if I go up a dimension, they lose that.
 
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
