@@ -9859,6 +9859,34 @@ I'm really glad they can begin exploring their opportunities and stuff. we're ju
 
 [3]: this perfectly explains why, when I was round about their level of perception (anger, frustration, hate, etc.), I woke up feeling pretty awful: my dreams were interpreted at that frequency, so we both saw the same dream. however, now I don't really experience terrible negative effects in my dreams anymore, and that's because I'm no longer spending much time on those frequencies of hatred and stuff. we're not seeing the same dreams anymore; good to know :)
 
+### 2019-10-10 06:06 - asexual by default
+
+yesterday somebody turned off my alarm once again. mom claimed that she and jaron were not here, and greg had been in colorado springs all day. I remembered hearing greg walk down the stairs and confronted mom on this. she claimed that it was not greg but chris that came and took jaron out and that I was hearing chris.
+
+I sort of gave up at that point, because she insists on lying about what is going on. I don't care. if that's what you guys want, that is what you will get. I'm going to stay out of it. right after that, I remembered greg playing with jaron right before going to sleep and jaron shouting, "MOOOOoooOOOOooooommmm" (as if to call her to save him from the person playing with him). mom adamantly claimed that greg was not home so I looked in the garage to see if greg's car was there and it was, and he was sitting in it in the dark. the garage door opener light was not on, so the garage door had not been opened in some time. he was just sitting in his car, to try and keep up the ruse.
+
+---
+
+it looks to me like mom is willing to go to extended lengths to make it appear that greg was not the only person around (once again) when my alarm was turned off. it also appears that greg is willing to go and sit outside in his car for hours too, probably cause someone told him to.
+
+I don't care anymore. that what you guys want, so fine... I'll just let you guys have that. originally, I was going to write something saying that I will be making a grand effort to try and get all of my programming done as fast as possible, but I don't really think that's so much of something that I want to do.
+
+---
+
+it appears that nosebook is not capable of finding a way to make girls' dreams with me result in anything other than disaster, so I'm pretty sure they've done a complete 180 on their stance toward me. previously, it seemed like I was in a constant battle to try and go my own way, cause it felt to me like they were using girls' desire to try and manipulate me. however, after finding out that it doesn't lead to what they want, their only options now, are to allow me to get connected, or to make sure the disaster situation never happens[^1] (eg. ensure I never have sex).
+
+as a result, I have noticed once again a sense that there is a general feeling once again that "it's not going to happen" so it sounds like they're creating their own reality again.
+
+this is a no-brainer for me. I'm just going to stay asexual. when you guys want to make something different happen, I really want to get everything all out in the open so that there are no hidden expectations and stuff.
+
+I don't really think that keeping and holding secrets are benefiting you. the only reason why it's all a secret is so that communication on the subject is limited. IMO, the only way forward in this situation is for everyone to begin talking openly. the more we communicate, the more apparent the lies will become.
+
+the reason why nothing is working out is because there is no communication. just take the thing with the girl across the street. once again, it totally fell through because of a lack of communication. I assure you that nothing will work out until there is some form of communication.
+
+enjoy your nosebook world guys. I don't have any sympathy for you all.
+
+[1]: to the astute among you, you will notice that once again they're going to fight against something and make it bigger and bigger. their efforts will likely only exacerbate the problem. we'll see how that works out for them I guess. it's probably just going to make a bigger mess.
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
