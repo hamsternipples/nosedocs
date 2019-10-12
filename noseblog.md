@@ -9929,6 +9929,61 @@ the next entry will discuss the possibility of how this is all going exactly as 
 
 [4]: "For those interested here is a little lesson on mushrooms and DMT. Because of their electron density and color, the spores of a psychedelic mushroom are capable of withstanding deep space travel. On top of that, if you were ever looking for an alien thumb print on earth you have it there. If I remember correctly psilocybin is the only organic 4-phosphorylated chemical known to man. It may not be the case anymore, but I believe at sometime it was. When mushrooms are consumed the psilocybin is converted into psilocin by dephosphorylation. 4-PO-DMT (psilocybin) is a little more structurally sound than psilocin, but it is unable to cross the blood brain barrier because the phosphorous atom is to large and to highly charged. Through hydrolysis our bodies convert the 4-PO-DMT in 4-HO-DMT, which is able to cross the BBB and cause psychoactive effects. If you have been paying attention you will see that the structure of the chemicals in mushrooms is similar to that of DMT. The hydroxy ring in 4-HO-DMT basically allows the chemical to survive the process of being broken down by MAO enzymes. DMT, if consumed orally, will be broken down by these enzymes and for this reason you need to take something to inhibit these enzymes. Somewhere along the line people in the amazon figured this out, but before then mushrooms were a much easier "all in one package". Although they are structurally different they both effects similar receptors. Not all the same, but for the most part the drugs are very similar. One of the main differences is the duration of the trip. You can trip just as hard on mushrooms, but the fact that it will last hours and hours makes a lot of difference. If you have ever done ayahausca (oral DMT with an MAOI) you will find the trip to be similar to a high dose of mushrooms." ref: https://www.reddit.com/r/UFOs/comments/1bp0hq/dmt_users_have_reported_encounters_with_machine/c99adjp/
 
+### 2019-10-12 16:18 - avoiding the cataclysm
+
+one of the things that I was wondering about what might be the major contributor to attracting a cataclysm. modern interpretation of archaeology tells us that there were at least two previous times of high technology in the past and the evidence of their existance is pretty difficult to ignore, since we *still* do not even come close to having the capability with all of the technology that we have today, to build something like the walls in peru or the pyramids or even the boxes in the serapeum. something major happened which wiped these technologically advanced civilsations off of the earth. so what would cause something like this?
+
+I have postulated that in all of these cases (and other minor instances like the fall of the roman empire) there was something that elevated the (for lack of a better term) "conductivity in the air"[^1]. essentially though, at the peak of these ancient times, they were living in a near dream-state like reality where manifestation was nearly instant. I believe that was the original function of the pyramids and other megalithic sites: to amplify this q-factor.
+
+so, because thoughts were becoming manifest reality so quickly, I began to wonder what it is that they were thinking which was attracting this type of reality. well, my answer came to me in the form of an example this other day with the events mentioned here: @[entry](2019-10-10 06:06).
+
+---
+
+what I noticed is that there is this effort to restrict communications. often times I have thought about what jon says when he claims (and IMO is correct) that complexity is rising to such a degree that no one has any idea what is going on. his perspective of this, is in reference to the software world. his solution to it I thought was kind of interesting and I believe he's actually nailed it. he wants to develop tools to better visualise (communicate) the growing complexity in these programs. what he's essentially saying is that as complexity rises, so too does the ability communicate and interact with the increasing layers of abstractions.
+
+similarly, we can note a similar effect with communication and improvement in this world (see marshall mcluhan's work here, particularly "understanding media" for more information). when communications were only happening inside of the village, the village was essentially the size of the people's "world" -- however, once we became an agrarian species (instead of nomadic hunter gatherers), now communication needs to be made with other locations. trade routes need to be setup and communication needs to happen to be able to sell the surplus food (see manuel delanda assemblage theory for more information here).
+
+there is a direct correlation between better communication and human technological advancement. not only have we become (with the implementation of the internet) a global civilisation, but also we have begun the the phase which comes afterward (with the implementation of nosebook), which mcluhan called the "global village". now, gossip (and other forms of communication) can spread around the globe as rapidly as gossip can travel around a village. this is a huge reduction of time and space for communication.
+
+---
+
+ok, so more effective forms of communication equals progress and is the solution to rising complexity, but what does that have to do with cataclysms? it occurred to me the other day that the reason why this whole thing needs to be kept a secret is because they want to control communication about it (reasons is, I'm sure that increased communication means their secrets will become known at the rate gossip spreads in a village).
+
+I've also mentioned that they have this superiority complex where they feel they want to be superior to other people. however, I imagine the rise in technology is quite intimidating to them. no longer is the biggest and the toughest the one who's considered superior.
+
+physical superiority only really works when communication is very limited, which means the most primitive times. think about it, in the stone age, the biggest and the toughest is the one that wins the battles, gets the women, etc.
+
+---
+
+I do not believe that any of these civilisations that have since disappeared were thinking thoughts which are attracting cataclysm specifically[^2], however, I do believe that as this q-factor seemed to rise all over the planet, there formed two groups, one which was resonant with a cataclysm and one that was resonant with well-being. I am pretty sure that a time-split would have occurred as these realities are incompatible with each other.
+
+the ones that are resonant with cataclysm can be thought of as the ones fearing (or expecting) such an event to occur, or the ones with strong desire to return to a time when communication was low and physical strength was king ... and so, a cataclysm resets human kind back to the stone age and once again they can be physically superior again (you create your own reality, you know).
+
+---
+---
+
+ok, I've identified the problem pretty well now, so what is the solution. when I was smoking last time I could see that the most effective way to make humankind resilient to catastrophe was to build upon complexity.
+
+initially, I visualised it represented as visual levels. my idea was to begin grouping people into groups where (and this is already happening) different people are residing in others conceptual space. I could see that this would begin in groups, so maybe like there are like millions of people who subscribe to my form of perception, but as I continue to rise, that'll become too intense for them and they'll have to subscribe to someone else's form of perception. eventually though others will surpass me on the visual levels, and I will subscribe to their form of perception.
+
+why do I think something like this is important? it allows for people to remain exactly where they are and allow others to continue moving upward. I think it's a big mistake if we try to force all of humankind into the same form of perception. I can understand why this factory copy, one-size-fits-all method is compelling, because it's easier to keep track of if everyone is inside of the same conceptual space. however, I believe that nosebook is beginning to realise that this effort to keep everyone in the same conceptual space is failing tremendously.
+
+instead, I will postulate that it's actually easier to track if *everyone* has someone who is above them conceptually and someone who is below them, because, instead of unknown things showing up in the conceptual space, the most probable identification of the unknown concept will live in the space between those above and those below.
+
+nature does this already. we have fossils of super ancient cockroaches from the paleolithic era. this means that in the last (pick your number; millions of years?) long long time, cockroaches have essentially made no evolutionary changes. they are the same way now as they were then. this isn't a problem for nature, as many many much more complex species have emerged since. you don't see other species trying to steer the cockroaches to a different form of perception.
+
+these groups of people with different forms of perception can instead be seen as human "species" and none of them are to be required to make any changes to their form of perception.
+
+---
+
+the next thing I could see (this is certainly a ways into the future) is that as once things begin to speed up, as the distance between the lowest in the species chain and the highest in the species chain gets bigger and bigger, all of a sudden the lowest desire will rise such that they will shoot ahead and actually become the greatest. the greatest, like everything, will soon be surpassed and fall down once again to become the lowest... and the cycle continues... the lowest are the greatest and the greatest are the lowest (in the bigger picture) so there really is no problem at all. you are where you are and that has to be ok. when you want to be something else, you will decide it for yourself and no one will steer you toward it.
+
+I could write about this this topic for hours. this is plenty long enough. peace.
+
+[1]: this is directly proportional to the "speed of light", and as this q-value rises, we see more and more "quantum", "telepathy", and "spooky action at a distance" like effects. it seems to be directly related to oxygen and it'll be the subject of future entries, because I think I've figured it out.
+
+[2]: I'm not so sure about this entirely, because it seems that the aztecs, as advanced as they were in understanding the movements of the heavens, seemed to have a terrible fear of cataclysm, to which they would sacrifice virgin girls and do other mind blowing things to try and avoid cataclysm. so, maybe not all of these advanced civilisations, I dunno...
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
