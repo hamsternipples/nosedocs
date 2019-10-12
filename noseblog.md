@@ -9911,7 +9911,7 @@ so, assume with me for a moment that not only do they figure it out, but somehow
 
 I imagine that for the next 20 years of so, something similar to what terence described in the "food of the gods" will occur here on earth. it turns out, there's not a whole lot of difference between DMT and psilocybin, because our body converts it through hydrolysis into DMT[^4] -- so the effect will be very much the same. likely our brains will grow emensely over the next 20 years and we'll reach a whole new stage of human evolution in the process.
 
-after some time (and it seems I've been given till 2038), I will make my transition, which is the equivilant of the mushroom becoming difficult to obtain or the part in my past when the mdma and the mushroom dried up and I went to go to live at marcos' house.
+after some time (and it seems I've been given till 2038), I will make my transition (or some sort of cosmic catastrophe rendering their system unable to function), which is the equivilant of the mushroom becoming difficult to obtain or the part in my past when the mdma and the mushroom dried up and I went to go to live at marcos' house.
 
 marcos has been symbolic of saturn to me. the US government is the same symbol, just a much bigger version or marcos. so likely, when I make my transition, humankind will find theirselves in a new world where the drug is no longer freely available (that is, my form of perception), and saturn (amazon, USA, etc.) will have the perfect setup just waiting to try and exploit or take advantage of these geniuses which seemed to come out of nowhere at just the right time, before saturn's self-destruction.
 
