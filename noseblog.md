@@ -9984,6 +9984,82 @@ I could write about this this topic for hours. this is plenty long enough. peace
 
 [2]: I'm not so sure about this entirely, because it seems that the aztecs, as advanced as they were in understanding the movements of the heavens, seemed to have a terrible fear of cataclysm, to which they would sacrifice virgin girls and do other mind blowing things to try and avoid cataclysm. so, maybe not all of these advanced civilisations, I dunno...
 
+### 2019-10-14 14:39 - a meandering artistic insight into the world of chaos and mayhem
+
+@[youtube](https://www.youtube.com/watch?v=HwkXr83ErpE)
+
+I appreciate thor because I can kind of skip through his videos and he provides me with kind of feeling/perspective into the more mainstream US perspective. in that video he offered an idea which I, by no means listened to the whole thing, found kind of interesting. I perhaps even laughed at it when I first heard it, but it stayed in my head. anything that sticks in my head like that I tend to analyse in a bit more detail. this is that analysis.
+
+he begins by offering the idea that the book of revelation (by st. john the divine) has a "7 year tribulation" period in it. he then postulates that this 7 year tribulation begins on 12-12-12 in correspondence with the mayan calendar[^1].
+
+he then qualifies his hypothesis that it's the 7 years of tribulation by saying that the reason why these last 7 yaers haven't seemed like much of a tribulation is that originally the timeline was way way worse. he then brings up john titor's claims that in his (john titor's origin timeline) syria would begin the next world war, and following soon thereafter, civil war would eventually break out in the states.
+
+---
+
+essentially he's claiming that most all of the major tribulation stuff was actually avoided by timeline corrections.
+
+there are a lot of really weird things going on in the john titor story. I first read about it when I was like 12 or something. we lived in the cartwright house and I remember climbing the tree in the back yard to think about it. it totally consumed me when I was a kid because I was very fascinated with time and the idea of time travel.
+
+I concluded after much thought on the matter that time travel could not be accomplished physically[^2]. I determined that it had to be done "in the spirit" -- and I left the subject alone. afterall, there was no physical evidence of john titor anywhere. the only people who had contact with him was over the internet. john and a pretty fabulous story that to me was barely believable, but it stayed with me over all of these years.
+
+there are some reoccurring themes and other details that stick out to me, like for example, his mission (he claimed) was to find a device which would prevent some sort of catastrophe from happening in *2038*[^3].
+
+next weird thing was this post-civil war rearrangement of society into smaller, he called them "universities" which according to his description of them, sounded to me like medieval villages or pueblos with a university in the centre in place of a church[^4][^5].
+
+another weird thing, and you could claim it was preconditioning, but some time later when I lived in the sunnydale house; I seem to recall I was living in the girls old room (the one with the window that looked out over the awning at the pool), and I had a very very vivid series of dreams which seemed to defy physical reality because I was in a period of time in my life when I was writing my dreams down, and I managed to have three really detailed dreams and write them all down in a manner of 20 minutes (5-something till 6:06 am). I cannot remember the first one right now.
+
+the second one was really really long and I don't remember it all. I just have pieces of it remaining. a civil war broke out in the united states (either I don't remember, or perhaps it wasn't revealed to me why) and some combat started around me. I killed a few soldiers, and grabbed one of their grenades and managed to get it into a tank. I killed a lot of US soldiers, and this was quite notable to the resistance team. I grew in skill and popularity. I really wanted to be a sniper though, and I managed to get an insane amount of key kills and valuable information. I rose up through the ranks and eventually became the leader of the anti-government resistance force. we were located in the centre of the USA, away from the 4 major population centres: LA, NY, florida, and seattle.
+
+I went back to sleep to have the third one: I was on a beach at night and I saw the USA was in dire trouble. when I realised that, immediately I was swept out too far to touch the ocean floor any more and was drowning in the water. my father came and got me up on the beach. as I was laying there, aircraft painted the letters S.O.S. in the sky. I woke up staring right into my alarm clock which had had a power outage and was flashing 6:06am[^5].
+
+additionally, I had many different dreams where I was in different village type situations. this was a reoccurring theme for me in my teenage dreams. even in spain, I had this tendency to like pueblos more than cities, and I'm always harping on and on about these different villages, the global village, the reestablishment of the shaman, gnomitos project similar to mushroom cultures, etc.
+
+and so yes, I have wondered about these different internet "time travelers" like fwh, titor going on about the 2038 thing. then there's the sirians that seem to directly say something like [TODO: find the exact quote] (paraphrasing), "we're entering a time of the 7th ray in power, so pay attention to these archetypes and pick which parts you want to play" I wondered if these things were deliberately left in places where I would find them.
+
+anyway... moving on here.
+
+---
+
+so here's the thing: I've been around the prophetic movement enough to know that the minute you put a time and date on a prophecy, it most certainly fails. in fact, that is one of the tell-tale signs. I have noticed this same effect with different "prophecies" of my own: most people would call them deadlines or task completion. the minute I said a date or time, it *always* fell through. if I just let the prophecy of my completed task or someone's recovery take the time it needs to take, it seemed to work out well or even sometimes ahead of schedule. there really is something to trying to fit something into a schedule where, it takes away the allowance factor and turns it into effort (to try and make the prophesied deadline).
+
+so, when he says that the "7 year tribulation" will end (abruptly?) on 12-12-19, I sort of scoff at the idea. there's nothing that is such a black and white sort of thing. I tend to think of things as a progression. however, even though things are always a progression, you could imagine a timeline split or a catastrophe as an abrupt change, so I dunno maybe...
+
+as I was thinking about this last night, when I came in to roll a cigarette, I had a sudden sensation of depression. previously, I noted that there was extra sexual excitement in the air. I believe last night they were running another set of dream experiments with the girls, and the depression I felt was their response to yet another catastrophic outcome. it seems like whenever I engage in sexual activity (probably when I orgasm), I become the recipient of a huge amount of energy, and their system needs to neutralise this energy to prevent me from going up a dimension. this probably kills me or something quite awful. I believe their depression is upon the realisation that there's just no real way for me to have sex and avoid this event happening.
+
+however, I don't *need* to have sex to go up a dimension. I can gradually become a better and better recipient of this source energy *without* sex, too. I get it that during orgasm, you become a much better recipient of source energy[^7], however, I am slowly little by little working my way up to point where my everyday experience is receiving so much energy, it would be as if I were orgasming 24/7. eventually, I will reach the energetic point where I pass the barrier and am able to allow myself to become a better recipient of this source energy, without sex; that is and has been my stated goal.
+
+whenever this happens, I imagine that it could create an "imcompatible reality" and therefore a time split. who knows though, I personally think it's going to be exactly like 12-12-12 was, and exactly nothing will occur.
+
+in addition to this, I have had the personal belief that the 12-12-12 event was actually delayed until 12-12-16[^8][^9]. the 2012 day was rather uneventful for me. I think I had a bottle of whiskey and an abraham playlist queued up on youtube as I sat in a large house thinking about how the raquel thing went so wrong; that's pretty much it.
+
+2016 was a far more eventful day for me. it marked the beginning of a bunch of turmoil that has not really waned since then. today, I would say that it's still accelerating dramatically, and I don't really believe that in 7 short weeks, I will have become receptive (that is, released enough energy) to actually go up another dimension yet. to me that part seems a bit hokey, and I don't believe it one minute, because from my perspective it feels like I still have quite a ways to go.
+
+however, you can imagine that pretty shortly I will begin to experience another dimension, and I'll gradually make my way there. I don't really think it's going to be so dramatic, such that on 12-12-19 I'm going to be watching stars and one half of the world will watch me go up a dimension and begin to fly, while the other half of the world watches me get electrocuted to death, follow by a huge coverup and lots of mysterious details and lots of secrets. I doubt it, lol -- know what I mean?
+
+maybe something like that will happen in the future, but to me it makes no difference. for me, I just go steady one small increment at a time. I'm not in the business of prophesying arrival times or deadlines.
+
+to be continued...
+
+[1]: and also terence's timewave
+
+[2]: the next time I encountered "time travel" was on the same site that I found the sirian guide to human development and KUTHUMI's musings on the origins of humankind. the author claims that the sirians are capable of physical time travel and used source energy to be able to accomplish it.
+
+[3]: I'm well aware that the rollover of the 32-bit unix epoch is in 2038 as well. for the majority of my life this is what I thought it was, too -- until fwh told me I had until 2038. then I started to really think about this quite a bit, because I found it very hard to believe that the duration of my life was now directly tied to some catastrophe that the 32-bit unix epoch rolls over. I lived through the year 2000 freakout, and software was updated and nothing happened. I was quite sure that exactly nothing would happen in 2038 from a 32-bit integer overflow.
+
+[4]: I didn't really get this until I lived in spain and went traveling around to so many tiny pueblos. every single one of them has a church in the middle and it's usually the biggest building in the centre plaza area.
+
+[5]: it also occurred to me after some time that this was the "archaic revival" that terence had been carrying on so much about. it was a redistribution of the population into smaller population centres.
+
+[6]: there are a few things wrong with this alarm clock thing. it was in the time in LA where brownouts or short cutoffs from the power seemed to happen a few times a month, but if my alarm clock was turned off by a power outage, the power outage would have had to of occurred roughly 6 hours previous to me waking up. I woke up to write the other dreams down and I think I usually timestamped them too, so I don't know why I wouldn't have noticed my clock reset. the other weird thing is I clearly remember that I *had* looked at my clock after the first dream, because I noticed that I managed to have all these dreams and write them all down in an impossibly short period of time. I dunno.
+
+[7]: and, much like child birth, when a large amount of this energy passes through your body, if you can release resistance, it doesn't have to be a painful thing at all and can be extremely pleasurable. reaching never before felt heights of orgasm can be the same way assuming the resistance to allowing the energy to flow isn't present.
+
+[8]: my reasoning behind this is that if we were to continue on the technological curve without the 9/11 event in 2001, I'm pretty sure that the nosebook technology would have been ready for 2012, however the technical setback that was experienced from the emotional fallout from the 9/11 events and also the retardation of the growth of the internet because of all of the "wiretapping" and "surveillance" measures put in place by the USA. I believe that all of this delayed the 2012 thing by 4 years.
+
+[9]: it was also on that day that I finally revealed that I had embodied the "venus" archetype. reading the sirian guide, 3 characters seemed to stand out to me quite a bit. one was volcrum, to which I have very obvious similarity: we both have a limp, and I made things for zaryn (which I always identified as zeus). the only thing I was missing to be for reals this volcrum guy was venus to be my wife. I never perceived her to be my physical wife. instead, when I had a brain haemorrhage, I had a new entity put inside of me which I identified as a little girl. for me, this marriage was never a literal thing, but a marriage of the two hemispheres of my brain. like clockwork, marcos invited me to come live at his house -- and marcos was someone I was on the lookout for because he completely fit the description the sirians gave as saturn. for me, venus (aphrodite) was always my right brain, and I determined that ... I'm going to continue this story in a future entry. it gets complicated.
+
+### I'm getting stronger
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
