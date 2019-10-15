@@ -10056,7 +10056,7 @@ to be continued...
 
 [8]: my reasoning behind this is that if we were to continue on the technological curve without the 9/11 event in 2001, I'm pretty sure that the nosebook technology would have been ready for 2012, however the technical setback that was experienced from the emotional fallout from the 9/11 events and also the retardation of the growth of the internet because of all of the "wiretapping" and "surveillance" measures put in place by the USA. I believe that all of this delayed the 2012 thing by 4 years.
 
-[9]: it was also on that day that I finally revealed that I had embodied the "venus" archetype. reading the sirian guide, 3 characters seemed to stand out to me quite a bit. one was volcrum, to which I have very obvious similarity: we both have a limp, and I made things for zaryn (which I always identified as zeus). the only thing I was missing to be for reals this volcrum guy was venus to be my wife. I never perceived her to be my physical wife. instead, when I had a brain haemorrhage, I had a new entity put inside of me which I identified as a little girl. for me, this marriage was never a literal thing, but a marriage of the two hemispheres of my brain. like clockwork, marcos invited me to come live at his house -- and marcos was someone I was on the lookout for because he completely fit the description the sirians gave as saturn. for me, venus (aphrodite) was always my right brain, and I determined that ... I'm going to continue this story in a future entry. it gets complicated.
+[9]: it was also on that day that I finally revealed that I had embodied the "venus" archetype. reading the sirian guide, 3 characters seemed to stand out to me quite a bit. one was volcrum, to which I have very obvious similarity: we both have a limp, and I made things for zaryn (which I always identified as zeus). the only thing I was missing to be for reals this volcrum guy was venus to be my wife. I never perceived her to be my physical wife. instead, when I had a brain haemorrhage, I had a new entity put inside of me which I identified as a little girl. for me, this marriage was never a literal thing, but a marriage of the two hemispheres of my brain. like clockwork, marcos invited me to come live at his house -- and marcos was someone I was on the lookout for because he completely fit the description the sirians gave as saturn. for me, venus (aphrodite) was always my right brain, and I determined that ... I'm going to continue this story in a future entry. it gets complicated. see: @[entry](2019-10-14 18:08)
 
 ### 2019-10-14 17:40 - I'm getting stronger
 
@@ -10075,6 +10075,38 @@ I mainly wanted to share that because, even though it threw me off my groove a b
 what I think happened, is they took my consciousness away and were attempting to do what they do while I sleep where they drain the "light" from my head. sometime after this happened, my desire was still so strong to get get back to the star watching (cause I really want to continue to increase my receptive capabilities) that the dream state me began to fight them, cause I wanted to watch stars so badly, that the conflict made me start to become conscious[^1]. I don't really know how long it was before I became conscious in the dream-state, but it couldn't have been too long because the shadow from the moon had only moved 1-2 inches from were it was when I just drank from the watter bottle a few minutes previous -- so, not that long :)
 
 [1]: it seems to be the pattern that every time there is conflict or strong desire for things to be different, then I start to regain consciousness. it seems that if they're not trying to force things, then my astral-self(?) doesn't mind interacting with them.
+
+### 2019-10-14 18:08 - thoth, venus, saturn, and vulcrum.
+
+this is a continuation of the note I began to leave in @[entry](2019-10-14 14:39).
+
+I was telling the story about how it turned out (and I definitely didn't plan this), that on 12-12-16 I finally revealed that I had embodied the "venus" archetype.
+
+when reading the sirian guide back in 2011, the thoth, venus, and vulcrum characters seemed to stand out to me quite a bit.
+
+volcrum and I have one very obvious similarity: we both have a limp, and the second is that volcrum also made things for zeus; I made things for zaryn (which I always identified as zeus/jupiter). so, that one was easy.
+
+however, I always knew myself to be not one, but two characters because I had the brain haemorrhage. during the brain haemorrhage, a very very radiant being which I immediately knew as "jesus" appeared before me and asked me for my cooperation. I very very exicitedly agreed, telling him that I don't really know much, but I really think there's a good thing going there and I wanted to be a part of it in any way that I could. from then on I new had this new personality inside of my left side (right brain) which frustrated me to no end. to me, this side felt like a little girl. she seemed very "exigente" and demanding, yet powerful but with a feeling of fragility. I (kenny), the left brain cared for her and protected her, but she frequently got me into difficult situations. we've had quite a bit of a difference of opinion on certain matters. it frustrated me to no end, because she would totally throw a wrench into a situation, totally destroying whatever it was that seemed valuable to me, anr she didn't care one single bit. her atttude was always something of, "deal with it bro! it'll be fine"
+
+this is clearly the destructive side of venus. she's also quite charming. I learned to just sit back and watch myself talk to other people when I was in lower resistance situations (drunk or stoned) and she seemed to have an immediate charisma about her that could charm anybody. I learned to be fearless because I no matter how rough the situation, I could just sit back and watch her work her magic. I (kenny) have learned quite a bit from her and have since adopted (assimilated) the majority of her personality into my own. she's pure power, and I'm like this master organiser of ideas and we inhabit the same body.
+
+it works out quite well when we can both get our energy going in the same direction. I've learned to not even attempt to try and fight her. what she wants *is* what we're doing. as such, I've found it quite useful to adopt so much of her personality, so that we're on the same page[^1].
+
+she's "controlled" emotionally. meaning, she's basically like putting a super amplifier on to emotion to where whatever she feels *has* to become reality.
+
+ok, back to the story here. so, I clearly perceive myself as two of these characters, not one, and they are vulcrum and venus. in the sirian guide, the triad where these two exist is with saturn. remember, after a crazy set of events on mdma I could clearly see that my objective was to begin the equalisation process of these two hemispheres. I'm encouraged to recognise the symbols of these characters so I'm on the lookout for a "saturn" guy. as usual, the proper people appear in my life at the right moments (even if I have trouble recognsing it at first) and marcos invites me to come to his house to live and work on a project I had been wanting to create since essembly closed down.
+
+marcos perfectly fit the symbols of saturn:
+
+```
+Saturn, FOURTH RAY, Keeper of the Law; particularly the laws of karma. Note that he does not make the laws or judge but administers them. Saturn in Atlantis was called Dwul Quin. His job within the group was to see that all was done according to laws that best suited the purpose. Dwul Quin arrived on earth in the vehicle descended from a pterodactyl type bird. His skin was gray and eyes were beryl ringed with amber. He was a quiet, somber creature taking his serious job very seriously. Needless to say, his looks nor personality endeared him to humanity, so much so, that when humanity chose a creature to represent their devil they picked Dwul Quin, alias Saturn-Satan.
+```
+
+somehow a problem developed with his daughter (andrea), who I would not hestitate to identify symbolically also as venus. you all know that story there.
+
+when we come back I will talk about how this all ties in together with thoth.
+
+[1]: it's a good thing that I've learned so much from her because nosebook has her pretty well shut down. however, I think they're probably beginning to realise that she always gets her way, and any attempts to do something otherwise result in certain destruction.
 
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
