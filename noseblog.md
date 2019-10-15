@@ -10058,7 +10058,23 @@ to be continued...
 
 [9]: it was also on that day that I finally revealed that I had embodied the "venus" archetype. reading the sirian guide, 3 characters seemed to stand out to me quite a bit. one was volcrum, to which I have very obvious similarity: we both have a limp, and I made things for zaryn (which I always identified as zeus). the only thing I was missing to be for reals this volcrum guy was venus to be my wife. I never perceived her to be my physical wife. instead, when I had a brain haemorrhage, I had a new entity put inside of me which I identified as a little girl. for me, this marriage was never a literal thing, but a marriage of the two hemispheres of my brain. like clockwork, marcos invited me to come live at his house -- and marcos was someone I was on the lookout for because he completely fit the description the sirians gave as saturn. for me, venus (aphrodite) was always my right brain, and I determined that ... I'm going to continue this story in a future entry. it gets complicated.
 
-### I'm getting stronger
+### 2019-10-14 17:40 - I'm getting stronger
+
+last night while watching stars, I felt like I got a few vision upgrades, and kept rlaxing further to receive more when I suddenly found myself becoming conscious in a dream-state experience. I was being held away from something. I don't remember much of the beginning part of it, but I do remember that there was this extremely strong circular motion happening on the top of my head, which is actually something I have experienced before and was something that I used to be able to control in the beginning times with raquel before we lived together. I used to practice it on the trains, and often other times. I noticed that when I moved energy around the top of my head as if it were the north pole, I noticed that it had a dramatic dramatic effect on my environment. anyway, this time it didn't feel like the smooth rotation of energy, but felt kind of forced and not really that pleasant. it didn't hurt, but it did feel uncomfortable.
+
+I don't really know how I got into that situation though. I remember I was in this weird place where it seemed like walls kept trying to enclose me in. the feeling in my head seemed to happen when I reached the ceiling (I was levitating upward as these walls seemed to continue to form around me). then, it felt like someone was trying to wrestle me down to the ground. my leg jerked and I knew that I was laying outside because a rush of cold air came in to my feet (even though in my eyes it looked like I was in this tight multi-walled room). I said in my inner voice, "let go of me" and when I did, all of a sudden I could fly towards the walls, but it seemed like the walls never touched me. it was a very weird sensation, because I wasn't running into them, but at the same time it felt like I kept brushing up close to them, but they couldn't stop me.
+
+about this time the dream reality began to fade away from my eyes and I could see the star (capella, I think) again. I had to settle down again, but the whole thing kinda shook me up, and it definitely threw off the rhythm I had established with the star.
+
+either way, I'm gaining more and more strength in my capacity to recognise my different states of being. I'm by no means close to maintaining "consistency of consciousness" between states, but I'm getting far better at controlling things :)
+
+I mainly wanted to share that because, even though it threw me off my groove a bit, it really boosted my confidence in my traversal of different states of reality.
+
+---
+
+what I think happened, is they took my consciousness away and were attempting to do what they do while I sleep where they drain the "light" from my head. sometime after this happened, my desire was still so strong to get get back to the star watching (cause I really want to continue to increase my receptive capabilities) that the dream state me began to fight them, cause I wanted to watch stars so badly, that the conflict made me start to become conscious[^1]. I don't really know how long it was before I became conscious in the dream-state, but it couldn't have been too long because the shadow from the moon had only moved 1-2 inches from were it was when I just drank from the watter bottle a few minutes previous -- so, not that long :)
+
+[1]: it seems to be the pattern that every time there is conflict or strong desire for things to be different, then I start to regain consciousness. it seems that if they're not trying to force things, then my astral-self(?) doesn't mind interacting with them.
 
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
