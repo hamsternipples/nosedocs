@@ -10104,6 +10104,8 @@ Saturn, FOURTH RAY, Keeper of the Law; particularly the laws of karma. Note that
 
 somehow a problem developed with his daughter (andrea), who I would not hestitate to identify symbolically also as venus. you all know that story there.
 
+after that whole thing fell though, I'm sitting at vera's house smoking weed with her when all of a sudden I have this realisation that this jesus guy just simply transfers his consciousness between bodies and I'm just the latest version of that. this was the beginnings of the san junipero idea.
+
 when we come back I will talk about how this all ties in together with thoth.
 
 [1]: it's a good thing that I've learned so much from her because nosebook has her pretty well shut down. however, I think they're probably beginning to realise that she always gets her way, and any attempts to do something otherwise result in certain destruction.
