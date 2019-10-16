@@ -10174,9 +10174,9 @@ I will eventually transfer my consciousnesses back into their reality again (alo
 
 ---
 
-so, you may wonder to yourself, doubting that the entire planet will follow me back into this timeline, so what will happen then when we all leave? well, they'll all be on creation by default, so whatever happens when a civilisation makes it to hyperspace :) I dunno yet. we'll have to find out :)
+so, you may wonder to yourself, doubting that the entire planet will follow me back into this timeline, what will happen then when we all leave? well, those who are not conscious will all be on creation by default, so whatever happens when a civilisation makes it to hyperspace :) I dunno yet. we'll have to find out...
 
-it'a kind of an interesting thought experiment, because assuming that in this coming time split, their consciousness all heads in the direction of unwanted to be able to readjust their direction easier without a whole lot of momentum -- that means that "they" (minus their consciousness) are still going to be here, so they're going to become another of thee many other versions of theirself, creating by default in the space that feels the way it feels.
+it'a kind of an interesting thought experiment because assuming that in this coming time split, their consciousness all heads in the direction of unwanted -- to be able to readjust their direction easier without a whole lot of momentum -- that means that "they" (minus their consciousness) are still going to be here, so they're going to become another of thee many other versions of theirself, creating by default in the space that feels the way it feels.
 
 so, if a whole bunch of people who consciously choose to feel good, all peace out to go to a different timeline, what will happen to the consciousnesses that don't choose to go? I really don't know. if enough people consciously choosing to feel good, go, then would it become another crash and burn for them? I dunno... I guess it's up to them.
 
