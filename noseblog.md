@@ -10166,6 +10166,21 @@ we have no real way of knowing what that reality will be like because it'll be s
 
 remember that every possible version of you exists, and you navigate with your emotions.
 
+### 2019-10-16 11:51 - an interesting thought experiment
+
+continuing on from the narrative in the previous entry:
+
+I will eventually transfer my consciousnesses back into their reality again (along with many others of you) to gain even better capacity to navigate with our emotions, and to setup another pretty epic situation similar to what is happening now. this is the way to eternal life, or the path to immortality that tesla mentioned.
+
+---
+
+so, you may wonder to yourself, doubting that the entire planet will follow me back into this timeline, so what will happen then when we all leave? well, they'll all be on creation by default, so whatever happens when a civilisation makes it to hyperspace :) I dunno yet. we'll have to find out :)
+
+it'a kind of an interesting thought experiment, because assuming that in this coming time split, their consciousness all heads in the direction of unwanted to be able to readjust their direction easier without a whole lot of momentum -- that means that "they" (minus their consciousness) are still going to be here, so they're going to become another of thee many other versions of theirself, creating by default in the space that feels the way it feels.
+
+so, if a whole bunch of people who consciously choose to feel good, all peace out to go to a different timeline, what will happen to the consciousnesses that don't choose to go? I really don't know. if enough people consciously choosing to feel good, go, then would it become another crash and burn for them? I dunno... I guess it's up to them.
+
+
 # the end
 
 ### 7 years of tribulation (continued)
