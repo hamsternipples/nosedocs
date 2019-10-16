@@ -10110,6 +10110,67 @@ when we come back I will talk about how this all ties in together with thoth.
 
 [1]: it's a good thing that I've learned so much from her because nosebook has her pretty well shut down. however, I think they're probably beginning to realise that she always gets her way, and any attempts to do something otherwise result in certain destruction.
 
+###  2019-10-16 10:15 - heading in the direction you point yourself consciously
+
+I had an interesting reaction from the neighbour which provoked some thoughts on the subject of navigation, which I decided I wanted to actually write down.
+
+the reaction was about the whole thing kind of spiralling out of control a bit. I wouldn't disagree. I think it's going to become a huge mess here shortly. the main reason is I really want to go in the direction of what's wanted. I'm constantly trying to figure out different ways to go that way. the last time I was smoking, that was what I was carrying o about the whole time, trying to find ways to kind of ease things in without any big jumps.
+
+since then, it appears that things have worsened a bit (a lot?), and it seems as if there is even more conscious determination to go in the direction of what's wanted (for them). they don't *really* want to try and control everyone and everything, and they know they don't really want to also, because if they were going in the direction of what's wanted, there wouldn't need to be so many secrets. they really want secrets.
+
+well, I tell you what there's no faster way to get more secrets that need to be kept, than to have to try and cover up another disaster that they caused, know what I mean? this is clearly the direction they want to go, because they're giving all their attention to making sure all the unwanted stuff they've done or created remains a secret.
+
+---
+
+when I was at the beginning part of my disaster, zaryn, raquel, mom, luke, etc. were all telling me that things were headed in a bad direction, but I was unable to hear them. I had already given far too much attention to unwanted things in my past, that momentum in my life toward disaster was quite literally unstoppable.
+
+it would have been pretty close to impossible for me to try and steer something with that much momentum in a different direction. I simply *had* to crash and burn, then once I've crashed, momentum is pretty near to zero, so then it's much easier to pick a different direction toward something wanted.
+
+jerry has mentioned this on numerous occasions, and I've found that the real reason why crashes need to occur is because it's hard to turn something going real fast. imagine a fighter jet going mach 3. if all of a sudden, the pilot wanted to go exactly in the opposite direction he's currently headed, he would need to either slow way down first or take a very wide turn, because if he were to turn and pull down hard on the stick making a really tight turn, the blood would rush out from his head and he would black out.
+
+anything with a lot of speed or momentum cannot easily be turned around without causing difficulties for anything inside of it. this is just how physics works; it's a property (law) of the universe.
+
+---
+
+right now, our realities have too much in common with each other, so we continue to share the same reality.
+
+every possible version of you exists, there are more advanced versions of yourself and there are less advanced versions of yourself as well. however, you experience yourself through your consciousness and you navigate between all these different versions of yourself consciously by the way you feel. when you feel better than ok (with yourself and your environment), you're headed in the direction of all the good (wanted) things that are "in your vortex". likewise, when you do not feel less than ok, you are headed in the of all of the unwanted things "in your vortex".
+
+you navigate this consciously by making decisions to perceive your environment and yourself differently so that you feel better about them. every time you do this, your consciousness moves between each of these infinite yous that exist.
+
+you might say, well, then all these other mes are kind of like zombies or something? well, no they're all reactionary. they are all creating by default, and their reality is in perfect harmony with how they feel. you could think of all of these other yous as automatons, and they live, learn, interact, etc. exactly the same way that you would, given that you live in a reality that feels that way.
+
+however, you have a non-physical part about you which has desire to feel differently than the way you do right now. when you want (desire) to feel better, it will offer you a way toward feeling better. however, here on the physical plane, we're often times not so connected to that non-physical part, and we have other ideas of things that can make us feel better. so, in our state of disconnection, we can't get those clues so easily, so we default to using our logic to reason our way toward the things that will feel better. that's where it goes all wrong, because the logic that we are taught growing up does not usually take emotion into account.
+
+much of our logic tells us to feel bad, and we do not really understand that anything feels better than depression or disempowerment or powerlessness. most of our society teaches us to even if it feels bad, follow the guidance of the authorities. most of our society teaches disempowerment until you've jumped through all the contrived hoops, so that that those with power can grant you a sliver of power. until you've met their contrived set of conditions, you are forced to live a life in a state of powerlessness.
+
+---
+
+none of that matters though, because you have all the power. you can feel exactly how you want to feel, and eventually those that are incompatible with how you feel will vibrate out of your experience.
+
+this is precisely what has been happening in my life. I have generated logic such that it is now inconceivable for me to possibly entertain thoughts any more that don't feel good. it does not matter any more to me what anyone else is doing or any other perceived power they may have over me, my direction is headed in a way which feels good.
+
+I am secure in my knowing that my consciousness is moving in a direction that feels good, and that's why I'm not at all concerned about anything that is happening. there is nothing that they could possibly do to try and disempower me anymore because I am nearly 100% in control of how I feel now.
+
+this is where I hope to see all of humankind in the future, but in order for that to be so, there needs to be some really disconnected people with very strong logic telling them that they need to ensure that everyone, cept for the cool kids, are all disempowered, and that they hold the keys to material empowerment, so they are in control and there are lots of people depending on them for their feeling of empowerment. that's the illusion they have built up to believe that is the only way that they can feel good. when they have all of that, *then* they can move in the direction of what's wanted.
+
+---
+
+that's kind of the bigger picture, so you can imagine that right now while they still believe that I am their path toward feeling better, and while I still have not yet made 100% certainty that the have no power over the way I feel, our realities still cohabitate. soon though, I will no longer capable of being their road to feeling better, so our realities will become incompatible. people who want to maintain their disempowerment reality will continue on with them. those who are resonant with my "emotions navigate your reality" message will come with me.
+
+you can imagine that it's sort of like a tug-of-war sort of thing, but eventually the tie is going to break and, like a slingshot aiming at a target, the time taken to take aim and pull the projectile back, the projectile is moving *away* from the intended direction (cause you're pulling it back). so, even though it looks like we're moving *away* from the intended direction right now, it's gathering more and more potential energy which will be converted to kinetic energy as soon as the compabible reality rope breaks.
+
+we have no real way of knowing what that reality will be like because it'll be so different than the one we're experiencing now, so it's really difficult to predict anything other than more and more tension. just hold on and remember to find ways to perceive your reality in a way which feels good.
+
+---
+
+remember that every possible version of you exists, and you navigate with your emotions.
+
+# the end
+
+### 7 years of tribulation (continued)
+### venus & mercury story
+
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
 
@@ -10140,7 +10201,6 @@ http://grahamhancock.com/phorum/read.php?1,47200,47200
 
 
 
-# the end
 
 ## stuff
 
