@@ -10220,6 +10220,36 @@ this process of holding the feeling it's kind of an artform. children do it with
 
 it really is that easy though.
 
+### 2019-10-17 09:52 - emotion and structure
+
+while writing the previous entry, I happened upon another idea which I hadn't thought about before. I'm going to kind of think about it "out loud" here.
+
+> the structure is all of those expectations about what should work (these have accumulated from past experience of unwanted) and the way it feels.
+
+previously I had always thought about the structure of something as some sort of formulation of mathematical like logic, showing the dimensions and shape of the way it should be, but it occurred to me when writing that, that wanted is clearly desire, and unwanted I had always perceived to be desire in reverse. for example the desire for security is the opposite of fear.
+
+however, it seems apparent to me now that fear is a manifestation of *desire*, not of unwanted.
+
+unwanted is actually the structure. I gave the example of the house that you know you want to have properly operating doors, resilience to bursts of wind, and one other thing... anyway, I didn't realise that structure is actually the accumulation of all of the things unwanted
+
+(I just turned off my spell checker so things may get kind of bad spelling from here on out, however the characters appear on the screen much faster now, yay. maybe I'll actually reread what I wrote -- but lol, I doubt it.)
+
+---
+
+before I bring in the emotion aspect to it, imagine how DNA may work. there are literally bazillions of different ways that cells could fit together to create complex structures, but the majority of them do not make useful things. if you were to write a genetic algorithm, one of the things that needs to be avoided is to keep trying things that don't work. the majority of DNA would be a predefined structure, like say a human or an animal, all of the the different species share a core genetic structure (genus), so probably the core variables are not very easily influenced, but stuff outside of that core genus, nature is constantly experimenting with and trying new things out. each attempt would probably create a non-coding dna bit that essentially says, "don't make this; it doesn't work".
+
+looking in the long term, imagine something like a drastic change in engvironmental conditions where more and more experimental species fail, there would a huge accumulation of a whole lot of non-coding fails, such that after a while the complexity of stuff you don't want to do arrives to be so much that there's all this stuff that doesn't work floating around, that some (unknown to me) process occurrs which takes all of these unwanted non-coding strands and creates an entirely new genus.
+
+I think the easiest one for me to perceive would be the dinosaurs. imagine that all of a sudden gravity increased drastically, nature would all of a sudden have lots and lots of failed species that are no longer capable of walking, so that the gnome keeps evolving to become lighter and lighter until what we know as bird birds emerge from all of this "unwanted"
+
+---
+
+above, I said "unknown to me" -- because I do not really understand how emotions work on vibrational level and how they influence our gnome, but I imagine that what we call emotion, has a striking effect on the genetic structure of organisms.
+
+so imagine that some sort of thing is in the middle of evolution. I defined the structure of that organism as the expections of how things should work, so there needs to be a feedback mechanism which "selects" the ones that work from the ones that do not. this feedback mechanism can be perceived as a sort of meta-conceptual structure or language which reacts or produces some sort of feedback based on how things "feel" when they're working (and when they're not working).
+
+it's really interesting to look at out genetic code as an extension of this emotional construction we tend to take for granted. there probably really is very strong merit to the idea that our bodies (and gnome) is highly influenced by the way we feel in the abstract sense regarding the way we feel as we travel through life, and not just in the physical performance sense of being able to fly, walk, swim or run, with ease.
+
 # the end
 
 ### 7 years of tribulation (continued)
