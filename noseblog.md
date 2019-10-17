@@ -10180,6 +10180,45 @@ it'a kind of an interesting thought experiment because assuming that in this com
 
 so, if a whole bunch of people who consciously choose to feel good, all peace out to go to a different timeline, what will happen to the consciousnesses that don't choose to go? I really don't know. if enough people consciously choosing to feel good, go, then would it become another crash and burn for them? I dunno... I guess it's up to them.
 
+### 2019-10-17 08:47 - thoughts on creating your reality feeling and emotion
+
+I got the sense this morning that the reaction that I felt yesterday was incorrect, however, it evoked the previous entry and I think that was important. I felt the relevant parts were the ones where I mentioned that even though it looks like we're moving away from the intended destination, it's like a slingshot, where at first you are accumulating potential energy as you move away from the target as the projectile is pulled back. this is really how all "contrast" works. you can think of "unwanted" as the pulling back of the slingshot. when released (going in the wanted direction) it goes way way further than it did in the pulling back (unwanted) direction.
+
+second, I wanted to mention that because so much potential energy has accumulated, there's no way to really know what it'll be like because it'll be so much different than it is now. this seems to be the nature of this sort of extended accumulation of contrast before finally going in the direction of what's wanted. you find the direction of what's wanted emotionally.
+
+---
+
+however, all that is great and stuff but it really gives no real explanation of how to do that emotional navigation. while thinking about it this morning, I came up with some thoughts that I had never thought before. I never thought about them this way because emotion for is already essentially reality. however, I get the sense that she's a more detail oriented person than I am, so I was thinking about it from a new perspective, where details are perceived and that produces emotions. so, here are some thoughts.
+
+I will begin as always by recognising that any time something feels bad, that means the thing (or it's details) are being perceived from a perspective which doesn't feel good.
+
+so, all one would need to do is to find a way to change that perspective, right? it's easier than it may seem at first.
+
+I think of details as a certain sort of expectation. expectations are a combination of your desire and your belief about how those desires should/could manifest in reality. we're logical beings and we know that certain things should be a certain way to feel good. we know that houses should remain standing during a blustery day, plumbing should work, doors should open, etc. -- for it to be a proper house. that part everyone can agree on, so we're not talking about that, so in this case details would take the form of trying to figure out all of the decorations and furniture before the house is even built.
+
+it's almost always easier to work out the details once the structure is built. the structure is all of those expectations about what should work (these have accumulated from past experience of unwanted) and the way it feels.
+
+for example, let's say you want a kitchen that has a island thing, a dishwasher, a granite sink and good lighting. it sounds really good and wanted, but I would say that it may be more difficult to find a house with that exact kitchen than it would be to just know that all of the expectations based on unwanted are a given (eg. no broken plumbing, leaking garbage disposals, etc.) and instead feel the way you want to feel when you're in the kitchen.
+
+after all, the reason you have come to the conclusion that you want all of those details, os because you want to feel a certain way while you're in your kitchen (and you think those details will make that feeling possible).
+
+also, admittedly it does seem possible that there are potentially other kitchen designs which could feel the same or better, and the current kitchen idea is just the latest in long series of kitchen dreams. there may be better versions, but they're going to be near to impossible to find looking at a million specifications and blueprints. so then, what we're looking for are kitchens that *feel* better than the previously imagined height of kitchenhood.
+
+---
+
+how do we go about that though? here we are in the present and the kitchen in front of me is not what I want it to be. I know it can be so much more. I like to pick out all of the things that feel bad to me. these are my clues to the improvements what I want. when I say, feel, I mean feel, so like identifying that the electricity next to the sink is rotting is *not* what I'm talking about. perhaps the kitchen feels dingy or unmaintained. identifying that is the key because you want the kitchen to feel like it's new or well maintained.
+
+once focused on the way the kitchen feels bad (let's say it feels dingy and unmaintained), then all of a sudden it feels like a complete no-brainer to get he electricity fixed next to the sink. that and likely many other things, like say accumulation of crud in the grout, all seem like things that need to be done to make the kitchen feel the way you want it to feel.
+
+---
+
+that example was a repair situation though, so what about the house that's not yet built? admittedly it seems a lot easier to determine ahead of time how you would want the unbuilt house to feel, yet very few people actually put much effort into conceptualising how the new house will feel; instead, they just expect the new house (or girlfriend) to feel good because it's new.
+
+my favourite technique is to find the feeling of something and try to hold it for as long as I can before my imagination spins off into some sort of "visualisation" of what I'm feeling. these "visualisations" are kind of like mini-realities and a lot can be determined from them. once the scene plays out a little bit, you will have a feeling response to that idea. then, I like to take that feeling and and figure out how to make it better. if the feeling had unwanted parts, I try to figure out what is the opposite that feeling of unwanted and then try again.
+
+this process of holding the feeling it's kind of an artform. children do it with ease. that is in fact what they are doing most of their childhood. for us adults, we're so goal oriented, it seems too trivial for something like this to be so easy. if it feels like it's not luxurious enough, then obviously it should feel more luxurious -- that's it! if it feels difficult, it should feel easy. more specifically, imagine you see someone with big boobs and you're a child, so you imagine yourself with big boobs and feel how that feels. maybe you don't like how that feels physically. maybe you never thought about how it feels physically, but instead were fixated on how it makes you feel more maternal or something. the refinement process is iterative and comes from observation of things wanted and unwanted, just like a child does. it's so simple, it feels perhaps almost too childlike.
+
+it really is that easy though.
 
 # the end
 
