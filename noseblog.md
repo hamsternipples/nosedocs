@@ -10250,10 +10250,50 @@ so imagine that some sort of thing is in the middle of evolution. I defined the 
 
 it's really interesting to look at out genetic code as an extension of this emotional construction we tend to take for granted. there probably really is very strong merit to the idea that our bodies (and gnome) is highly influenced by the way we feel in the abstract sense regarding the way we feel as we travel through life, and not just in the physical performance sense of being able to fly, walk, swim or run, with ease.
 
+### 2019-10-18 10:25 - enjoy jaron's form of perception
+
+before all of this occurred I was sitting outside staring at the clouds when I had a few realisations that seemed more than normal. first, take the idea that since they have shown up in my life, I have had literally *zero* successful things. not one thing I've put my mind to has turned out successfully since they've been involved in my life. obviously this isn't the case for everyone in the world, but it will likely become the case for jaron now.
+
+after that, I realised that they do not want me to be successful. they actively work hard to make sure I am not successful. I kept getting the phrase come into my head, "we're not manipulating and controlling, right abraham?" that came along with my thinking about how they're trying their hardest to steer the unsteerable people, which will, considering LOA, only make their unsteerable people problem bigger. I determined that they're going to try and make the whole population unsteerable by focusing all your attention on the unsteerable ones.
+
+thinking about that I realised that they don't actually learn from their mistakes; instead, they just cover them up. they really perceive theirselves as failures and so that no one else ever finds out how big of a failure they perveive theirselves to be, they need to cover up their falures instead of learning from them (lol).
+
+after those series of realisations, I went inside to wait for the clouds to clear only to find myself in the beginning of a weird set of events which took place starting with them force ejaculating me in this bizarre dream with melissa where we were fighting(wrestling?) and I had to reach around her to put my hand on her vagina or something weird like that. when I barely even touched it, that's when the typical feeling of forced ejaculation came. my butt hurt a little but not nearly as much as the times previous.
+
+I then had these weird things where I would go between dream and wake state for a some time while greg gave jaron a pep-talk about his relationship with zara. I finally fell asleep after that and woke up at 3am with the idea in my mind, "fine you don't want me to watch stars, then I won't watch stars. I can just take a break from it for a long time. we'll just see how that works out" I went out to smoke a cigarette and think about it. it seemed like a reasonable isea. "you can't get it wrong and you can't get it done."
+
+then there was this weird dream I had where I was put inside of this police place and told to wait. I needed to go to the bathroom, but it seemed as if there was none. I talked to this mexican guy in spanish but he suddenly didn't know how to speak in spanish, then he tured into a little girl with a pacifier who kinda knew spanish, but she clearly didn't understand things like, "then this place doesn't have a bathroom?" I guess they allowed me to wake up after that and I had a terrible time trying to pee.
+
+---
+
+anyway... enough about that story. I think I figured out what's happening. the reason why jaron has had all of these appointments that have been incorrect the last few days when I haven't fell asleep when they thought I would, and the reason why jaron made a funny reaction this morning when I said "to make sure and feel as bad as possible when going to the therapist; you don't want to go to the doctor when you're well" is because he's not going to the therapist.
+
+they have been been trying to get me and jaron to sleep at the same time, so that they can presumably move people's imaginations over from my form of perception to jaron's form of perception. I think this has been happening for some time now, but they have rapidly acceledrated it probably because they feel some sort of deadline is approaching.
+
+---
+
+there are a few things that I will mention here, because they stood out to me. one, if I decided to simply stop watching stars, then there's no risk of me going up a dimension any more. how in the world am I going to go up if I completely stop increasing my energy output. the only way that I would go up, is if they decided to stop holding my back -- which means there's not going to be a time split, because they will have conscoiusly chosen that path.
+
+second, jaron is a whole lot more compliant and "steerable" than I am. he just does what the authority in his life tells him to do and still believes that the people telling him what to do have his best interests in mind. he is in that regard much more vibrationally similar to the rest of the world. so having the rest of the world now on his form of perception will probably make amazon's lives easier now, because people will be more likely take jaron's form of perception, which is to just do what they're told/expected to do by the parents/authorities. great! I guess that's one solution to the realisation I had earlier about there being millions of people who want to be steered, and they choose me (and probably henrietta too), as the ones they want to try and force or steer. that sure is one way to do it, that I hadn't thought of myself... I suppose we'll see how that goes.
+
+---
+
+one thing that I hadn't really thought of until putting these pieces together though, is perhaps there may be exeptions to this rule though. they're going to try and cling on to this timeline for as long as they can and steer it as best as they can, so there will be all sorts of extra contrast, which will increase energetic output. in addition, I think that my form of perception was far more compatible with everyone else that perhpas jaron's may be, so I find it likely that will produce stronger desire in other people for a form of perception which is more compatible.
+
+this is where I think the girls could really come into play here. imagine that we're now doing stuff together and they manage to break out into their own form of perception and imagine that other people having the same experience follow along. this could mean that jaron's form of perception is considered the default form of perception, then the girls as they begin to go up will allow people options for new forms of perception. I guess that could be kind of cool :)
+
+---
+
+I guess we'll have to see. and, I'm not totally sold on this whole no star watching thing anymore. I'll probably flip s coin to decide it cause perhaps that decision was exactly what was needed for them to begin moving people over to jaron's form of perception. I dunno.
+
+maybe the timeline split is actually at the "end", when I make my transition into a multi-bodied experience. things keep changing, so I dunno really.
+
 # the end
 
 ### 7 years of tribulation (continued)
 ### venus & mercury story
+### making the whole population unsteerable...
+... by focusing all your attention on the unsteerable ones
 
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
