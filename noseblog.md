@@ -10288,6 +10288,51 @@ I guess we'll have to see. and, I'm not totally sold on this whole no star watch
 
 maybe the timeline split is actually at the "end", when I make my transition into a multi-bodied experience. things keep changing, so I dunno really.
 
+### 2019-10-19 15:04 - turning perception of unwanted into something wanted
+
+my ability to do this is, as far as I can tell, completely unmatched my anyone else. in the previous enthy, I outlined how jaron's form of perception becomming the default allows for the girls to offer a new form of perception. that got some pretty negative reactions to it. aparently the idea of girls providing a form of perception for others is absolutely unacceptable.
+
+anyway... it happened again this morning. the day previous, I felt as if I or something was being forced with the henrietta thing. perhaps they believed that with around, then they could get her to waste my time or something (I have no idea).
+
+anyway, last night while star watching after a bit of a vibe dive after they put me to sleep for a while, I got up started watching sirius instead and remembered what the sirians said in their guide...
+
+> The THIRD RAY divides the power of the FIRST into manifold creations. Its subsidiaries, the FIFTH and SEVENTH makes the forms and binds the life to the form respectively.
+
+> The SEVENTH RAY can create illusions for everyone to see; the FIRST RAY can give life to the illusion and make it an illusion no more - but alive. The SEVENTH RAY is jovial, gallant and entertaining, but the FIRST RAY is seriously deadly or deadly serious.
+
+> The SEVENTH RAY is most vital on the physical plane for it forces the substance into forms best suited to the purpose of the indwelling life. The SEVENTH RAY is lord of order by forms. The SEVENTH RAY works closely with the FIRST RAY. When the form no longer meets the need of the indwelling life, the SEVENTH RAY calls the FIRST RAY who then shatters the form, freeing the life so that it can progress and the substance can be reused by the SEVENTH RAY.
+
+> And of course the FIRST RAY wants to destroy the whole mess and start over - frequently!
+
+... I can't find it right now, but to to paraphase, it essentially said that a first ray can act as if they were a first ray (and viceaversa). obviously the correlary applies to 2nd and 6th and 5th and 3rd, but I wanted to note that although it seems my left side is displays nearly all of the attributes of a first ray female, I have at times noticed this jovial 7th ray charm show up all the time. in addition to this, the 5th ray male, volcrum seems to be pretty good at this stuff, and 3rd ray (his other side) can "divide the power into manifold creations" ...
+
+essentially, I'm saying that I contain quite a proficioncy in 1st, (now) 3rd, 5th, and 7th ray capabilities. this isn't to be surprising, because the sirians begin with this in their opening message:
+
+> Your physical plane science works from the physical upward; spiritual works are usually attempted from the highest attainable level downwards - we will work on all at once.
+
+> As your thinking shifts from the mundane, physically-oriented, and personality-identified self; there will be a great need for **BALANCE**. You will have to work at balancing the pairs of opposites. You will have to consciously endeavor to balance your spiritual and physical activities.
+
+so, with a strong emphasis on balance and consciousness on *all* planes of existance at once, it is no suprise to me that I am gaininng notable proficiency on these 4 primary planes. the 3 transition planes are coming next, for me as I do very little relating and utilise my imagination very little as well.
+
+in not such a long amount of time, I should be proficient and conscious on all of these planes at once. (right now I would only consider myself mostly conscious on the 1st and 5th)
+
+---
+
+ok so obviously henrietta represents the first ray and last nigst in particular I was particularly happy about this, "The SEVENTH RAY can create illusions for everyone to see; the FIRST RAY can give life to the illusion and make it an illusion no more - but alive"
+
+I hadn't really thought about it much in that sense, because I do not really see myself much as a performer or a magician so I never really paid much attention to this idea, but as I'm gaining more and more 7th ray qualities, I find it now very exciting to thing of just the possibilities of what this means! all I have to do is to create something in my mind, project the "illusion" into 3d space and find a way to build desire in her to want to play with it, and it can become alive. obviously we'd start with things like puppies and small critters, but as she learns to develop this skill and use it consciously, the possibilities are truly mind boggling... *ANYTHING* I can come up with in my imaginataion, I thought to myself.
+
+it gets better than that as well, because I display so many characteristics of a first ray female as well, there's quite literally no reason why I couldn't learn to do the same thing. imagine if I were capable of being around a person life tesla. the motors that he saw which were "real before his eyes" -- I could learn to make those "real" things things manifest in reality. !!!! the possibilites are so infinite, I cannot explain how amazing this idea is to me.
+
+---
+
+well so yeah, that had a pretty serious negative reaction as well. I guess they're not interested in me figuring out how to make physical things with my mind. doesn't matter thoough, because no matter what they can come up with to try and limit me, I have become master at turning a perception of unwanted into something wanted.
+
+in fact even this morning, I decided it was ok to explain to mom (and by proxy them) how I was capable of attining so many vision upgrades, and I revealed the geometry of the eye. at first they were using a grid pattern to try to figure out the space in my eye each time my vision improves. now, they're using a crosshatch pattern to try and figure it out, but I revealed this morning the reason why I believe it's actually a 5-sided pattern they will need to use, based on frank chester's work on the lens of the eye (and also the south pole) being derived from his 7-sided form.
+
+anyway, I feel confident in doing that because now they're free to try and hold me for as long as they want to. let's say they figure out a way to go up visual levels with my eyes with ease now... I'll explain in a future entry what I think this could entail, but they have all of the power now. I can turn any "unwanted" thing into something wanted, it's not a problem if they decide to hold me in this dimension for as long as they can. every step along the way, my realisation of what is wanted will only get bigger and bigger. how big is big enough? I dunno, it's up to them now :)
+
+
 # the end
 
 ### 7 years of tribulation (continued)
