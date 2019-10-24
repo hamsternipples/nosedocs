@@ -10332,6 +10332,57 @@ in fact even this morning, I decided it was ok to explain to mom (and by proxy t
 
 anyway, I feel confident in doing that because now they're free to try and hold me for as long as they want to. let's say they figure out a way to go up visual levels with my eyes with ease now... I'll explain in a future entry what I think this could entail, but they have all of the power now. I can turn any "unwanted" thing into something wanted, it's not a problem if they decide to hold me in this dimension for as long as they can. every step along the way, my realisation of what is wanted will only get bigger and bigger. how big is big enough? I dunno, it's up to them now :)
 
+### 2019-10-24 10:03 - the effect of DMT on the brain
+
+@[youtube](https://youtu.be/ExrihN6vjYM?t=7357)
+
+```
+questioner:
+what does DMT do in the brain as a nurotransmitter?
+
+terence:
+we don't know. nobody knows what it's doing there, and as long as the government makes it impossible for science to pursue rational answers to these kinds of questions, it's not likely we'll ever find out.
+
+the best guess so far is that it mediates attention. that, for instance if there were to be a noise over here or a movement and I turn -- that's a little spike of DMT makes that possible. it's where you suddenly narrow your awareness and prooject it deeply into a single small confined area.
+```
+
+terence's answer was very enlightening to me and helped me to understand what is happening when I watch stars. he's essentially saying that DMT regulates how your brain focuses, or rather that it's a symbiotic relationship. when focusing, DMT increases, which is why meditatating will increase DMT levels in the brain, and why instensly focusing on a star will also increase DMT levels in the brain. so, when focusing intently on anything really, it seems to increase DMT levels.
+
+there was another thing that terence talked about in a different talk about human's relationship with drugs, and how caffiene is essentially the only state-approved drug, because it increases productivity and focus.
+
+amazon playing around with the DMT levels in people's brains is probably the new version of state-approved productivity enhancing caffiene. it can allow for people to be more productive and focus more intently which is good in a mechanistic culture where everyone is just considered a cog in the big machine.
+
+---
+
+however, you maybe have noticed that maybe too much attention and focus can become something they don't want. they are deeply troubled when I get my hands on coffee, weed, or other things that increase my ability to focus, because likely this tells my brain to make more DMT, and that's probably something they don't want (for me).
+
+so, what they have been doing is regulating my ablity to focus. this is what they have been doing and has prevented me from making any serious progress on anything I've set my mind to since they've intruded into my life experience.
+
+---
+
+so, now looking at this from the point of view of what may be happening in peoole'a brains that are not my own has some interesting things. it seems to me that DMT levels are greately enhanced in *everyone's* brain -- or, at least the ones that are around me. from my perspective, it appears to me like the entire world is going through a drug experience, yet without having any of the hallucinatory effects. what I mean is, when I observe others and (but mostly) myself on heightened states of DMT, I notice that I am much more presently focused -- that is, I seem to be much more centred around the idea of what is happening right now (in this crazy experience) and I seem much more inclined to take risks and want to discover new things, that I normally wouldn't pursue either[^1].
+
+so, when I see a bunch of people kind of floating around totally chilled out about this mind bending reality our planet has entered into, I cannot help but to see a bunch of seriously psychologically influenced people. they're not being influenced by a drug, but by something with nearly the same effects. from my perspective, it really looks like they are manipulating as best as they can where people put their focus.
+
+---
+
+it's kind of funny to me to think about the long-term effects that this will have because, it looks to me like they're attempting to utilise this as second-generation caffiene, but what they're going to produce is a whole lot of people with my level of sensitivity. oh sure, they'll be able to control it for a while, but the problem will continue to expand just like what's happening in my life.
+
+I have never had such a difficult time focusing my energy (physically or mentally) on anything as I have since the end of 2012 when raquel and I broke up. I figured at first the loss of focus was to do with the breakup, but I'm actually convinced now that previously when I would focus I would create more DMT, and this has become now a highly regulated thing in my brain, where I'm running on a very low capacity. howover, I keep finding more and more ways to increase my ability to focus and so even though they have their intended levels that I should be at to maintain what they would consider a normal experience[^2].
+
+so, because DMT acts like an amplifier of attention, which is why you perceive "more", I can now see clearly that this situation we're all now in is just making the extremes even more extreme. I will place people now into four categories, excluding the "no change" category, because I believe that even if it looks like there is no change, that's only the neutralisation effect to try and maintain a sense of normalcy. these people will fall into the cantegory of increased pursuit for discovery (of technical subjects, science, arts, boobs, or hotter girls, it doesn't matter), or decreased desire for noveltiy and an emphasis on stability over risk or unchanging subject matter.
+
+the effect does not seem to be a universal applicant of desire for more discovery, but seems to have this effect on all areas of one's life at once, amplifiying them all. I imagine that, *in some areas*, people stuck in their ways are raelly getting stuck hard and at the same time, *in other areas*, people are really gaining a stronger sense of increased sense of focus and discovery. however, both of them: the stuck areas and the areas of desire for incraesed discovery (alike) are likely experiencing a dampening force applied to that amplification, which is this normalisation process of trying to hold everyone's DMT levels at a "normal" spot[^3].
+
+basically, what I'm saying is that everyone who does not on the "more" train will eventually disappear or learn to embrace the "more" (lol I sound like daft punk here). when I say embrace the "more", I mean both sides: more discovery, suspicion, paranoia, perception, attention, awarenesss, etc. or, more stuckness, more monotony, more predicitability, or more control. it goes both ways. things are going to get WAAAAYYY extreme here, and it's all because the effect seemed to have the effect on them as wanting more control.
+
+welcome to the DMT dream :)
+
+[1]: however, I have observed this same effect in other people (or in myself, when for example I'm *reallly* stoned), and they seem to be less inclined to take risks. it seems to be an amplifier in the way of discovery, actually. so instead of taking risks, I would say that it implifies the desire to pursue discovery. or, the opposite end of that is, for example on a bad trip, the side where I just want to stick to what I already know and not discover anything new. I think children typically have more DMT floating arond in their heads too, because early impressions on a child will enhance their pursuit of discovery or retard their sense of discovery.
+
+[2]: which is why, like last night, they need to make snowstorms essentially to make me sleep so they can perform some sort of operation on me while I'm unconscious to try and get me back to "normal" levels
+
+[3]: we know from our experience observing nature, that any time anything is artificially held a certain level (like our climate, for example), things become more extreme. if the subject of this normalisation is typically below the intended level, the parts not able to handle the new intended level will die off (or move elsewhare) and they will increase up toward the intended level, however nothing ever stays the same and everything always becomes more, and getting "used" to constant increase, they will overshoot the intended level, and now they are the other case where they are above the intended level and need to be reduced or normalised down to the intended level. this only creates more cause now they feel like they're artificially being held back, and will create desire for increase.
 
 # the end
 
