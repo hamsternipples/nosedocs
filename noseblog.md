@@ -10384,6 +10384,48 @@ welcome to the DMT dream :)
 
 [3]: we know from our experience observing nature, that any time anything is artificially held a certain level (like our climate, for example), things become more extreme. if the subject of this normalisation is typically below the intended level, the parts not able to handle the new intended level will die off (or move elsewhare) and they will increase up toward the intended level, however nothing ever stays the same and everything always becomes more, and getting "used" to constant increase, they will overshoot the intended level, and now they are the other case where they are above the intended level and need to be reduced or normalised down to the intended level. this only creates more cause now they feel like they're artificially being held back, and will create desire for increase.
 
+### 2019-10-28 10:22 - you don't need me to get it
+
+I had this idea passing throug my head last night that went something like this: it seemed likely to me that what is happening is that things are once again being delayed and the reason is that it's a something of a repeat of what happened to me with andrea. I feel like I've wrote this before. it may have been something they tried to get me to do when I was in a dream or something like that. sorry if I'm repeating myself.
+
+when I was back at marcos' house, I really wanted to converse with source energy like jerry was able to do with abraham. I determined that andrea was the potentially the easiest way for me to get there, because of her similarity personality-wise to esther (and my similarity to jerry). it was easy to perceive her similar to esther in the way that she also had a father that was an alcoholic, and she seemed to (in moments of internal happiness), tend to say the wrong thing or whatever causing a huge disturbance. the similarities were (in my opinion pretty uncanny). you may not be able to see this so well today because she probably is very different from how she was when she was younger.
+
+I recognised this difference and even had an impatful dream where it seemed like I was about to get married to someone that I did not even know or recognise. the feeling was perhaps sometihng more like, I was going to be stuck in a relationship with someone who appears now very different than how they used to be.
+
+that realisation was the trigger to this concept, which got activated to to the feeling I felt in response to the neighbour's reaction to my perception that it seemed normal to me that women like to arrange relationships and micromanage the organisation around them. it as a feeling of something like, "but I thought you were on our team."
+
+I'm not on anyone's team. in my perspective, the only team I am on is my own. it's me vs. team nosebook. there really is no other way I can really pereceive it. you guys *must* do what they want you to do, or else ... (I dunno what they tell you is is consequence, actually) -- but certainly I do not have a "team". I don't expect anyone to follow me and I don't expect anyone to join forces with me to try and defeat the bad guys. that is *clearly* something of the last age (of pisces), and its usefulness has completely worn out -- though, I'm sure that nosebook will try and carry it on for as long as they can because their entire thing is built on such a concept. their job is to full run that idea into the ground.
+
+my thing is more about individualistic expression and belief in oneself. so, in that way, you do not need me. I think that's what is happening here.
+
+after the dream where I felt as if I was getting stuck into a relationship with someone that waz not the same person that I thought them to be, things began to disentigrate quickly. soon I was kicked out of marcos' house, and went to go live with vera. from there I finally had a meeting with andrea's mom when I really knew that things were not the way I had thought them to be (even if there seemed to be extreme or supernatural "signs" and uncanny patterns which had lead me to believe in another certain future outcome).
+
+at this time I recognised that the original "dream" was completely over with. there was no going back (even though there would be many attempts a few months later to try and go back) and that this was an "evolution of desire" and I just had to find a way to feel good about stuff no matter what.
+
+---
+
+I think that's about where we're at right now and what has occurred over the last week or so.. it seems pretty likely that the origninal dream is dead (or in the precess of dying). likely, the reason for this is a similar thing is happening: while it may seem really nice to think that somehow magically I'm going to make it possible for so many people to improve their eyesight, it seems pretty clear to me that nosebook is very against this idea. they do *not* want girls to become the basis of other people's form of perception. I think that trying to control handicapped kids like me and jaron are more their speed.
+
+I believe that energy will continue to rise quite rapidly and things will likely get worse as they do, however, it strikes me as quite possible that people will begin to be able to fly all around the world. it may be a slow process and I don't think that everyone will fly, but I think that I will likely not be among the people who can fly.
+
+also, because energy will continue to increase, it'll be much easier for people to find their own way to improve their eyesight. I don't think it'll be a slam dunk for people unless you're paying nosebook, but for the rest, it seems to me like it'll become possible. so, instead of relying on me for these things, the energetic platform of the planet will make it possible for people who want it.
+
+---
+
+in a previous entry here, @[entry](2019-10-14 14:39) the idea was presented that we're coming up on the 7th anaversary of the 12-12-12 date for the end of the world. I have maintained that I think that date was actually 4 years delayed because of the 9/11 events. that means the "7 years of tribulation" actually begun in 2016. so, if you take that idea to have some sort of weight, (lol I know just go with it) then you can perhaps believe that there will be no sudden major changes until the end of 2023. that means that everyone who wants to figure out their own eyesight improvements and their emotional response to things has an additional 4 years to figure it out now.
+
+I know that's a super flimsy thing to rest this whole idea on (which is why I did it), but I think that now anyone who wants to achieve the things they thought I was going to provide for theirselves.
+
+after accepting that andrea was no longer the person that I had anticipated her to be, I began to realise that all of the things I wanted her to provide for me, I had do for myself. I also began to realise that, like tesla, I didn't need someone to translate source into languge form for me, but instead I could gain access to that visually in the privacy of my own eyes, and not rely on someone else to do the translation for me.
+
+I'm fairly certain that the planet will continue to increase it's energetic platform and so that sort of thing will become probably pretty common among you guys (even if they expend vast amounts of energy to ensure that kenny never gains that capability). along with flight, it seems pretty likely that most of you will achieve it before I'll be allowed to do it. that's really quite fine for me, because I know I already have the capability. these planetary changes are something that the sirians talk about as well, so they're pretty unstoppable[^1].
+
+I find it very likely that dispite their best efforts to keep things appearing constant and business as usual, things will probably get tremendously more insane. in the process of the increasing energy, people will have the energetic platform they were wanting to find sexually, to be able to achieve what they were hoping I would accomplish for them..
+
+you have all of the power; you have to realise that you have it.
+
+[1]: actually, I had this funny sort of realisation that what may actually be happening is that the planet has been trying to go up a dimension itself (the sirians call it the next inititiation), however, the planet has been (or will be, not sure) delayed on this. the sense that I got was similar to the one that I had to my own experience: ever since nosebook has been involved in my life, what would have been my natural progression has been delayed.
+
 # the end
 
 ### 7 years of tribulation (continued)
