@@ -10426,12 +10426,52 @@ you have all of the power; you have to realise that you have it.
 
 [1]: actually, I had this funny sort of realisation that what may actually be happening is that the planet has been trying to go up a dimension itself (the sirians call it the next inititiation), however, the planet has been (or will be, not sure) delayed on this. the sense that I got was similar to the one that I had to my own experience: ever since nosebook has been involved in my life, what would have been my natural progression has been delayed.
 
+### 2019-11-1 15:48 - I might be exceeding expectations for this timeline.
+
+this has been an idea that has been rolling around in my head for a bit now, because it seems like star watching has actually become so easy for me now (and the required releasing of resistance to get the upgrades), that I actually have come to believe that I'm actually far exceeding my performance expectations for this timeline, and the recent events have only been to kind of slow me down since otherwise I would be going too fast (if that's even possible, lol). I guess I started thinking about this possiblity a while ago when I postulated that what I'm really looking toward is my connection with who I really am, and the girls thing is kind of like a stabilising force. here, [TODO: find this reference] I postualted that the girls were to be a sleowing down force (or a getting up to speed), however the former is far more logically sound for various reasons.
+
+anyway, this morning when I woke up, I was thinking about nosebook and how they are my biggest believers. not only do they have full evidence of source energy with the translation of abraham through esther: they can clearly see she's not thinking about what she's saying or doing, and that some outside force is operating her body. they also now seem to be investigating the idea of tuning into other people inside of a dream state than just the dreamer. the sense I got was the realisation that they may be able to prevent other people on this planet from being able to access other people's experiences, but there is absolutely no way they can prevent anyone with this technology not physically present on this planet from tuning in. in other words, it's all wide open. they perhaps didn't realise how much they are being observed, cause quite literally anything and everything can be tuned into with sefficient enough tecnical capability.
+
+---
+
+the implications of this realisation are somewhat revolutionary. first of all, that means that the biggest believers in me are actually the guys trying to run the show. they know that everything I've said about timelines and living in dream realities (as crazy as they might sound), turn out to be just the next step in our evolution. nothing is a secret.
+
+the other major major implication is that now, armed with this understanding, it's probably going to be a whole lot more difficult for them to make a time split; they know too much now.
+
+so, it's quite possible that the time split actually occurred back when they said it would (when I was laying on the sofa stoned listening to "back to the source"), lol... so that means that we're on the successful timeline, and they're only beginning to grapple with the inevitablity of (probably having tuned into and adjusted so many different things in dream states trying to find a way to avoid its inevitibility).
+
+---
+
+I wanted to write this because I was also feeling like there were growing expectations for something "big" to happen. I really doubt any "big" changes will occurr suddenly. in fact, the big changes are actually what I think cause timeline splits. instead, I would imagine that as they grapple with the inevitablity of it all, adjusting different parameters in dream states, they'll eventually figure out their desired way to let the inevitable happen.
+
+so, I don't think we should expect any big changes to be perfectly honest about it.
+
+---
+
+the final (and most revolutionary for me), is that the implication of me exceeding performence expectations. you know me: I like to go the fastest I can possibly go, so this is a bit of a foreign idea to me, but if I'm exceeding expectations, then that means that if I were to continue on at the rate I'm going, I would achive the power levels necessary for the next step up in energy[^1] before it's time[^2].
+
+what I mean is that, if this is inevitable, and I'm exceeding expections, I should actually chill out a bit and just sort of let it happen. I don't really know what this means for me, because I've been so used to just pushing to get up to speed that I don't really understand this idea so much. I'm going to have to ponder it. I kind of want to smoke weed now all of a sudden.
+
+sorry, the idea seemed to much more clear in my head a few minutes ago. I don't really understand what is happening now... actually, maybe what might be happening is that previously when the idea of me exceeding expectations was rolling around in my head, nosebook decided they wanted to try and use it to get me to begin slowing down, but maybe something I said about the inevitability is making them change their mind. perhaps this is a repeat of them creating their own reality.
+
+going to table this idea for a bit. seems convoluted now, so we'll consider it "developing...".
+
+cheers
+
+[1]: I like to perceive this phnomennon in the following way: around any energetic object are these "double layers" where these thresholds are formed between different energy states (see plasma, planets, etc. for more info here). and, as I "approach" as it were, connection with who I really am, I go through these different "initiations" into these higher energy states traveling through these different plasma(?) shells getting closer and closer (more and more resonant) to who I really am.
+
+[2]: anyone understanding AC (or radio tuning) would know that timing is extremely important. if you're waveform is out of phase in some way or that voltage levels are not synced up to the right timings, it causes suddent dropouts or surges in current which are disastrous for the power grid (or tuning circuit)
+
 # the end
 
 ### 7 years of tribulation (continued)
 ### venus & mercury story
 ### making the whole population unsteerable...
 ... by focusing all your attention on the unsteerable ones
+
+### 2019-10-31 ??:?? - justice and closure
+### 2019-10-31 ??:?? - forgivness and redemption
+
 
 ### consequences of more conductive air - 1915? - ww2?
 increases visual capability, that's why no one is allowed ho use the device around me
