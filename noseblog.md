@@ -10462,6 +10462,62 @@ cheers
 
 [2]: anyone understanding AC (or radio tuning) would know that timing is extremely important. if you're waveform is out of phase in some way or that voltage levels are not synced up to the right timings, it causes suddent dropouts or surges in current which are disastrous for the power grid (or tuning circuit)
 
+### 2019-11-02 08:19 - star watch a tope
+
+so I let the reactions develop a little more after writing that, and then mom came to me to tell me that she sent me the airplane schedule to my funisher account. yet, her last email to me was to my gatunes account, so when it comes to getting telling me about guardianship court or some thing about getting my brain tested (which btw the email has been removed from my gmail) she seems just fine to send the email to the right address.
+
+anyway a little bit of a back story on the going to dad's house thing: I didn't want to go, and they wanted to force the issue, but I got really depressed and wanted to go to dad's house after I was supposedly gonig to leave the house on nov 10th from my proposal to greg. mom said reverted that issue, and I remember something about star watching and thinking about how california is more energetic. anyway it seemed like they didn't like the idea of putting me in a more energetic environment.
+
+---
+
+the longer version of this was I was thinking about the strange post that fwh made a long time ago (2013) fortelling the inundation of california (from what I remembered a massive earthquake, but looking at it again now, I don't see any mention of an earthquake) that would happen in 2020.
+
+I think what may be happening can only be explained by understanding their usage of the drone (chemtrail) planes in the sky. a whole ago I postulated that the planes were putting CO2 into the sky, however, this didn't make complete sense to me because sometimes the train would disappear almost instantly and other times it would linger. after paying enough attention to it, it seemed like there were kind of like ripples in the sky of some component in the air that would turn whatever they were spraying into CO2 and other times this component was non-existant. I also have noticed that clouds seem to disappear whenever I'm star watching. it seems to be connected. I think, when I watch stars something that I'm doing creates some form of electricity which converts something (CO2?) into more oxygen in the armosphere -- or something like that. I believe it's the creation of oxygen.
+
+it seems to me that this is a chemical transformation that is made when people feel really good. the air seems to become more electric (conductive) and LOA seems to take more effect. I noticed it quite often when I was in spain (pre-2016) and I would say what esther says, about the magic being back. there's definitely a different feeling in the atmosphere and I think this is the result of increased oxygen[^1].
+
+as a result, I think the airplanes are actually sraying a charged molecular carbon which attracts oxygen in the air and forms CO2. this could be how they could predict that CO2 levels would rise, but anyway the CO2 neutralises the electric potential of the oxygen and returns the air back to a less energetic state[^2].
+
+additionally, CO2 is quite important, it's created primariliy by the oxidisation of carbon (burning things like wood) and I believe that under the right electrical conditions, the CO2 can be converted back into water (you just need hydrogen and an environcent to form the bond), so excess CO2 in that atmosphere could be converted into water to make extreme amounts of fog, rain, or snow.
+
+I think the wildfires in california can be explained by there being excess oxygen in the atmosphere, and someone needs to return that back to normal levels, so oxygen is converted into CO2 with fires[^3].
+
+I think there are probably a whole lot of people in california that feel good. silicon valley is filled with a whole lot of people working on stuff, and I think this is exciting the creation of oxygen there.
+
+anyway, so imagine that I go to a place like calfornia where there are lots more people than there are in pueblo. sure, I won't be able to watch stars, but I tend to have an effect on people in my vicinity...
+
+anyway, to jump to the conclusion here, I think that if I were to go to california, my effect on the environment there (combined with all the higher population density in LA) would be to make the environment become very energetic. in order to neutralise this, their weather machines would be on full blast trying to keep it in the range of "normal" levels. this would create extreme tension, and that night I was postulating if that could be the reason for such a massive earthquake which would sink the california coastline so well.
+
+for everyone else, this is all pure speculation, but the people who know what I'm talking about may find it enlightening in some way.
+
+either way though, last night after expressing my frustration to mom about how muted my emotions are, that nothing feels good (or even bad really) to me anymore that it's difficult to make decisions -- I walked downstairs and I remembered something abraham said about making decisions, "if it's not a 'hell yes', then it's a 'hell no'" -- and that was good enough for me to know that I don't really want to go to a densly populated area and amplify stuff. I don't have (and haven't really) had any strong reason to want to go to a populated area like that.
+
+speaking of hell yeses though, one of the things I *do* want to do is to go to utah. I really like utah and the sky is so clear there. I would really enjoy going to utah again and seeing dad there.
+
+---
+
+in conclusion, I believe the previous entry reflects some complex manipulation from nosebook to try and convince me to watch less stars, following that mom came to tell me about going to dad's house where I would watch less stars, and then even though I had been awake only a few hours they put me to sleep last night (so I would watch less stars).
+
+I woke up in the middle of the night and as I went about it, I learned a lot about what's happening. a while ago I wondered why sometimes I had lots of flashes and grid patterns and only got a few or no levels, and other times it seemed like I didn't feel like I made any progress but then I could see a visual difference...
+
+I think when there are lots of visual artifacts (like the night before last), what's happening is I keep getting the same level because they reset me back. they do something where I lose the ability to see out of my eyes. it's hard to explain what it looks like, because there's definitely something there, even though I can't see anything. anyway, there's this weird twitching feeling in my eyes but I can't seem to open them (because they're already open). anyway, when I finally get my vision back, the sun spots in my eyes are blue illuminated like they are when they would put me to sleep when I was watching youtube or dota. it's basically that, but instead of closing my eyes they just disable my eyes as if I were blind.
+
+anyway, upon realising this, the past times when I these lots of visual stuff, but no corresponding progress, it seems clear to me now that I was being reset back over and over. however, it seemed like following that, I would get a HUGE visual upgrade that was very notable.
+
+so, I postulate that what is happening is they're getting better and better at resetting me back, but one day the upgrade is going to be so huge that there will no going back.
+
+so likely there is quite a possibility that there *will* be a time split, and my difficulty with california is there so I *don't* go to california and certain disaster is avoided, like the syrian WW3 encounter. it reminds me of something that thor said in his video about quietly relocating silicon valley to ohio.
+
+[1]: they say that the forests can cause people to have strange and hallucinatory experiences, and I think that this is actually the body responding to an environment with increased amounts of oxygen.
+
+[2]: I think there may be mulitple reasons for doing this. first, if the air becomes more conductive, the "laws" of electric permittivity and magnetic permeability would be no longer constant, and I think their "world system" needs those to remain constant for things to be working. additionally, those constants are also related to the speed of light, and it would be really for bad mainstream science (which the government does most of the funding) if the speed of light weren't a constant.
+
+[3]: however trees eat CO2, so the excess CO2 in the environment is causing lots and lots more plant growth[^4], wmich then convert that CO2 into more oxygen. I think more oxygen is a really good thing, and this whole 20M tree initiative is really a good thing[^5].
+
+[4]: I dunno about other places, but here in pueblo, we had more green than I've ever seen in previous years, and the sense that I get is that maybe there has been more plant growth than there has for a long time.
+
+[5]: it's funny because I pay attention to motor sounds in response to my thoughts while star watching and it seemed very surprising to me to get such a strong reaction to thinking about how the 20M tree initiative would generate and put massive amounts of oxygen into the atmosphere [VAAAAROOOOOOMMM!] lol.
+
 # the end
 
 ### 7 years of tribulation (continued)
