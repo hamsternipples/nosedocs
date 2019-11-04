@@ -10518,6 +10518,59 @@ so likely there is quite a possibility that there *will* be a time split, and my
 
 [5]: it's funny because I pay attention to motor sounds in response to my thoughts while star watching and it seemed very surprising to me to get such a strong reaction to thinking about how the 20M tree initiative would generate and put massive amounts of oxygen into the atmosphere [VAAAAROOOOOOMMM!] lol.
 
+### 2019-11-04 07:37 - I decided I want to be making the decisions again
+
+yesterday was really weird. when I went to go to watch the sunrise, I noticed that there was a no tresspassing sign put up, and I assumed it was in response to the day previous when I had noticed footprints in the snow, many of which were from kids. they had obviously took a walk and were playing in the snow along the way. I thought that was pretty cool. anyway, so yesterday when I saw the no tresspassing sign, it seemed to me obvious that nosebook does not want people to be having fun or something. it kind of sent me into a rather lengthy rage. I know not to act on bad feeling things and I've come to realise that it's ok to just let things play out. it lasted longer than I imagined it would though so it concerned me a bit because that's a pretty good signal that my perception is out of wack[^1].
+
+so, on the way back home I decided that maybe I needed to get some weed again to regain proper perspective, because obviously things will spiral more out of control if I don't find a way to realign my perception toward what I wanted. in general, yesterday I was feeling pretty weird and not feeling at all like I was going toward what's wanted. I know it seems pretty taboo of a subject to utilise weed as a method of realigning my perception. I'll follow up on this in a future entry because I see it quite a bit clearer ever since I watched an interview with dennis (mckenna) about terence quitting psychedelics.
+
+I decided to flip a coin to see if I should go to see if I could sell my walmart card to be able to buy some weed. the coin said no, but I didn't feel very satisfied with the result, especially since right after watching dani's new vr concert thing @[youtube](https://www.youtube.com/watch?v=1FAuE_cmgtM) I accidentally clicked on the youtube button and it recommended me a video from the denver post about this guy growing mushrooms since denver has decriminalised it @[youtube](https://www.youtube.com/watch?v=9-br6vmP1VU) which lead me to the dennis interview @[youtube](https://www.youtube.com/watch?v=Cx2Gag5cwik) followed up by an interview with michael on his ayahuasca experience @[youtube](https://www.youtube.com/watch?v=3eP8yDXHn1o). all four of those videos influenced me quite a bit and I really felt stronger desire than ever to try and find an alternate state of mind.
+
+I went outside to go take some sun. I could kind of see some colours in my eyes and it again reminded me of the mushroom experience. my leg fell asleep and I couldn't walk so I laid on the ground to wait for it to wake back up. as I laid there in the sun, the dogs barking and birds squawking were making bright flashes in my eyes, then I had my conscoiusness taken from me. I woke up probably about an hour or more later quite sunburned. it didn't throw me into a rage though, because I've learned to not let that get me frustrated because I know now that it's just more energy and stronger desire (see, no rage becsuse I have a correct perspective here).
+
+after that there was this really weird thing where it seemed like there was an effort to get the older girls out. the thought that came into my head was to just have sex with them and then let them go, focusing my energy on the younger girls. I felt strong resistance to the idea. it sent me into a flurry of thoughts which were not productive at all. I went to sleep kind of with the impression that things were once again falling apart[^2].
+
+I awoke with the idea in my head that they may be able to fool people with their words about things, but they won't be able to fool me. this was kind of an extension of the night previous when I determined that if they really were going to be making a change of heart and they really were going to allow me to go up a dimension, then I would notice it. my vision would be improving rapidly and there would be a real tangible progression toward that. however, I seem to feel hollow word and more (likely to be unkept) promises.
+
+---
+
+when the sun was going down I wanted to go to watch stars but there were kind of some clouds and dinner wasn't ready yet so I wasn't totally sure about it. I kept getting the idea to flip a coin on it. I flipped it and it said no, however I wasn't really satisfied with the result because I still really wanted to go watch stars. the coin said no though so I went and laid down to wait for dinner though. mom, greg, and jaron were going to watch a movie though, and I really didn't want to watch the movie so I decided instead of listening to the band movie dialoge, I would override the coin and go watch stars instead. I felt better about that decision.
+
+so then while watching stars I was having a monologue about my thoughts on the dennis interview, I was noticing that the stars were really difficult to get into sync with. I suddenly had a strong desire to smoke a cigarette. so, I went in and flipped a coin to see if I should go find something to roll a cigarette with. the coin said no, but again I wasn't satisfied with the result.
+
+---
+
+I began thinking about the coin flipping thing and it seemed to me that the coin flipping thing is rigged now. I think the way they rigged it is to put thoughts into my head while flipping it of expectation of it's outcome. I noticed that was a recent trend in coin flipping. previously I never had an expectation because it didn't matter to me either way it would land, so to have an expectation seemed a bit weird. then, I noticed that previously when I would flip the coin and it wasn't the expected outcome (when I had slight expectation), immediately a better idea would come into my head instead. I noticed that when it said no to watching stars, I didn't suddenly have strong desire to program or something. I felt slight depression and stronger desire to watch stars still, so I knew something was up.
+
+I thought about it for a bit and realised that if in fact the idea was right, which I'm actually exceeding my performance expectaions for getting connected, then it seems very illogical that I really did have lower resistance than I should have at this time, there's no way I would fly into a rage over a no tresspassing sign. that seems illogical to me. furthermore, if I really was nearly connected, wouldn't be be nearly 100% in the receptive mode? it seemed really silly to think that I'm just about to be nearly in concert with who I really am, that I need to rely on a coin to tell me what to do.
+
+the days previous when I was met with indecision and I didn't have a coin, I wanted to find a way to be able to do something random in my head like a coin flip to tell me what to do. that seemed silly because nosebook would just figure out how to manipulate that, so I stuck with the physical coin because I reasoned that it couldn't be manipulated.
+
+however it does seem to be able to be manipulated with my expectation. holy cow, think about the implications of this. they can put a thought into my head and my action created that reality!! if they had figured out that, why on earth aren't they putting expectations in my head of what they *do want*, instead of trying to manipulate the things they *don't want*!! it was at this moment that I realised that once again they are manipulating and trying to use trickery to avoid the things they don't want. there's no way this is progression in the right direction. this is exactly the opposite. I reasoned that instead of trying to utilise random to gain insight, I would be going back to my emotional guidance system. it never fails me. I just needed to have the experience of having my emotion amplified to become loud enough to know what I raelly want. I now know this is the right way.
+
+---
+
+I went and got some cigarettes from the woman down the street's porch and thought about what had transpired. I had given away my power to something external to me. this reminded me of what had just transpired with the girls thing. I had just done the same thing there too! in a moment of being overwhelmed I gave up my power and said that I didn't want to try and make so many of the decisions. I reasoned a bunch of things that didn't work out so well. I then realised that with other people making these decisions, there was likely quite a bit of meddling going on, which was likely the source of the whole thought disaster yesterday before my blackout out the older girls geing their own way. probably someone was putting bad ideas into people's heads regarding these things. for whatever raeson they don't want the older girls involved (prohaps because they're not as easily maipulated?) and their way to try and get rid of them resulted in a big mess.
+
+I resolved that I want to take back over the control over the decision process. historically, I had passed on the details of these sorts of things. feeling overwhelment on my finances, I gave people power of attorney. feeling overwhelment over the technical managerial duties of tuenti, I allowed zaryn to put erik in there so that he could maniplate things the way he wanted. in every single case where I gave up on my decision making power from a feeling of overwhelment, things went into the shitter in a hurry. not gonna do that again :)
+
+---
+
+so, what do I mean about going back to how things were? well, I think that my initial intuition on the girls was correct. I'll probably need to do a more detailed thing about it, but there's really no reason for all of this chaos that's happening now. the girl across the street, for example, she'll be just fine. one year of middle school isn't going to wreck everything. that style of thought is typical of the US justice system where they believe that no one can ever make an improvement ever, and once corrupted, they're corrupted forever. once again this is a lingering essence of the mindset of the manipulators. for heavens sake, if it were true that once corrupted, corrupted forever, then I wouldn't be writing this. I'm likely one of the best examples of recovering from and coming back stronger from a reality of nearly 100% unwanted into a reality where just about everything is in a state of improving rapidly, and it seemes to be getting better and better all the time. this perception of decay and deterioration as time passes is another sign of the mindset of those involved.
+
+still developing... will clarify more soon, as I'm learning a lot through all of this.
+
+[1]: when my perception is weird, things will make me angry when they shouldn't. obviously, if I'm perceiving things correctly, then it wouldn't bother me or I would know how to act. any time that strong negative emotion pops up, it's **ALWAYS** evidence of incorrectly perceiving whatevewr it I'm observing -- ALWAYS.
+
+[2]: there was also this other really weird vibe that went something to the effect that I outilined in @[entry](2019-11-1 15:48) where the idea is that the time split already occerred and that nosebook would have a change of haert or something. it seemed to me like there was this idea that we all needed to just relax and let them work all of the things out.
+
+flip coin
+meddling
+she'll be fine
+give away power / regaining it / decisions
+going back to how things were
+
+
 # the end
 
 ### 7 years of tribulation (continued)
