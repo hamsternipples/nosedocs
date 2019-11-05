@@ -10584,13 +10584,19 @@ I'll follow up a little further later tonight after doing some more star watchin
 
 ### 2019-11-05 12:12 - initial reactions
 
-wow, so the reactions have really started flowing in. seems nosebook has done a thorough invistigagion into chris' life by now. they seem a bit concerned that he's still living at his grandparent's house, works at a liquor store and smokes a lot of weed.
+wow, so the reactions have really started flowing in. seems nosebook has done a thorough invistigagion into chris' life by now[^1][^3]. they seem a bit concerned that he's still living at his grandparent's house, works at a liquor store and smokes a lot of weed.
 
-well, doesn't matter to me really, because whether he's capable of doing anything with my project doesn't matter to me at all really. I hope he can, but either way I will have finally created something I've wanted to make now for a while in the process. to further make this concept worse, let me admit to the fact that my initial reason for wanting to go to see him in the first place was to smoke weed with him. I *really* want to smoke weed (and do other drugs too), and he seemed like just the guy that would maybe be able to make that happen.
+well, doesn't matter to me really, because whether he's capable of doing anything with my project doesn't matter to me at all really. I hope he can, but either way I will have finally created something I've wanted to make now for a while in the process. to further make this concept worse, let me admit to the fact that my initial reason for wanting to go to see him in the first place was to smoke weed with him. I *really* want to smoke weed (and do other drugs too), and he seemed like just the guy that would maybe be able to make that happen[^2].
 
 I'm tired though of constantly mooching off of people because I have no money, so I thought it to be a perfect opportunity to actually do something creative with him. I always really loved doing music and creative stuff with him and I haven't really had such a place to flow my creative energy into, since the neighbour thing kind of fell apart.
 
 anyway... lol :)
+
+[1]: most likely because they need to find a new handler for me, that is someone who can install more inserts in me, and be reliable about it. since I'll be away from this house (and greg) for a while, they now need to ensure that they can keep my devices maintained.
+
+[2]: that makes it sound bad (intentionally), but really I'm really really wanting to just chill out a bit and (mentally) get away/escape from the difficulty a bit and adjust my perspective a bit (hopefully a lot).
+
+[3]: additionally, I'm sure they're hard at work trying to figure out how to angle this whole ordeal they got theirselves into in a positive way for the news updates you guys receive. OMEGALUL
 
 # the end
 
