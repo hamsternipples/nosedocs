@@ -10574,6 +10574,14 @@ there seemed to be quite a strong effort to ensure that I was not able to see th
 
 [quick break. for some reason, I'm really having a difficult time concentrating]
 
+[11:07 - back]
+
+so, the process of realising that it was something I wanted to do was really important for me to accomplish. I really have wanted to make a music project with chris for a quite a while now. I tried a few times in spain but I was usually too strung out to make anything happen. this time though I not only have all of the pieces I need in place, but it should be relatively simple. I anticipate that I can do it in a week or so, which really means about a month, but then maybe I want to see other people too, so I figured it would be maybe a few months. it doesn't really matter though. I'm sure that this is what I want to do.
+
+now that it's something I want to do and not being forced to do, it seems no problem to me. it'll probably work out just fine -- and if not, it doesn't matter because it'll be a learning opportunity. I'm not going to be worrying about the timing or nothing. I'm just going to let LOA do all of that work for me.
+
+I'll follow up a little further later tonight after doing some more star watching. I just wanted to give a special note to the process that I went through last night to get to where I am now. that's what's important.
+
 # the end
 
 ### 7 years of tribulation (continued)
