@@ -10564,12 +10564,15 @@ still developing... will clarify more soon, as I'm learning a lot through all of
 
 [2]: there was also this other really weird vibe that went something to the effect that I outilined in @[entry](2019-11-1 15:48) where the idea is that the time split already occerred and that nosebook would have a change of haert or something. it seemed to me like there was this idea that we all needed to just relax and let them work all of the things out.
 
-flip coin
-meddling
-she'll be fine
-give away power / regaining it / decisions
-going back to how things were
+### 2019-11-05 09:25 - we're just going to test out LOA a bit and see how well it works
 
+I had quite a bit of resistance to the idea of going to california at the beginning of last night, but I think that it'll be ok. I have some things I want to do there. also, I've always been saying that I can get vision upgrades without watching stars, so let's test it out. I'm sure that I'll be able to continue to release resistance in california without a problem. in the previous entry I mentioned the whole thint about the coin flip manipulation thing, so because I kept feeling like they were trying to force me to go, I naturally had resistance to doing anything I don't want to do. I was reminded of the thing that michael said in his ayahuasca interkview about all of his anxiety, and when he finally settled down he just decided to give in and let it all flow. I sorta did a similar thing, but with star DMT instaed of plant DMT.
+
+at the time when I was feeling pressured to do things, my natrural instinct is to simply continue on doing what I'm doing because I know I'm releasing resistance right now at a recond pace, so I know things are going to be fine anyway. I'm so sure of its inevitability as well, so that wasn't really the problem either; it was the being forced thing, and also I really wanted to watch stars and then see the 11-11 mercury transit. however, I am sure that it'll be ok anyway. afterall, maybe it could even be slightly better from a califorina mountain range, who knows..
+
+there seemed to be quite a strong effort to ensure that I was not able to see the mervcury transit from my typical sunrise position. I suppose I will make an effort to see it in california though. there's a good peak to watch the sunrise from only ~2hrs walking from where I used to live, so maybe it'll be possible anyway. either way, most of the "work" that I did was realising that these stellar events that I seem to value so highly, like the one venus transit I missed with raquel don't really matter all that much.
+
+[quick break. for some reason, I'm really having a difficult time concentrating]
 
 # the end
 
