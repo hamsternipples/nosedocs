@@ -10582,6 +10582,16 @@ now that it's something I want to do and not being forced to do, it seems no pro
 
 I'll follow up a little further later tonight after doing some more star watching. I just wanted to give a special note to the process that I went through last night to get to where I am now. that's what's important.
 
+### 2019-11-05 12:12 - initial reactions
+
+wow, so the reactions have really started flowing in. seems nosebook has done a thorough invistigagion into chris' life by now. they seem a bit concerned that he's still living at his grandparent's house, works at a liquor store and smokes a lot of weed.
+
+well, doesn't matter to me really, because whether he's capable of doing anything with my project doesn't matter to me at all really. I hope he can, but either way I will have finally created something I've wanted to make now for a while in the process. to further make this concept worse, let me admit to the fact that my initial reason for wanting to go to see him in the first place was to smoke weed with him. I *really* want to smoke weed (and do other drugs too), and he seemed like just the guy that would maybe be able to make that happen.
+
+I'm tired though of constantly mooching off of people because I have no money, so I thought it to be a perfect opportunity to actually do something creative with him. I always really loved doing music and creative stuff with him and I haven't really had such a place to flow my creative energy into, since the neighbour thing kind of fell apart.
+
+anyway... lol :)
+
 # the end
 
 ### 7 years of tribulation (continued)
