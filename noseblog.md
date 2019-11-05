@@ -10592,7 +10592,7 @@ I'm tired though of constantly mooching off of people because I have no money, s
 
 anyway... lol :)
 
-[1]: most likely because they need to find a new handler for me, that is someone who can install more inserts in me, and be reliable about it. since I'll be away from this house (and greg) for a while, they now need to ensure that they can keep my devices maintained.
+[1]: most likely because they need to find a new handler for me, that is someone who can install more inserts in me, and be reliable about it. since I'll be away from this house (and greg) for a while, they now need to ensure that they can keep my energy levels maintained at "normal" levels. furthermore, chris is the only person that has admitted to me in voice that he knew what nosebook was, so he certainly cannot be trusted with such an important task. LOL
 
 [2]: that makes it sound bad (intentionally), but really I'm really really wanting to just chill out a bit and (mentally) get away/escape from the difficulty a bit and adjust my perspective a bit (hopefully a lot).
 
