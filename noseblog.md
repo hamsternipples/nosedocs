@@ -10620,14 +10620,26 @@ what I mean by justice doesn't exist because it doesn't matter how long anyone i
 
 the way out of these types of cycles is likely through understanding. for me, when I undrstand someone's behaviour, then it stops bothering me.
 
+### 2019-11-08 15:18 - forgivness and redemption
+
+the other day I was thnking about these two concepts and I discovered that to me they seem quite similar: they both give up your power.
+
+the way I reasoned this is by looking at it from both sides:
+- I need to be forggiven (by someone)
+- I forgive (this person)
+
+in the first case, it feels to me like I cannot move on until I have forgiven or the other person has forgiven me.
+
+the same thing seems to be true with redemption, in the sense that I need someone to redeem me (eg. make somegthing out of me).
+
+final thoughts
+
 # the end
 
 ### 7 years of tribulation (continued)
 ### venus & mercury story
 ### making the whole population unsteerable...
 ... by focusing all your attention on the unsteerable ones
-
-### 2019-10-31 ??:?? - forgivness and redemption
 
 
 ### consequences of more conductive air - 1915? - ww2?
