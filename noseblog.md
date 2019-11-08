@@ -10608,6 +10608,18 @@ he seems like the "more contrast hhe better type" which would be my opposite par
 
 it's cool though because I don't think there will be a huge cataclysm, just it'll be kinda funny to watch and see how well some of their policies stand up. it seems like they probably have figured out a way to try and contain me, so I won't be going up a dimension. that means you'll probably be able to try out and see what happens if I have sex in 4d. should create quite the effect.
 
+### 2019-11-08 15:04 - justice and closure
+
+one of the things thzt terence said is that you have to give up on the idea of there ever being any clusure. I always took closure to mean understanding something, so I took the idea that I don't need to understand it all. though, when I do, it's a whole lot easier for me to feel "closure" on something because now I understand it.
+
+however, I realised a few days ago (haloween actually), that closure in the way he was meaning it was from the idea that people tend to believe that a subject remains open until everything evens out fairly -- that is, that some sort of justice is the feeling of closure.
+
+in that way, I completely agree that closure doesn't really exist. there is no cosmic justice; it's only what you attract. there's no punishment for tuning into a radio station and likewise there isn't any punishment for anyone else wherever they're tuned into, either. the only punishment anyone gets from being tuned into wherever they're tuned into, is a reflection of that same thing. some people have getten pretty good at making sure they can be tuned into disaster and still avoid it by some physical method of avoidance.
+
+what I mean by justice doesn't exist because it doesn't matter how long anyone is tuned into something, they can change it whenever they want and avoid the consequences. the only thing tuning into something unwanted for a really long time, does is just make the person more likely to continue on thinking about or tuning into that subject, continuing on the circle.
+
+the way out of these types of cycles is likely through understanding. for me, when I undrstand someone's behaviour, then it stops bothering me.
+
 # the end
 
 ### 7 years of tribulation (continued)
@@ -10615,7 +10627,6 @@ it's cool though because I don't think there will be a huge cataclysm, just it'l
 ### making the whole population unsteerable...
 ... by focusing all your attention on the unsteerable ones
 
-### 2019-10-31 ??:?? - justice and closure
 ### 2019-10-31 ??:?? - forgivness and redemption
 
 
