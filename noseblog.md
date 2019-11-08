@@ -10598,6 +10598,16 @@ anyway... lol :)
 
 [3]: additionally, I'm sure they're hard at work trying to figure out how to angle this whole ordeal they got theirselves into in a positive way for the news updates you guys receive. OMEGALUL
 
+### 2019-11-08 14:50 - well, I guess this is the end.
+
+I feel like thire is a whole lot of manipulation happening but I don't think it's a problem. I think that my perception will always remain optimistic.
+
+I had this funny thought last night where instead of a time split, my other self would switch spots with me. he's a bit different than I am. I could see that instead of a time split in the traditional sense, it could perhaps just simply be that my alternate self may be a huge downward force (compared to my optimism) and that while I maintained my course toward what is wanted, perhaps he might be more willing to try out some bad ideas that are suggested to him.
+
+he seems like the "more contrast hhe better type" which would be my opposite part. while I am absolutely addicted to creation, he may be one that is willing to try out some things and see how they go (or something like that).
+
+it's cool though because I don't think there will be a huge cataclysm, just it'll be kinda funny to watch and see how well some of their policies stand up. it seems like they probably have figured out a way to try and contain me, so I won't be going up a dimension. that means you'll probably be able to try out and see what happens if I have sex in 4d. should create quite the effect.
+
 # the end
 
 ### 7 years of tribulation (continued)
