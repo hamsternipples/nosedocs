@@ -10634,6 +10634,31 @@ the same thing seems to be true with redemption, in the sense that I need someon
 
 final thoughts
 
+### 2019-11-10 14:57 - I thought it would be more eventful, but now I do not...
+
+at first when I was in colorado when watching stars and stuff, it felt to me like this trip to california would be a whole lot more impactful. I think that's a slight effect of the effects the stars have on my form of perception.
+
+additionally, I thought I wold be a whole lot more motivated than I am right now. at the moment, I'm pretty cool just sitting around and watching dad play games or talking with lily or whatever. I'm not nearly as motivated to work on projects as I thought I would be.
+
+tomorrow is the mercury transit, and I tohugst that it would be a whole lot more impactful as well, but I doubt that it'll have any real game changing impact. I think its impact wiil be pretyy much imporceptible to me and most everyone else.
+
+---
+
+one of the most imactful things that I had noticed so far was actually my convrsation with lily this morning where I was talking about the idea of the situation that we're in now is producing an entire planet of people with the energetic capacity of jesus (by essentially limiting the entire lower-class (poor in spirit) portion of the planet's perceptive capacity), and this is actually being done by allowing the most ridiculous house of cards to get setup, which will eventually come crashing down.
+
+however, I don't think that it'll come crashing down as soon as we would hope it would. tor the idea I proposed to lily to work, the house of cards would have to continue to exist for as long as it can physically be supported without crashing down.
+
+---
+
+I dunno, colorado is really intense and extreme in th way that I'm capable of perceiving things. calfornia is much more moderate, but at the same time I feel like there is this weird duality here where it seems that I'm capable of perceiving things deeper (instead of extreme) which is contrasted with superficiality. however, colorado was way more intense, yet contrasted with a strong sense of "business as ususal".
+
+I kind of like the sense that california has where nothing is "business as usual" and diversity and extremes are the "norm" here.
+
+califfornia: deep <-------> superficial
+coloroado: intense <------> business as usual
+
+the contrst is interesting.
+
 # the end
 
 ### 7 years of tribulation (continued)
