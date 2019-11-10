@@ -10655,7 +10655,7 @@ I dunno, colorado is really intense and extreme in th way that I'm capable of pe
 I kind of like the sense that california has where nothing is "business as usual" and diversity and extremes are the "norm" here.
 
 califfornia: deep <-------> superficial
-coloroado: intense <------> business as usual
+coloroado: intense <-----> business as usual
 
 the contrst is interesting.
 
