@@ -10659,6 +10659,30 @@ coloroado: intense <-----> business as usual
 
 the contrst is interesting.
 
+### 2019-11-13 08:05 - interesting simile between nosebook and jeff
+
+last night I had another great conversation with lily. she was telling this awful story about an experience they had with meliissa jeff and amorina one year they came to dad and lily's house for christmas.
+
+after tre story I was talking about how I would have had a very different reaction to the situation than they (dad and lily) did. I'm sure I would have probqably caused all kinds of conflict between jeff and mysylf and it would have turned out poorly because probably melissa would have just perceived that I was trying to ruin something or soxe other reason to continue on with jeff. so, my frustration with the situation wouuld have likely strengthened their relationship, instead of helped her to get free from it.
+
+however, then I remembered that melissa did tend to take what I had to say with a bit more weight than, for example, what mom has to say. so, I reasoned that there is a possibilitiy that I wouldhave been able to illuminate the situation in a way for her to see what was happening. then, when lily said that melissa always said, "why did't you tell me" -- I realised that if someone had of been there to tell her and to hold her hand and walk her through the whole thing of explaining it and getting the divorce, then she would have once again not learned it for herself.
+
+knowing myself, I would have certainly tried to help her to see, and it would have likely caused more problems. so, I guess it was probably good that I was strung out in spain while this whole thing was going on, because it forced melissa to work up the courage to make her own decisions on the matter (instead of relying on someone else's uging) and to make the decision to separate herself from jeff.
+
+I think that altough it lasted a whole lot longer than anyone wanted and her recovery time was still significant, I think that melissa came out a much stronger person for it.
+
+---
+
+this bwings me to the simile part: it seems to me that something similar is happening with thhe population of the world and nosebook. I could try and figure out a way to make off of you guys see what I see, but it's of no use. even if I could, like melissa and her relationship with jeff, my urging would have likely only strengthened their relationship, and it wouldn't have given her hhe opportunity to make decisions for herself.
+
+---
+
+I don't think that any big thing will ever happen actually. I've given a whole lot of attention to what I want (and don't want), and a whole lot of attiontion to what nosebook wants (and doesn't want), however, I think I may have been missing the point this whole time.
+
+the centre of the story is melissa, not me or jeff. jeff will continue to be jeff; he will probably never change. I will continue to expand my perception as well. however, my expansion of perception cannot really expand melissa's perception, so if I (or anyone else) were to have tried to save her, she would continue to fzll into the same trap. in other words, she wanted to expand her own percepction:
+
+**she wanted to see if for herself**
+
 # the end
 
 ### 7 years of tribulation (continued)
