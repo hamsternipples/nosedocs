@@ -10683,6 +10683,114 @@ the centre of the story is melissa, not me or jeff. jeff will continue to be jef
 
 **she wanted to see if for herself**
 
+### 2019-11-15 23:31 - man I'm ready to get back to doing my own thing
+
+I didn't realise that amorina and melissa and patrick would be showing up here after crystal's wedding this morning. amorina showed me some vine-like videos things of kids doing stuff -- and I guess it's something that is somewhat popular these days...
+
+ever since I've been gripped by some pretty serious depression because I'm realising that although I can see things a different way, others cannot see it the same way that I do. this world seems to be heading into a phase of ultra-superficiality.
+
+interesingly enough I noticed a similar trend of the same sort of response to jeff in melissa, where she concerned herself quite extensively in things that were frivelous. I think it has to do with a response to do with ... I don't know how to explain it. it feels to me like perhaps it's something like the superficiality has to be maintained in order to prove some sort of "innocence" or some other way to excuse not being able to perceive the obvious.
+
+after jeff, melissa met patrick, and there's a definite trend in her life to try and maintain things on a superficial level. so, my mind likes to try and identify patterns, so I would say that jeff is similar in nature to the guy I call "crusty" -- and his tactics are the same in trying to use force, aggression, extremely grotesque lies and a very vulgar form of appearance. however, to me patrick seems to have a similar personality to the landscape architect guy.
+
+tonight, he said something which struck me as very similar to the "we wouldn't do *that*, right abraham" type of comment when he said, (something like) "I'm not going to check out your check out your sister"[^1]. patrick definitely has learned how to navigate the correct answers to try and maintain the image he wants to keep presenting -- very much more landscape architect guy type stuff.
+
+back to jeff though. I don't for one minute believe that melissa was unaware of jeff. I think that his situation, similar to my own when I was in spain was that it felt like it would be a bigger problem to try and fix the situation than to just hope for the best and hope it all works out.
+
+---
+
+we actually has a similar conversation about this last night when dad. lily, jaron and I were talking about our situation with mom. his (and my) situation is such that there's almost no way to unwrap mom's fingers from our lives. in my case, there is not a single person that will believe me that this whole thing is happening, and so since the only way to be able to get rid of mom's "guardianship", I would have to go through the "authorities". clearly, that's not going to work.
+
+it's the same sort of thing with me trying to get the inserts out of my body: there's no easy way to do it -- in fact, it's pretty much impossible, and even if I could, they would just put more in me while I sleep.
+
+there's literally no perceived way of escaping the grip of the authorities for me, mom for jaron or jeff for melissa.
+
+---
+
+the similarities to the nosebook situation extends to quite a few people in my family, as if there were somehow kind of like models. in addition to melissa, you can also see another perspective if you look at it from greg's point of view. no matter how hard he tries to be a bad guy and try and wrestle things into place physically, there's always someone who does it better or he messes it up in some way to where he doesn't live up to the expectations of the authorities on the matter and gets blamed for the problems.
+
+he's in the process of learning that these guys are all smoke and mirrors and only present the image that that things are working out well, when in reality, nothing ever goes well for them either; they've just found better and better ways to cover up their failures and pretend things are working well.
+
+if you then take a look at things from jessica's perspective, it becomes immediately obvious that these secureity and control loving law enforcement types are not quite what they present theirselves to be, and they too are all show and no substance to them.
+
+finally mom I've mentioned multiple times because she's clearly the prototypical woman that has been taught to have a very low perception of herself and to just follow commands from those in autohority, even if she wrecks her life in the process.
+
+---
+
+this morning I woke up and I was thinking about this whole LOA thing in the sense that things are bocomming mani/fest reality much much more rapidly. it got me thinking that perhaps nosebook/amazon is the physical manifestation of YHWH.
+
+if you think about it, they display nearly all of the same qualities. the whole system is angled in such a way that you can do anything you want as tlong as you justify it. who's the judge? what you're looking for is a system where the one who can justify the whole thing is the one that that is perceived as "good" or "god".
+
+... I'll continue this idea another time because the similarity between nosebook and YHWH is quite uncanny ...
+
+---
+
+the point is, it's a whole lot easier to just stick our heads into the ground and focus our thoughts on frivelous things. it's hard for me to see any sort of wanted things in the population at large. I really do not want to be a part of this at all.
+
+now, after having been in california now, I am certain that I very like very much more living in colorado. I've always had this stange sensation that here in this next era there would be a redistribution of the population out of city centres and out into the mure rural areas. it seems evident to me that the level of superficiality.
+
+I believe that the natural response to such a crude type like cresty will be an immediate plunge into frivelous activities to try and justify one's naïvety just like with melissa's transition to patrick, a guy who's capable of saying the right things which (from melissa's standpoint) are good things, because he's in a sense, helping her to recover and begin believing in herself once again. LAG will be right there with all of his perfect words and the resport all set up waiting for a population needing to recover from a jeff-type.
+
+---
+
+all of this is just such a ridiculous ordeal for me and my point of view. it's really funny how calfornia has the ability to amplify things way out of porportion. I came here and when I was leaving, it seemed to me that the general trend that I felt in the air was that I would not be coming back to live in colorado and things were going to kind of shoot uff from here, yet upon arrival and after a series of conversations it's become clear to me that you guys need to figure this whole thing out for yourselves. my hands are pretty well tied and things are pretty well on lockdown, so there's probably not going to be any big events where I'm able to escspe from their grasp.
+
+I think we're entering into phase patrick.
+
+[1]: they were at their friend's wedding, and melissa would have said something like, "look at jessica's dress; doesn't she look pretty?" (or something like that) which is a typical BS move that women do to kind of guage men's responses to see if he'll pass the test and respond correctly with something to the effect of "baby, you're everything to me; I wouldn't look at any other woman than you" -- but each man is required to answer that question in their own unique way so as to prove to her that her insecurites about herself are unfounded.
+
+### 2019-11-16 00:49 - resort catalyst as a precursor to the 9/11 universe
+
+the funny thing of LAG's perception that they're trying to build this whole thing into a resort is kind of a funny idea because of my growing discohmfirt with not being able to see out of my own eyes is growinvg stronger.
+
+when I was in 3d I really felt like I was disconnected from my body, perceiving things on a screen, yet when I got to 4d, I really enjoyed it because for a while I could keep getting it to where I would actually be able to see the depth in he world -- to see the space inbetween. I really really long to go back to being able to feel like I'm actually inside of my body instead of looking at a screen.
+
+I realise that before I was seeing the world on a 2d screen and that was pretty awful disconnection, and now I see the world on a 3d screen, and I still feel quite disconnected, but I'm still seeing a screen. it's not what I really see. when I see out of my eyes instad of a screen, the whole world has a different glow to it, and I believe that has to do with my emotion being encoded into what I see at a very high frequency which isn't really perceptible to nosebook's instruments. this is why I'm always claiming that the world is not dull and lifeless.
+
+it occurred to me that 4d is now a whole new dimension that you feel disconncted from yourself because you're looking at a *screen* and not at what you really see.
+
+ok, they recall to yourself that when I outilined the idea for the 9/11 universe, I talked about this idea that instead of 9d being the highest dimension, now 11d would become the highest one. I could perceive that on the top there would be a new dimension added which I labeled "thrust" and on the bottom one, there would be an even more disconnected dimension where you would see yourself in the 3rd person perspective like you were watching a movie, and your thoughts would create the reality.
+
+in that reality, you are are not really a "person" but just a story. you can be any character that you want to be and you can make any scene, but you have to watch it like a movie: from the 3rd person perspective. you are not yet identified as someone, until you begin to identify yourself as "someone" in this ongoing drama, to which you go into what we're used to seeing now as the 3d perspcetive (1st person 2d screen perspective). then you can go up to what I call 4d now and get your 1st person 3d screen perspective, but still disconnected from yourself.
+
+---
+
+you'll notice the similarity that this new story perspective has is sort of like an incomplete or reduced capability (disconnected) version of what I call 5d now. in 5d, you can see out in all directions, but you can see inward in all directions, so you'd see things (and yourself) from a seemingly 3rd person perspective, even though you can also see out in every direction from yourself. it's also similar to 6d in the sense that you an be multiple entites in the story -- multiple characters, but unlike 6d, you see only what is presented to you in the story, however 6d each person has complete access to the knowledge, undrstanding, and every aspect of them as if it were there own.
+
+I know this perception of the dimension is correct because of how captivating this would be to people strongly oriented toward the nosebook vibe. you will also notice now that if there are 7 dimensions or layers upon which the body operates now, with the addition of these two new dimensions, there will now be 9 layers or dimensions, or three sets of 3, with the first three representing the disconnected states.
+
+the next three, what we would call now are the conceptual, source, and structural planes, followed by the relational/devotion, desire and thrust planes. you can also clearly see that in each set of three, there are two primary planes which are very similar and a transition plane:
+
+3d <-> (story) <-> 4d
+conceptual/emotional <-> (source) <-> structural/meaning/logic
+desire <-> (relational) <-> thrust
+
+you will also notice that I've pondered things like the difference in direction between a concept and its meaning. they're the same thing, but percieved from the opposite ends. this is true for each of these: 3d/4d, concept/meaning, desire/thrust. they are the same thing but pereceived from the opposite direction.
+
+furthermore, there's another nice symmetry to where the middle triad seems to be a perfect transition between the top and bottom triads. for example, to tell a good story (the middle transitional layer of the lower triad), you need to have desire to move the story along and a trust to the story: that is, its meaning or moral that you're trying to convey.
+
+there's just a lot of really cool symmetries that I find quite cool.
+
+---
+
+ok, so it seems like nosebook is all setup to make sure that 4d becomes another one of the disconnected states which means that two of the 3 disconncected layers of the bottom triad are coming together nicely, so how do you make the third one I had previously wondered...
+
+my answer came to me when I was on the writing in @[entry](2019-11-08 14:50) about this weird idea that an alternate version of myself would switch with me on the airplane and take them for a ride, where he would do the whole 4d sex thing and artificially pump everyone up so high with energy that it would be the most tremendous inflow of roman empire type energy building things up to such a tremendous hight right before the most epic crash and burn ever, taking the whole nosebook eneterprise down to such a state of disconnection and powerlessness that such a tremendous crash and burn would actually create the story layer as people became so disillusioned with identifing with who they are from inside of a body, the horror could only be perceived from a film like standpoint[^1]
+
+so, I perceived this alternate[^2] version of myself as the "destdroyer" which is the other side of venus, the manifestation of desire to create new forms by first destroying the old ones.
+
+it's easy to see how to create the thrust layer on top though: just wayy waaaayyyy overshoot the 9th dimension and get myself up to the 11th dimension -- something that "fwh" already claimed that he/me has has accomplished.
+
+so, whether I'm the destroyer or the one who makes it up to the 11th dimension, I don't really know, but from my perspective, it looks to me like I'll perceive the 11d path.
+
+---
+
+it's really funny to me that my realisation of the implementation to this whole perceived story/movie layer thing is built upon hyper-superficiality. perhaps what bothered me so much in the previous entry is actually what will be ideal setting in which the girls and I will actually be the catalyst to the creation of LAG's coveted superficial resort environment.
+
+[1]: see mckenna and mcluhan's discussion on the topic of things like war being only suitable as a "cold" medium, because too much graphics (hot) and it takes away the "epicness" of the war saga and makes it too graphic to be viewed favourably ("with all the blood and maggots and stuff" -T)
+
+[2]: or, it could prehaps not be an alternate version of myself at all, but actually me --- meaning, I'm really the guy I considered the alternate version of myself: the destroyer
+
 # the end
 
 ### 7 years of tribulation (continued)
