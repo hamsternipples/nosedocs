@@ -10791,6 +10791,14 @@ it's really funny to me that my realisation of the implementation to this whole 
 
 [2]: or, it could prehaps not be an alternate version of myself at all, but actually me --- meaning, I'm really the guy I considered the alternate version of myself: the destroyer
 
+### 2019-11-24 20:36 - I'm going my way
+
+been a bit of a bumpy last few days since I got back from california. I reconised that there was a whole lot of manipulation going on and stuff, so I decided that before I get sucked into stuff I'm not ready yet to be doing (eg. project with chris), I think I want to continue on with my previous goal which is to just find my alignment first (and then).
+
+I can see the other projects working out in the future, too. I'm just saying that I still need more time. I need to actually think deeply about the different concepts (for biz-viz) I want to get out. I got a few written, but I feel like I want to write a little bit about each one as well, and some of the others I think will come naturally too.
+
+everything will continue on, and I'll just get to the first version as fast as I can.
+
 # the end
 
 ### 7 years of tribulation (continued)

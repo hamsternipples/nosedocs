@@ -26,3 +26,5 @@ make people's idas make them your own and put them on your vision board
 # no one gets anything done, unless they're working on it
 
 # good ideas are famously unprofitable
+
+# expand your sphere of outdatedness
