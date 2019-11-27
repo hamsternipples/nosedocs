@@ -10799,6 +10799,64 @@ I can see the other projects working out in the future, too. I'm just saying tha
 
 everything will continue on, and I'll just get to the first version as fast as I can.
 
+### 2019-11-27 08:13 - making two new layers: a disaster I could get behind
+
+it seems to me that I must be getting close to getting connected because of all of the thought activity that I'm receiving in response to things.
+
+at the very beginning (a few days ago), I came to the conclusion that if they did manage to find a way to force me to have sex before getting connected, then that's a disaster I could get behind. the reason being, that it seems obvious to me that my time on this planet is, just like everyone else, limited. I would hope they could find a replacement or two for me before I leave, but certainly someone will need to fill in my spot at some time in the future. however, a bunch of the girls will also have gotten connected in the process. so, my evenetual departure essentially means that there would be a large gap between me and others' capapbility of perception, and my own. there will be some sort of falling out at some point.
+
+the idea developed further because now there was this new idea that the way to create the thrust layer would be to push a bunch of people up on top of me instead of me overshooting it like I had initially imagined it to be.
+
+this was an interesting idea because I hadn't thought about pushing other people up on top of me. it got me thinking and I could see that if that were so, the people riding on top of me would only fill the bottom half of the layer. for the top half I could imagine that a whole nother set of even faster moving people would make it up to the top of the new layer, and they would do it be essentially crashing and burning, then on the upswing from the crash, they're going a lot faster than me and overshoot it to the top of the level. the one thing I was sure of, was that very few of them will make it to the top, riding on top (that is, with a more acute form of perception than me).
+
+that may very well happen anyway. it would not seem unlikely to me that there would be some really hardcore nosebookies that are going to try and maintain visual superiority to me. it seems pretty inevitable to me actually, but they're going to have to get used to ever increasing speeds. I do not expect many of them to make it to the top. long before they get to the top, I expect many of them to experience hyper-LOA in their life, causing a crash and burn, or some other major event caused by life moving at that speed. so, probably many of them will crash and burn, and maybe (I hadn't until this concept) thought about the possibility that the 'thrust' layer simulated here on earth is actually a bunch of dudes that are hyper-obsessed with trying to control and steer other people's lives.
+
+somewhere after I realised that, it occurred to me that possibly the nosebook 'vibe' is this constant excuse that they can do really good things for other people, but never do they have the capability of making the decision for theirselves. the common examples around me are greg when he had said to me in the past that he could help me get the things I want created, but then when I ask why doesn't he just do the same thing for hisself, he doesn't know why he can't do it for himself. same with mom: she's absolutely terrified to take control of her own finances like she has helped out people like dad or rick hopkins. she seems only capable of excersing her capabilities for other people.
+
+I very much am the same way, too -- so, it's not like I'm pointing without being self-reflective. you can even see it with my programming. I've always struggled with it, because when I want do something it sometimes works really well (tuenti for zaryn, affinaty for marcos, set-game for the neighbour, etc.) and then other times it doesn't work so well too (tuenti for zaryn, affinaty for marcos, set-game for the neighbour, etc.).
+
+this connundrum has always bothered me and I have, in effort to improve my own porformance, improve upon this disability. from what I have gathered over the years is that it's ok to begin a project utilising someone else's desire as the initiative force, but later the thing breaks down if I try and continue to use the substitute for my desire as the power source, and instead I have to make it my own[^1].
+
+it's still too early to tell, but it seems to me that there is this strong desire that is growing amongst the people running "the network" that they want to use the human population as their muses and get them to try out all of their bad ideas for them. perhaps, they do not feel capable of making their own decisions to give up on some bad ideas, and instead have to play pretend with other people's lives to be able to learn it for theirselves there.
+
+I'm not doubting that this is the future actually. it really wouldn't surprise me at all if it were the direction that we're heading. in fact, it seems likely to me that the phase of humankind includes the control and maintenance of numereous machine operated human bodies. and so, like every game-changing technology, give it to these guys first so they can try out all of the bad ideas first, and then from there, every thing is an improvement.
+
+however, you know what comes next though, once you can do it for someone else, then comes the trial to see if you can do it for yourself.
+
+it's funny the parallels of what I'm sensing from them, to where I'm at rigrt now in my life where I'm having to choose to try and figure it out for myself.
+
+---
+
+it may take a while, but like I said, I'm willing to delay this thing exactly as long as I need to get connected. it would be funny of abraham, knowing I won't budge on the "get connected, and then..." thing, was also telling you guys things like, "well, if he would just meditate or ... then ..." or, "he's already conncted enough" to build more desire.
+
+this kind of reminds me of another one that popped into my head, and that one I'm not so sure of, and it went like, my body will only house the "soliton of improbability" up until 2038, and then after that I'm going to be back to being just kenny again, which at that point when the energy leaves me, I'll find myself in a very elevated position with a long way down to fall, and the extremely epic crash and burn that comes as a result of that will be the crash necessary to push up even higher into the thrust layer.
+
+the event reminded me of the verse where, right before his death, jesus recognises that the creative power that was once surging in his body had now left him and he said, "my God, my God, why have you forsaken me". if the energy that occupies my left-side were to suddenly leave me right now, then I would be able to get back to the right direction, but it would come with a few impacts for sure.
+
+if the energy that surges on my left side did eventually leave, then it would be kind of meaningful to me because I have learned the "right way" to go and do things very very well while we shared this body, but then when the energy leaves, then can I actually take all of that knowledge and apply it to myself. will I be able to do it for myself, or will my own perception (now with that energy gone) attract a situation where something bad happens to me?
+
+---
+
+so no matter what happens, it seems clear to me that this energy contained inside of my body is only temporary and if it were to depart from me, then it departs from all of us equally. just like esther cannot twist abramam's arm to give energy or answers or to bail her out of a jam, I cannot twist my own arm to try and affect source to do anything either.
+
+---
+
+the last thing I want to mention was the idea that imagine that I'm energetically below where I should be, so imagine that I'm somehow superhuman now and I can make my contrast increments so small and perfect that each time I'm halfing (or some other ratio) the distance I need to go before a connection is made to who I really am. eg. each increment of contrast closes that gap to who I really am by some amount. it steadily gets closer and closer. so, if I use techniques like watching stars or drugs or whaever, these are artificial boosts forward. let's say that one day I get some mega upgrade watching stars, I will have overshot the destination quite a distance. however, when I say "overshoot" I mean in the physical sense. abraham has often talked about how your inner being will never give you more than you can handle, so when I say overshoot, I mean similar to how esther was when she first began to receive abraham, and her teeth chattered cause she wasn't used to the extra energy, not overshoot in some sort of airplane landing situation or something like that.
+
+so, the idea kind of combines with the last one, and it was that if I were to boost up to connection ahead of schedule, then the energy would eventually have to depart from me, but if I take an easy (and very boring) way of just letting my energy rise there naturally, then I would arive just at the right moment to receive who I really am, instead of trying to make it happen.
+
+I dunno, it's a real possibility that I slow down into "allowance" mode, but it seems impossible to me because I find it so difficult to do stuff without any connection whatsoever. it's not really allowance mode, when for example, after being in california, I was so desparately needing to watch stars and refocus, that if I had of continued on in california, things I think would have gone very poorly. additionally, my energy isn't rising naturally, at all. my experience is that if I don't watch stars, energetically I stagnate or get worse. so any natural rising is artificially neutralised.
+
+it's sort of like saying, "I could just stop charging my phone and let the battery recharge naturally" I simply do not know how I could possibly ever use my phone if I never charge it. I do not think they want me using my phone, so they want it to remain discharged, so they're doing everthing they can to ensure it never obtains any meaningful amount of charge.
+
+some things to think about. by default, I am always going for my conncetion first. even if my getting connected costs "the network" billions of dollars, even then it's still imperative for me to find it first[^2]. those who wish to continue to *sacrifice* their connection for the "good of the group" can continue on doing thst all they want. I *must* find my connction, and nothing (cept abraham) could convince me otherwise. if they want to try and force something, that's their choice, and so far forcing things probably hasn't yielded such great results.
+
+enjoy it while it lasts, unless you can figure out how to connect up to that energy for yourself.
+
+[1]: this was the majority of the struggle that I had getting up to this point. I can sense the girls' desire and stuff, but it didn't really begin to go somewhere for me until I made it my own, and this was largely the process of realising the gnomitos project. physically replicating into a multi-bodied experience seemed like something I really wanted to do.
+
+[2]: do you *really* think that I am physically capable of accomplishing all of that without some sort of connection to non-physical energy?
+
 # the end
 
 ### 7 years of tribulation (continued)
