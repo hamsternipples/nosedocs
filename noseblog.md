@@ -10857,6 +10857,36 @@ enjoy it while it lasts, unless you can figure out how to connect up to that ene
 
 [2]: do you *really* think that I am physically capable of accomplishing all of that without some sort of connection to non-physical energy?
 
+### 2019-11-27 16:01 - telling the other side of the story is dramatically different
+
+last entry had quite a bit more effect than I thought it would. the only difference really was that I told the story from the perspective of kenny which becomes a normal person again instead of the one that continues on.
+
+I think it's easy to see that the "story" and "thrust" layers already exist right now in their infant forms. I imagine that once the energy leaves and I'm no longer the big story, they will be quite needing new content. so, just like the roman empire wss built on the shoulders of slave labour, "the network" is built upon the stories of different people who have no influence on how their story is told. I imagine that I am not the only story that is being told, but I am almost certainly sure that except for a few broadcaster types, the other people's stories that are being told, the person that their story is being told, does not know about and it's kept a secret that their story is being told.
+
+on the top end, we can already see the beginnings on the thrust layer as well, which, normally all you have is some sort of desire for an improvement and that's all the power that's needed to set things into motion. instead we have the narrators telling the story the way they think they want it to be told by trying to steer it in the direction that they want it to go. not just the charactors of the story, but all of the story's stage needs to be in just the right way to tell the story.
+
+hopefully, it's evident to you guys the massive amounts of steering that happens in my life to try and make reality adhere as closely as possible to the narrative. also, it should be evident just how much effort is put into moving people and things around to produce the contrived circumstances to advance the narrative. this is the steering committee or the "thrust" of the story, presenting the message or moral to the story that they think people will respond best to.
+
+---
+
+so, if you think about this from the kenny that stays behind's point of view, this is all about getting the network all setup to be able to tell all these different stories as a way of kind of regulating reality -- because, people tend to believe what they see, so if they only tell stories that strike some sort of emotional connection with people, then peole will live similar realities.
+
+it's also another way to bypass human desire. when the population mass believe some sort of syntax for how the universe gives you things, based on a set of stories, then people believe that there are some sort of steps or things to do, to be able to achieve the thing (just like in the story).
+
+in reality though, all you need to do is to want something and then don't disallow its appearance, but that doesn't make a very good story. in fact, I am fairly certain that my story (that is the one presented to you guys) does not illustrate this very easy principal. it's much likely that my story illustrates all of these difficulties that I had to overcome to be able to achieve the prize at the end, which is of course the girl, not the connection.
+
+you can't sell a person's personal connection to their source, so it's likely that people like me are going to be moved further and further away from the spotlight. additionally, since "the networvk" is now an organisation that exists to support itself, they must be able to continue to control and steer all the different peices of the story to maintain its own existance... connected people are unpredictable and difficult to control, so getting connected will definitely be the thrust of any of their stories.
+
+there are not *that* many different types of stories though, so I imagine that in less than 100 years time, the stories that the network continues to tell and tries to pass off as real experiece or reality to their viewers will begin to take the direction hollywood is going now, where they are having to resort to remakes and remixes of old stories, yet even still the film industry is really beginning to become more and more blatant with their story formula, that less and less people are going for the story, and instead they're going for the graphics or the imaginary universe the story presents.
+
+that works ok for the film industry because they can create films for fantastical and other make-believe places, however, in this case, once again, the medium is the message here, so that's going to be a pretty difficult selling point on a mudium that is essentially the assumption of someone else's reality (not make-believe story). so, while stories work really well in a non-first-person point of view, they're terrible from the first-person perspective[^1].
+
+the other major difficulty with telling stories from the first-person perspective is that, unless the protagonist dies, the viewer may want to check in from time to time to see how things are going. you can only have so many stories where things are constantly deteriorating into worse and worse circumstances, before people want to see improvement. most stories need to see some sort of improvement, so it's going to be pretty hard to cover up all forms of improvement. we'll see how they try to overcome this obstacle though. I think it's going to create a dichotomy between the story-viewers and the life-livers. I dunno, we'll see :)
+
+we're all going to enjoy planet earth's steering committee: the thrustmasters. lol
+
+[1]: imagine the movie "saving private ryan" instead of from the narrator's point of view, but instead from ryan's point of view -- or even from the point of view of the commander guy. it just really doesn't work well at all because it would be slogging through all sorts of pain and difficulty to an uncomfortable helicopter ride back to "reality" where other things are broken.
+
 # the end
 
 ### 7 years of tribulation (continued)
