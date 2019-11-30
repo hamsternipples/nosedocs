@@ -28,3 +28,5 @@ make people's idas make them your own and put them on your vision board
 # good ideas are famously unprofitable
 
 # expand your sphere of outdatedness
+
+# remember how you want to feel

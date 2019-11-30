@@ -10887,6 +10887,42 @@ we're all going to enjoy planet earth's steering committee: the thrustmasters. l
 
 [1]: imagine the movie "saving private ryan" instead of from the narrator's point of view, but instead from ryan's point of view -- or even from the point of view of the commander guy. it just really doesn't work well at all because it would be slogging through all sorts of pain and difficulty to an uncomfortable helicopter ride back to "reality" where other things are broken.
 
+### 2019-11-30 07:51 - maybe we should just go for it...
+
+I spent the last few nights thinking about the idea of what are the results if I were to just consider myself connected enough. well, not having my connection would mean a whole lot of different things:
+
+1. my physical appearance will be exactly like it is right now. I have (mom says) a worsening limp, and I have a pretty bad cough all the time. I have periodic ailments and definite difficulty with my left side. I also really dislike my teeth situation.
+
+2. I won't be sharp and in-tune with non-physical energy like I am when I'm connected. I will instead continue on like I am now. the sex will probably energise me though, so maybe I will be more energised than I predict.
+
+3. I have severe difficulty now with feelings. I'm getting around them right now pretty quickly, but if I were to stop watching stars, I may become a bit childlike with the behaviour because I have recently lost the ability to (sometimes) feel what the impact of something I say (or do) is going to be, so I'll be essentially pure desire. that may be a good thing though, I dunno.
+
+essentially, I'm going to be just like I am now.
+
+what I think can happen with this is that in my still disconnected state, I imagine that for the stuff that I haven't found a more optimal way to perceive, then I will be lowered down to their vibration (visual level?). that's just how LOA works for me at the moment. so lots of things will kind of jump out in the beginning until I get my perception cleaned up. it'll happen to them as well, I'm pretty sure.
+
+speaking of that, it seems pretty evident that nosebook has to ensure that none of the girls find their alignment either, cause the girls that have found thier connection could influence me up to their vibration much easier. so, since they're interested in keeping me down, I think that's pretty likely.
+
+I think that's a good thing though because instead of just me finding my alignment, we'll all be kind of tied to eachother vibrationally while we're sexually active together -- so, we would be somewhat all in a similar range. after some time, I'm sure that I (all of us) will get back to where I am now and even further. this is exciting for me because it's no just me finding my alignment, but a whole bunch of others (certainly many more than just the girls) as well.
+
+it's kind of a fun idea for me, even though the physical disadvantages, because everything is just soo much more fun when you have a bunch of people on the same frequency. it's also kind of fun a bit for me too because I already know that it's going there are going to be a lot of blunders and mishaps. so, we'll bounce aronnd pretty good for the first bit I'm sure, but the difficulties will make us stronger in the end.
+
+it will also make nosebook a whole lot stronger too, and give them a bit of a breather because I'm once again trading speed for acceleration. I'm sure they'll have us energetically very controlled, so similar to what is happening to me right now, they'll be forced to find their find their abiltiy to feel good no matter the circumstances.
+
+I think I don't really mind the whole thing about them getting stronger really because I can see that them getting stronger is creating a new dimension and at the same time giving tons and tons of people to have a kenny-speed experience (I'm referring to tuenti and the whole spain thing, how it shaped who I am now). on top of that, they're just making a harder difficulty level for us to come blasting through sometime in the future. they can have all of their super capabilities, but we'll find a way, anyway.
+
+also, it's kind of a weird thing for me to think about, these guys are going so far out of their way to convert their form of perception into the same as my own. they're doing the thing that will make them most like me, and they want to make-believe that they are me and have my capabilities. in some ways they're like my biggest fans, and it's weird too because my form of perception is built on improvement, so they're cleaning up their vibration while stealing from me, and I'm continuing to get stronger, as long as their guilt is sufficient to keep hidden. they have to steal the ability, hide it, and keep it a secret, their desire for own improvement. most bizarre thing ever, honestly.
+
+---
+
+so I was thinking and this may kind of change things for some of the girls if this path is taken. it's no problem if this is something you don't want to do. maybe join at a later time if you want. no big deal.
+
+the other thing is, I really wouldn't count too much of this yet anyway because things could change pretty quickly, and there's also the possibility that nosebook does some simulations and decides they need to hold things back because they don't have the capacity or something.
+
+for me though, I'm going to continue on my quest to get connected. this will continue to be my quest even when we're together, too. so, for now I'm going to continue on with that and assume that's the direction I'm headed. I *really* want to be connected. it does kind of excite me to think that we're going to do it together, too.
+
+still developing... I want to think about it with a clear head.
+
 # the end
 
 ### 7 years of tribulation (continued)
