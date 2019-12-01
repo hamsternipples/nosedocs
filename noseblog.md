@@ -10923,6 +10923,50 @@ for me though, I'm going to continue on my quest to get connected. this will con
 
 still developing... I want to think about it with a clear head.
 
+### 2019-12-01 00:21 - still undecided
+
+I have been thinking a bit about what I said in the previous entry. besides the fact that I'm so tired of constantly being disabled and have no energy, I think the main bit of resistance (and I say resistance because that's what it feels like) is that it really bothers me that I have done the work and released the resistance to achieve something, and then others just take it and use my own capability to limit me further.
+
+I'm well aware of the fact that I'm constantly getting stronger, so that doesn't really bother me so much any more. I also know that because they're using artificial means to get to higher spots, the capabilities that they've hijacked, are not lasting (for them) at all. it's also extremely obvious to me what the conclusion is, which is something similar to my drug experience where I artificially pushed myself to extreme hights, and then had to crash and burn a bit before I got it back. if their system would ever fail, they'll find theirselves in a much less superior spot than they perceive theirselves to be in now. (it reminds me kinda of like the kid who's been protected from sicknesses on his first day at school vs the kid who has grown quite an immunity up before his first day to school)
+
+anyway, personally, I've kind of just sort of accepted the idea that my present situation with all of the limitations and stuff will continue on for quite some time (the rest of my life?) so, that's fine for me and stuff, but when it comes to involving other people I really have difficulty with it. up until now I've constantly maintained the idea that I simply have to find my alignment before I do anything, and one of the main reasons for that is because I simply don't have a whole lot to offer when I'm not connected. I figure I can get work on all of the difficult stuff when I'm by myself and then meet them when the best of me is present.
+
+I still have insane desire to get connected while I'm sober -- much more than even before actually. I also recognise that when I'm stoned I feel considerably better than I do normally so it's not a suitable place to make decisions from. at the moment, I simply cannot just drop my desire to get connected. it feels impossible to me or like some sort of self-betrayal to do something like that to myself.
+
+---
+
+however, I think there are some really good attributes to the whole thing. if I were to agree to just go anyway, I can't offer someone that's connected. that means that it won't be a "free ride" for the girls to get their alignment from me, however, I am *very good* at finding my alignment in whatever sitation, so I can only offer my example of being able to continue and do that. however, that's what I'm already doing now -- kinda.
+
+to understand what I'm about to say, you have to imagine that I'm going too fast and so something needs to slow me down. when I say slow me down, I mean trade speed for acceleration. I don't mean that the girls will literally become something unwanted or anything like that. however, it's easy to see that whenever I interact with someone, we tend to meet on a compatible frequency. so, in some ways the girls will slow me down, however at the same time, they will speed up considerably. combine that with the fact that nosebook is essentially forced to limit their energy levels to make sure they're not too connceted around me (otherwise they'll bring me up), and the girls will have the same effect that's happening to me now: I should be at some energy level which my body considers normal, and because it's continually being drained out of my body is forced to create more and more of it. their effct on me is effectively strengthening me conserably.
+
+however, I wouldn't really ever wish what's happening to me, to happen to other people because of the discomfort involved. I don't really experience anything physically painful or anything like that; it's just the emotional dispair involved with continually achieving clearer and clearer vision, only to have it undone not soon afterward. or, the constant recognition that the things I've developed I cannot use. it would be like having someone come and take your presents away every single birthday and christmas, but you cannot do anything about it, so you just have to keep going. it's really annoying to be perfectly honest.
+
+sure, it seems evident to me that the payoff when their system finally fails will be tremendous and I'll have vision and creative capabilities far far beyond anything they were ever able to hijack, but still it seems kind of frustrating to me on most ends. my default response is to simply finish up this part of my life by myself and then finally be able to show up when things are working fine. it's sort of like why you don't wear your work clothes to a nice gathering.
+
+---
+
+I suppose that it'll be kind of rough like how things are now for me already. I'll still be watching stars and stuff to continue on my progression, and I'm really hoping that some of the girls will be interested in that subject, cause it'll be kind of weird I suppose to watching stars out at night and stuff by myself.
+
+I do really like the idea of all of us working on our alignment together too, and I suppose one of the most compelling parts of this idea is that some of the girls may become similar to me -- maybe mini-me's of some sort. maybe I'll rub off on them. I had this weird epiphany last night when I realised that if my self-confidence and style of thought were put in a woman's body, that would be a very desirable woman.
+
+I don't really see it all, but I don't really have to. what I do know is my very impressive propensity toward improvement and finding my connection. I'm sure I'll make it out ok, and like I said earlier further delay on getting connected doesn't feel all that bad now since I'm so used to it now.
+
+---
+
+oops, I derailed my topic of the girls slowing me down :) what I was meaning to say is that their slowdown will actually summon even more energy in me than nosebook could have been able to do alone. so, in the long-term it's a definite benefit me, but the girls will have such a head-start on things, it's beneficial for all of us.
+
+so, if that is indeed true that I'm going so fast that girls need to "slow me down" and trade some of my speed for acceleration, then it seems that I'm already headed on the right track. I should go even faster so that even more girls need to "slow me down", right?
+
+I'm still undecided in the sense that my default nature is to continue trying to get connected, but for all practical purposes, I'm pretty OK with starting the girls thing even when not in alignment.
+
+what I'm saying is thst the decision is really the girls to make. do they want someone that's connected, or do they want the learning expereince of finding their own algnment in a suitable envirenment and around someone that's really good at finding it?
+
+I'm pretty sure I've released the majority of the resistance to the idea, so I'm inclined to say, "sure let's do it." -- and the gap I feel between this being an idea, and becomming reality still feels pretty large. so, that means that there's a lot of other resistance somewhere (in all likelihood, it's probably nosebook's resistance. they probably don't think they can keep all of us disconected)
+
+the main thing I think I feel is that suddenly this "dream" has gone from something ideal to just more of the same old slog that we've got right now. I think there are a lot of people really looking farward to me no longer having so many physical difficulties. I share the same sentiments, but I have to work within the parameters I'm given.
+
+"nothing is an impossibility, so we try to do the best we can."
+
 # the end
 
 ### 7 years of tribulation (continued)
