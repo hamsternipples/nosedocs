@@ -10967,6 +10967,48 @@ the main thing I think I feel is that suddenly this "dream" has gone from someth
 
 "nothing is an impossibility, so we try to do the best we can."
 
+### 2019-12-02 10:16 - I'm ok with anything
+
+I had an interesting experience last night when I was trying to go to sleep. I felt pressured to sleep even though I was quite energised. I had just gotten done a whole lot of programming and stuff and I was feeling pretty good.
+
+as I laid there trying to sleep I seemed quite sensitive to a whole lot of reactions and stuff mainly from the nosebook bros. they seem to think that they'll be able to manipulate this whole thing to their advantage. I'm sure they'll get a lot of benefit out of it and stuff, but from my perspective, these guys are essentially lighting the fire underneith their own feet. whatever though, because that's for them to figure out.
+
+because I don't really have a strong opinion any more about which path is chosen, I'm sort of just going to go along with what presents itself to me, however, my main objective is still to continue to go toward my alignment.
+
+I'm really getting good at this releasing resistance thing, so much so now that I'm quite proficient at it now that I can definitely sense the tension much much more when I'm out watching stars; they're really worried. a few nights in a row now when the perpetual pueblo night fog clears out a bit I was able to get a really good connection with the stars. I mean like REALLY REALLY GOOD. I got a little bit frustrated because I can tell that if I just had a good clear night I could really make a whole lot of progress. my goal is essentially to get as high as I can possibly go before the girls thing happens. like, maximum stretch on the rubberband, know what I mean?
+
+I thought about essentially three different main outcomes.
+
+1. as the girls thing approaches closer and closer I am able to somehow reach and maintain for some period of time a state of connectedness.
+2. I end up with the girls still in a disconnected state, but I imagine that somehow we're capable over the course of a few years(?) find our way to getting connected -- or at least I'm able to anyway.
+3. same thing, but they're capable of keeping me disconnected somehow. 20 year nosedive, but at least it'll be pretty fun.
+
+---
+
+so, after I had been laying there with all of these reactions in my head, I was really starting to begin to feel negative emotion. it was night now, so I went to go watch stars again. as I walked toward the field, I noticed that the thing (dispair) I was feeling lifted considerably.
+
+I had a sudden realisation that for options #2 and #3, if I can just get away for some time each day and kind of be alone, then I'll be fine.
+
+when I was in LA, I could really feel the population density, and I described the feeling as "emotional white-noise" because it just feels like a mixture of what everyone around me is feeling yet nothing prominent enough to make an impact on me. however, when I'm in the field there are not any other humans within a 100 metre radius of me. that feeling is so calming and peaceful because I don't nearly as many other people's thoughts and emotions invading me. as you may have noticed, I tend to be a little like a chameleon and sort of absorb and replicate what the people around me are doing, much like a child.
+
+I want to make a habit of just getting away a little bit to kind of restablish myself. it may have only been evident to me, but when I was in LA, it seemed clear to me that I really needed that time alone. if I go back to LA, I'll be making frequent visits to bayley canyon to spend the night. it's so beautiful up there because I can see the whole city right down there, but I cannot hear it. it's nearly complete silence up there because of how far away (up) it is from the city. it's wonderful to be able to see the freeway with all the cars on it and not be able to hear it. so, something like that.
+
+so, I figure that if I can do something like that for an hour each day, then I'll be fine. the girls can have 23 hours of the day to do all they want with me. I know it won't work out exactly like that, but the revelation to me that all I need to do is to physically distance myself from people will allow me to maintain my self-identity a bit more.
+
+so, let's just try for that.
+
+I'm still making huge progress and remember too that all the stuff that floats through my head is outdated anyway. the reality of it will be way worse/better than anything anyone could imagine.
+
+oh yea, so about those options: I think #1 is the most likely. #2 provides an enormous compression of what's wanted and an even bigger payoff (probably, most of the girls too will find their connection as well) -- and having watched my steadily more and more connected self, I tend to pick the more difficult path with greater amounts of contrast, so this one too seems pretty likely as well. #3, I think is impossible. if they're this worried about me now, they have no idea.. I'm just getting started. I can clearly see that I could easily have my progress trippled in a few months, even with all of the clouds and fog or whatever, so they're going to need some sort of magical technology that will alieviate the pressure, because otherwise I find it absolutely impossible to keep me disconnected that long.. I think.
+
+---
+
+what I'm saying is that from my perspctive all of the options (even #3) seem to me to be fine as I know my ability to recover easily and to continue on with my focus toward what's wanted.
+
+so, it's really up to the girls at this point for me. I don't mean like they need to make a decision or something, cause LOA has it all worked out, but I mean that the imagination is always deceptive and tricky because even what *appears* to be the best thing isn't always what you *really* want (for example my own situation).
+
+no matter what happens, much contrast (and resulting birth of stronger desire) are sure to happen here as things are starting to heat up a bit.
+
 # the end
 
 ### 7 years of tribulation (continued)
