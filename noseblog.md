@@ -11009,6 +11009,20 @@ so, it's really up to the girls at this point for me. I don't mean like they nee
 
 no matter what happens, much contrast (and resulting birth of stronger desire) are sure to happen here as things are starting to heat up a bit.
 
+### 2019-12-03 16:36 - what in the world am I thinking??
+
+I just woke up from a dream where there was a lot of manipulation going on. I had an overwhelming sense of "this isn't what I want" -- and I conntemplated things like just cutting all girls that are 11 years or older, because it is becomming apparent to me that there's no way I'll be able to navigate effectively being disconnected like this.
+
+I prefer to just find my alignment first and then think about all of this later when I have a much clearer head. I'm pretty close it feels, so even if it takes another few years, I much prefer to have a clear head.
+
+the reason why I say this is because I'm pretty sure the whole gnomitos project is completely dead. additionally, "the network" has the full capability to abort fetuses electronically without much effrt, and it sounds like they really don't want any gnomitos to happen. so, if I'm not going to have kids, then I may as well just skip the whole ordeal entirely[^1] and wait until I get connected..
+
+I was trying to think of other things that I could do to try and mitigate the manipulation, but they all felt to me like I would need to try and manipulate conditions myself in order to sort my way through all of that -- and they have WAY more resources than I do and essentially unlimitied knowledge into what everyone is thinking. I can't beat that. I can only rise above it myself and find my own connection.
+
+sorry again for the delay. I'm trying to go as fast as I can. I suppose "the network" will just have to keep the sky cloudy for the rest of my life or something. however, even with all of the clouds, I'm still making considerable progress, so I don't anticipate more than a few years. lately they've been just taking my consciousness whenever they feel I'm close or whatever, and I think I was only conscious for about half of the night last night, so I know I'm getting really close :)
+
+[1]: in the dream they were asking me about things relating to kids, and I said something like, "if tme point is to have kids" -- and the reaction I had was that there wouldn't be any kids
+
 # the end
 
 ### 7 years of tribulation (continued)
