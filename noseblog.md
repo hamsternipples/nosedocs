@@ -11023,6 +11023,34 @@ sorry again for the delay. I'm trying to go as fast as I can. I suppose "the net
 
 [1]: in the dream they were asking me about things relating to kids, and I said something like, "if tme point is to have kids" -- and the reaction I had was that there wouldn't be any kids
 
+### 2019-12-04 09:33 - more thoughts
+
+in addition to what I said in the previous entry, I think it's really unfair for me to just assume that all of the girls *want* to get good at finding their alignment. more likely is that they would rather someone just give it to them without them having to do anything to obtain it. this seems like a very popular style of thought lately. for whatever reason swindling is at an all-time high.
+
+this isn't a way for me to passively aggerssively accuse the girls of being like nosebook, because I find myself doing similar things all the time. for example, most of my life I haven't really felt like I needed to hide things or keep things very much a secret, but I did notice a dramatic increase in my desire to lie or to really extend the truth after she left. or, even more familariarly let's say I want to smoke a cigarette or I want to go pee outside, then there's this weird feeling like I need to somehow try and hide it or something, when I know fell well that everyone can see me do it anyway.
+
+I've determined that my increased propinsity to think about trying to hide something actually is a similar effect to when I feel angry for something that I'm not angry for. like, for example, the other night I got up and I decided that I wanted to go take a lap around the field, there was a sudden loud motor and I felt very angry upon realisation of this. I assure you that my decision-making process was purely linear: I felt like I could go higher with the stars but I was feeling cold, so I wanted to take a lap to warm up a bit betore getting back to it. the anger I felt was not my own, but it came from the network bros trying to run my life.
+
+in short, what I'm trying to say is that the "feeling" of the guys running the network pervades the mental space of the people they focus their attention on. certainly, if I've had any attention on them, then they've assuredly looked into every nook and cranny of the girl's life. so, likely even if her initial desire was untainted, certainly after they've looked into her life a bit, now she'll smell strongly of your basic network funk formula, which is to obtain by any means necessary other people's ideas and capabilities in order to get ahead a little in the comptition..
+
+women in general are very competitive, and the women that I have met before often have a similar feeling to them where they try and find men with attributes that they perceive that would give them an edge in the comptition between other women (more money, more douchebag qualities, etc) and then try to sleep with the guy to obtain the thing they're looking for to try and feel like they're ahead of the other women. then, when she's finally sick of that whole game, she cuts her hair short.
+
+---
+
+when I was with chris, he told me about this story with linda (his aunt) where she decided to try and comandeer his creativity to her own benefit. I felt his pain a bit, but I was way too stoned to try and bring up the fact that his complaint is miniscule in comparison to what I am going through. everything that I have thought about has been taken from me in the sense that I am prevented from actually doing any of my good ideas, and they are taken and reappropriated. there is almost assuredly a version of MANBEAT out there that all the super cool kids on the network who have blown the right upper management have access to.
+
+besides chris' story, I'm sure that this is happening to a whole lot of other people as well. this seems to be the sort of "vibe" that "the network" promotes in people. I've wondered why that is, and I think it's a side effect of having so much DMT in the brain. if that were to go away, I think these sorts of people would have a sudden realisation that they are huge frauds, and that not everything is normal and OK, like things seem to appear in the dream-state like state of consciousness that high levels of DMT gives you. however, even though the reactions say I'm correct, I don't have enough information yet to make that conclusion.
+
+certainly, it seems to me, that this is the vibe of what is going on.
+
+---
+
+now, when it comes to me getting into alignment before I meet up with the girls, I'm not saying that they're trying to obtain something they made no personal or vibrational effort to achieve. instead, I see this from my perspective, where I typically feel so much abundance of good ideas and capabilities, that it doesn't bother me at all to give away my ideas for free. from my perspective, it's my pleasure to watch they get a taste of connection, even if it's not something that they did anythting to get.
+
+I actually prefer to think about it like I have so much abundance and so much to give that it litrally only benefits me to give it away[^1]. that really is how it is, even if I'm physically a bit disabled and limited at the moment. in a sense when the perspective of that changes in the person that's being taken from, it would actually be more optimal if we all had a bunch of aunt lindas.
+
+[1]: referring to, of course, the abraham story of the man with ex-wife taking a percent of his pay for child support, and their desire for him was that he had more ex-wives.
+
 # the end
 
 ### 7 years of tribulation (continued)
