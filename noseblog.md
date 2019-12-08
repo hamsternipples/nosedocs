@@ -11051,6 +11051,54 @@ I actually prefer to think about it like I have so much abundance and so much to
 
 [1]: referring to, of course, the abraham story of the man with ex-wife taking a percent of his pay for child support, and their desire for him was that he had more ex-wives.
 
+### 2019-12-08 11:49 - taking the least optimal route for long-term benefit
+
+since I've decided that I don't really mind so much going the least optimal route, I've been thinking about how this perhaps can affect things. let me begin by saying that all of this is *outdated*[^1].
+
+it seems to me that this planet (and my own life) has had a constant emphasis on letting the ideal thing that can be imagined become reality, instead the manifestation seems to head toward the least ideal manifestation of the imagination.
+
+some examples include the internet (most things military related, actually), where the discovvery and invention of the thing is used for its least ideal purposes. I believe that the internet has still quite a bit of improvement to go before it becomes this universal repository for ideas and information. we can see that the 90's held great promise for the internet, yet I believe that 9/11 interrupted that with all of the extra surveilance that was put on it to try and control these (invisible) terrorists from cause harm. from there, the internet began to grow again and web 2.0 was born. I had a somewhat influential part in that.
+
+once again the internet held great promise and seemed to be the greatest new thing, yet this time this time capitalism took its hold on the thing. there are many *many* more beneficial uses for social media than what is currently implemented. social media *should* have increased communication of ideas and lots of novel new technology should have been created as a result. instead, we have facebook, twitter and instagram :)
+
+if one were to pay attention to the dissenmiation of ideas as a foundation for sociatal growth, it should be evident that as communication increases (globalisation), more and more ideas flourished. a few notable examples of this are the times of the renaissance or the early 1900's (this is when tesla was alive).
+
+the pattern seems to be: first, the idea is uttilised by the military to try and control things. the idea is eventually replaced by something more advanced, and it falls into the hands of commercialisation where it's usefulness is determined by its profitability. finally, once everything has been controlled and capitalisied out of the idea, it eventually becomes something greater.
+
+tesla's world system is a shining example of this. none of tesla's ideals for the system were ever realised. instead, the military got it first, and now it's being used for capitalsation. one does not have to look very hard to see this pattern throughout history. I believe that actually there are some sort of extra-planetary forces that are actually ensuring that the ideal reality for any of these major inventions that would truly globalise the planet are always manifest in their least idael form, first.
+
+I think the real reason for this is that it creates a compression of desire, and allows for a more ideal long-term result. all technology is a two-edged sword in the sense that it can just as easily be used for harm/control/limitation as it can be used for "good". therefore, for a human species like our own, who has a tendency toward violence, it seems more optimal let the violent and controlling types get the technology first before the tech is advanced to a level where it can really do some major damage or limitation[^2].
+
+this sort of pattern seems to be continuing on into my own life, and I can begin to see its effects.
+
+---
+
+so, after I went to LA, I noticed a pretty beg shift in how I felt people's reactions to me. I noted this in a previous entry, as it's really been fascinating to me why that is. right before I went, I had some weed, and when I was smoking it, I could really begin to see that I was learning to perceive my own body from the outside looking inward. this is the beginning stages of 5d. then, when I got there I took a hike up the foothills for the mercury transit and had quite an incredible star-watching experience. I really expanded a lot.
+
+then, a week later when I met chris, I don't really know exactly what he said (cause I was barely listening with my ears), but the concept I received from him went something like, "you know that thing where you see yourself from the outside? you've got it! you should slow down" (or something like that). that kind of struck me as interesting because I don't see myself from the outside. I perceive the world through my eyes still.
+
+I pondered this a while to try and figure out why this may be so, and the conclusion I've come to is that my body generates a whole lot of DMT, yet the guys running the network, for whatever reason, destroy the DMT and maintain me at a very low level. the only way my vision improves is to simply generate more than they can destroy. the amount a person can generate seems to be dependent on how well a person feels emotionally. abraham call this resistance, which are just contradictory vibrations. drugs like weed, coffee, cigarettes,  and other stimulants, yoga, meditation, or stars, etc. can decrease the number of contradictory vibrations by causing you to focus on something (instead of the contradictory vibrations) and let more non-physical energy through.
+
+so, the less contradictory vibrations a person has, the more DMT their body generates naturally (from non-physical energy). it seems that I've released enough contradictory thoughts and beliefs (vibrations) that my body must be now creating enough DMT now that for people to perceive my experience now, the network needs to stimulate enough DMT synthesis in the observer's body, to be able to "make sense" or perceive my experience in a meaningful way. therefore, it seems likely that you all perceive my experience from an external perspective now.
+
+I'm kind of in a bit of a middle zone, between 4d and 5d. when I watch stars, or other meditations, it seems I can get myself to go up to 5d, however, whenever that happens, they take away my consciousness from me and reset me back to 4d. the last few nights though, I've been able to, instead of going up to 5d, see higher and higher detail levels (which were also reset back), so it seems they've come up with a method of destroying more DMT than they could previously.
+
+as I get better and beter and feeling good, the amount that I create will rise, and those previous vision upgrades will be realised as I create more and more. yes, I know sex will make me feel really good, so they have still a lot more that they have to work on to keep me in 4d. I think they'll probably be able to do it for a little while, but enventually, I'll go up. I can't say for the girls, but it seems likely they will eventually learn a similar thing, too.
+
+initially, I didn't (and still kinda don't) want to do the whole sex thing without getting into alignment first because I could see that it would be a less than ideal realisation of what I was looking for. however, it seems that something like this falls right into the category of major changes to humankind which seem to be directed toward its initial manifestation in its least ideal form. if I were to go up to 5d, they would have a much more difficult time controlling me (and probably monetising me as well), so just like 9/11 did to the internet, we probably need to take a detour through capitalsim before the idea can begin to be realised in its more ideal form.
+
+---
+
+when I felt the difference in reactions, I didn't really realise it, but they can most all be explained now by the difference in perspective. when you're looking through my eyes, the difficulty I experience seems much more distant. things that are happening inside of me are no longer perceived from my perspective, and now I look just as if I were another person. you can look at me now just like you look at another person, and just like looking at another person, you cannot really get a good read about what it's like to be "in their shoes".
+
+the medium is the message. just like a war story, the shift in perspective from the soldier's view to a top-down perspective, completely changes everything. it's quite interesting because I wrote this @[entry](2019-11-16 00:49) right around the time all this was happening. I seemed to intuitively know, and tried to shed some light on people'a change in perception of me.
+
+I'm going to end it here. it's very long now and I have a lot more I want to say. peace
+
+[1]: you can also guarantee that that this is outdated if you look back at my previous entries over time and see that what I could perceive *was* relevant in the moment, however, the hecho of perceiveing the thing, and people's reaction to the entry caused a creation of more desire, and therefore an evolution in desire. this seems directly linked to the creation of timelines, yet I do not fully understand it yet, so more ideas on this will likely come as a result in the future.
+
+[2]: for example, imagine if tesla's ideas were actually allowed to be realised and hitler were able to use them for his conquest.
+
 # the end
 
 ### 7 years of tribulation (continued)
