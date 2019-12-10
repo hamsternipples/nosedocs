@@ -11099,6 +11099,48 @@ I'm going to end it here. it's very long now and I have a lot more I want to say
 
 [2]: for example, imagine if tesla's ideas were actually allowed to be realised and hitler were able to use them for his conquest.
 
+### 2019-12-10 14:21 - the truth comes out...
+
+so, the little stunt I pulled this morning by accident (honest, not even I knew that's what I would do until maybe a hours before it happened) revealed a bit of a truth.
+
+when I was arguing with mom about the whole thing, I told her something I hadn't actually revealed yet, as well, when I said that I wanted to go my own way and do the things the way that I wanted to do them. I reasoned that if I were to do the girls thing, then I would figure out how to organise it, fund it, and do the whole thing the way that I (we) want it to be done.
+
+the reason for me is obvious: I don't want anything to do with these guys. they've got the anti-midas effect: everything they touch turns to poop. I want to be as far removed from their influence as possible.
+
+the second reason is just sort of an obvious thing for me. they do not want the whole girls thing to happen. when I watch stars, mr. motor starts the races every time that I think about how awesome the girls thing will be. next, as I mentioned in the previous entry, they've figured out how to see (the external perspective of me) when my body is producing 5d vibrations. the external view that you guys see is *not* 5d; it's more like 4.5d because of reasons I'll explain in the next entry, but the point is, going up to 5d for me doesn't mean that they're not able to broadcast my experience anymore like was previously believed. so, if they allowed me to see in 5d right now, they could still continue to broadcast me just like they are right now without a problem.
+
+it became obvious to me last night while watching stars that since that is the case, they could make the girls thing happen today or tomorrow even. they're fully prepared to broadcast me, yet it hasn't happened, because they're not interested in the girls thing actually happening.
+
+so, this morning when I woke up, I could feel their change of vibe: (something like) "oh good, now instead of trying to delay the thing, all we have to do is to make sure kenny is never able to orgsanise it hisself."
+
+the reason why they wanted to control it so badly was to try and delay it even further.
+
+this morning when I felt the reaction to what I said, (something like) "oh no, now we have to wait for kenny to get everything all set up; this is going to take forever." I was a bit puzzled, because clearly I'm not anticipating trying to make (or raise) millions of dollars as a kind of seed round of finance or whatever. the operation has gotten big enough now that simply isn't feasible for me to try and accomplish by myself. I would have to create something that was genuinely extremely successful, get it off the ground and sell it before I could even accomplish that, all the while when I find myself having a huge difficulty even programming a simple thing. not going to happen. the days of an idea coming to me, and me creating it and having it actually go somewhere, are long past.
+
+---
+
+so, that information kind of puts me in a new place now. on the one side, I want to do the meditator project with chris, but I'm struggling really really hard on it. I have much better capability after I watch stars, but the whole thing is really not easy at all. historically, in the past I've been able to just use javascript to kind of just hack together something pretty easily. of the languages I've used it's certainly the most rapid way for me to prototype things out. however, I cannot get a stuid build system to work, and it's the most simple of things. I usually in these sorts of cases just kind of make a "chapuza" and continue on being productive, but my head has such little light in it, I cannot even see the chapuza I need to make to continue onward.
+
+in short, the meditator project isn't dead, it's just that I don't have any way to work on it effectively with dragging my feet this hard. I *do* really really want to do it, and the bizarre thing is everytime that I typically have a difficult time here trying to work on it, running into dead-end after dead-end, but then as soon as I get out to the field and start watching stars, I suddenly begin to really want to create it again, and I see the whole thing much more clearly. however, they seem pretty good at destroying the DMT in my head, because that effect is getting shorter and shorter now, such that within an hour or so afterward, I'm back to "normal" where I feel completely lost on what to do and can't conjure even the bigger picture of what I'm creating in my head.
+
+so, I've postulated that what I should do is to try and use the girls (sex) as a method of feeling good enough to generate enough DMT in my head to be able to even see things. however, I've had resistance to the idea because I really want to do it myself. I *really* do not want to depend on the girls to be the reason for my feeling good. I want to be able to control so well how I feel, that they cannot stop me.
+
+however, at the same time, I've also been making the realisation that the less than ideal manifetation is actually not a bad way to go (see the previous entry), combined with the idea that since going up to 5d no longer means that they're unable to see what I'm doing and it gives me no relief at all from their attempts to try and control and manipulate me. so, going up a dimension is useless as a method to try and avoid their inflence. clearly, they're already ahead of me in that respect.
+
+what all of this means is, that their goal is to delay all of this as long as possible. I wouldn't expect them to try any make the thing happen at all. they probably want to delay it as long as possible because they can kinda keep up with me when all I'm doing is watching stars, but it'll probably be much more difficult to contain when sex is involved.
+
+---
+
+so, I really want to work on the meditator project pretty badly, and this is evident to me when I get some star juice in my system. that project has the possibility to make a considerable amount of money as well, but I'm completely incapable of making it successful in my present state, so I suppose that's something that I'll be working on after the girls thing begins. it really appears to me like there's no other posible way.
+
+so, that really means we can start the girls thing really as soon as we want. I don't really have any major resistance to the idea any more. my options are such now that there's no other plausible way for me to go now.
+
+I didn't really think I would be typing this, so I had never actually thought about it at all. obviously, when I'm watching stars tonight I'm going to be thinking about how to do it effectively. I think we're just going to have to start with a local group here in pueblo and begin expanding from there. we'll have to fund it with donations, because I don't really know how I could go to an investor with this project and not have them laugh at me.
+
+anyway, off the top of my head now, that seems the most likely future. we're just going to have to see how this develops. I have no idea at all what will happen.
+
+ok, I'm off to try and figure out some chapuzas for this code. hopefully this thing will begin to take shape and happen soon :)
+
 # the end
 
 ### 7 years of tribulation (continued)
