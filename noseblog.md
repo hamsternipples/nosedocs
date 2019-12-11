@@ -11141,6 +11141,54 @@ anyway, off the top of my head now, that seems the most likely future. we're jus
 
 ok, I'm off to try and figure out some chapuzas for this code. hopefully this thing will begin to take shape and happen soon :)
 
+### 2019-12-11 08:12 - what do I *really* want?
+
+so, last night I thought about the whole thing about doing the girls thing my way. I didn't really have any great ideas, but I had some thoughts.
+
+the one thing that popped into my head was simply the idea, for now until things get organised, what could happen is just do something like invite me over for dinner or something. now, how to get to that point, I don't really have any good ideas either, but it's a start.
+
+from there I kept on thinking and I could see that perhaps has some advantages, but then it could go in a direction that I wasn't really anticipating, either. I imagined that if I were to just kind of pass between house to house, that may be OK at the beginning, but it's not really what I want to still be doing a few years from now.
+
+so, I started thinking of how to make a transition toward what I want -- and, I know this is really trying to hard, but just go with it for a moment here. I know that in the end, I'm going to just let LOA do all the work and, it'll happen as a next logical step, so how do I aim toward it being the next logical step?
+
+this is just my initial thought (and is subject to change), so don't take it too seriously. what I really want is to eventually get a large place, or buy out some cul-de-sac with a bunch of houses (or something like that). also, I envision that I do want to be working on something or a few different things as well. it would obviously become a company and stuff.
+
+one thing that my father did, which I really enjoyed as a kid was to take me out on jobs with him. I was really small and couldn't do much of the difficult work, so he had me do things like put hog-ties on the bottom of the fence[^1] removing one of the links to put the fence to size, sorting random bolts, organising his toolboxes or other small misc tasks that are kind of effortless but perhaps a bit mundane or non-essential to the actual job.
+
+there are lots of those sorts of activities that can be done when it comes to code and stuff like that, so probably I'll do similar to what my father did, which is to pay them a few dollars an hour or something to do that. as they get more and more familar with things, I'm sure they'll become useful and their pay will increase as their usefullness increases. I started out at something like $2-3 when I was really young, and then when I became useful he finally upgraded me to $5 an hour, and that was like one of the coolest things of my life (at that time). I could save to buy a computer and other great things.
+
+all my other friends had an allowance that their parents gave them. tim had the most, so he often had some really great toys, and his parents bought him big things ($400-1000) for christmas, but we had a christmas budget (per kid) of only $50, so anything bigger we wanted, we could pay the difference (we all pretty much knew our gifts for chrismas because we all knew there wasn't a santa), so the only real surprise was what mom put in our stockings (stocking-stuffers). I never really resented my friends because I knew their parent were much more "rich" than we were (for example, tim's parents worked for JPL). I never really saw my $50 christmas budget as an obstacle to get what I wanted, because he had to wait for his birthday or christmas, but I could earn the money pretty much as fast as I wanted. it was a really good system. I don't think a system similar to that ih a such a bad idea.
+
+later on in my life, housework was piling up and so mom needed more than just little bits of help, so my father suggested that we organise the chores into sections and we could divide them up and get paid for them as well (in place of an allowance).
+
+so, I've always worked for what I wanted, and it really made a good ethic in me, because I could choose to be lazy and do none of the chores if I wanted, but I had strong ambition to purchase things like computers and games to play, so I found time to do my work. it was never required of me, so I never really resented it, either.
+
+if we live together (which something like that will happen, I'm sure), then housework will pile up over time, and think that'll be probably the most effective method of keeping that under control.
+
+---
+
+ok, so like I mentioned in the entry before last, first stage to a non-ideal manifestation is control and limitation... I grew up in a very male-dominating lots of control -- type cult, so that was taken care of. then, my father instituted the capitalistic motivations seen in the second stage of a non-ideal manifestation, which is what I explained above.
+
+I don't think we need to worry about the controlling and limitation aspects to this manifestation; it seems pretty well taken care of :) that's why I'm thinking in the economic sense now[^2].
+
+it still remains to be seen how this thing will turn out, but I do think the original goal of making and raising children is also a very good idea, and is something I want to do. first things first, though.
+
+---
+
+so, I want to aim for getting some projects off of the ground as soon as possible, because I think it'd be really fun if we could live and work together.
+
+I feel like the starting-point for this is the meditator project, because I think that one has the most potential to make money. I also want to work on a few others as well that I'm kind of itching to do, like games for brain-injured people, and other (mostly unmentioned) things :)
+
+---
+
+I suppose we can start this off however, but I think that kind of sums up the direction I'd like to see it go.
+
+it's gonna be fun :)
+
+[1]: a chain-link fence needs the bottom of the fence to be fastened to the wire run between the posts on the bottom, and they're usually done with hog ties, which are these circular things like a curtain ring which are crimped tight holding the chain link to the wire.
+
+[2]: do I think that this sort of thing will create money-hungry hyper-aggressive businesswomen? I doubt it. I grew up with the work ethic to be able to do things like tuenti, yet I wouldn't consider myself someone with lust for money (at all). one of the most common critisms there are for women is the gold-digger type, where she uses her sexual prowess to try and get (usually men) to make her the money in exchange for sex. I think that kind of women probably comes from a history where a man (probably her father) gave her everything that she wanted and she didn't have to put any effort into it, other than being cute and manipulative. sorry, that was a response to a reaction, and it totally derailed what I was trying to say... oops, I'm making this a note. I believe instead, the result will make strong well-rounded women, which unless you're a male-dominating-primate-type, is an *extremely attractive* quality in a women.
+
 # the end
 
 ### 7 years of tribulation (continued)
