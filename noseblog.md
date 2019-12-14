@@ -11189,6 +11189,64 @@ it's gonna be fun :)
 
 [2]: do I think that this sort of thing will create money-hungry hyper-aggressive businesswomen? I doubt it. I grew up with the work ethic to be able to do things like tuenti, yet I wouldn't consider myself someone with lust for money (at all). one of the most common critisms there are for women is the gold-digger type, where she uses her sexual prowess to try and get (usually men) to make her the money in exchange for sex. I think that kind of women probably comes from a history where a man (probably her father) gave her everything that she wanted and she didn't have to put any effort into it, other than being cute and manipulative. sorry, that was a response to a reaction, and it totally derailed what I was trying to say... oops, I'm making this a note. I believe instead, the result will make strong well-rounded women, which unless you're a male-dominating-primate-type, is an *extremely attractive* quality in a women.
 
+### 2019-12-14 06:39 - going for the worst possible manifestation...
+
+...by turning the world into a giant crack house.
+
+yesterday, when I was talking with mom about my situation, she was asking me what it was like to be in this disabled state where I'm unconscious and incapable of moving, I was explaining the whole thing, and I made a mention that for me it's essentially become a game to me. I'm getting so powerful now that my emotion has an enormous affect on the weather, and my ability to control my emotion and direct my energy is actually what is making me so successful at star watching now. I can go out and in one night get 3-4 major vision upgrades, which is something that would have previously took me more than a month to achieve.
+
+I explained that the whole experience is a whole lot like coke. I've done a lot of coke in my life so I have a relatively good grasp on how it acts on my body. she asked me if there was a way to artfifically do what I am doing. she was, of course, referring to the network how they're selling my visual capability to people, and they can essentially see like I can, without having done any of the emotional work of releasing beliefs and ideas which are making their vision go slower. instead, the machine is overclocking their brain so that they can see better, very similar to how mushrooms works. however, they can also electronically control it so that even at those speeds, your brain does not produce any hallucinations (which occurs when going real fast, your brain bumps into an idea which would normally slow your vision back down, instead the impact makes a visual or audible hallucination).
+
+I explained that this is all very similar to the utilisation of coke. coke is a really great way to accelerate your body and to make you feel abnormally good, when your body should, under the same circumstances feel really slow and slugish. the acceleration effect is what causes you to feel like you're no longer drunk if you do it with alcohol (which is a depressant), so it's just overclocking your body back up closer to (or a little beyond) normal speeds. it is possible to actieve that same sort of euphoria without coke, and I've done it quite a few times, yet at those speeds of euphoria, I'm much more capable of feeling good enough to get vision upgrades that they make sure that I never feel that good.
+
+DMT seems to be directly linked to serotonin, and I think they can both synthesise into each other, or DMT causes the creation of more serotonin, because the higher I get my levels of DMT, the faster my brain operates and better and better I feel -- which makes DMT in this case effect on the body, nearly the same as coke. it makes your mind clear, more lucid and you feel great euphoria. so in this sense DMT is the new coke, and your body naturally creates it as you allow your vibration speed up.
+
+you could also artificially stimulate your vibration to rise electronically, which is what they're selling (the arfificial stimulation) along with my decoded form of perception, cause once your brain is going that fast, reality become unrecognisable unless you have a form of perception which organises reality into something visually meaningful.
+
+many many very successful people use coke a method of stimulatiting thier body up to a speed which makes life a lot more fun, yet running at that speed has a bit of a cost, because you're not nearly in tune enough with your emotions to keep you from creating a big mess. however, money can solve that problem, because with the right payment to he right peple, these minor accidents can be cleaned up.
+
+---
+
+anyway, so the way the things have developed since the last few entries, is that although I can see the advantage of doing an unideal manifestation, I cannot get there. there's no way for me to do it. I'm essentially hard-wired to find a way to feel good. they also cannot possibly allow me to feel good either, because if I feel good, I start getting vision upgrades and I run the risk of getting connected, which means (to them), out of their control.
+
+I *must* be able to feel good in order for something to happen. I also have recognised the difference of how my mind things and reasons in certain feeling states. weed definitely is a way for me to feel good, but I do not believe it's a good thing for me to make any decisions on that. they can only help me to see how I should be thinking if I can find a way to feel better. so, the goal, like when I was on mdma and mushrooms, is to figure out how to feel that good while sober (which, like I said is something they do not want for me, because my vision increases and I gain more capabilities they cannot control).
+
+so we're kind of in a dead-lock now. they cannot allow me to feel good enough for even an unideal manifestation to happen, and I simply will not do something without feeling good. I assume they'll try to manipulate more things into place, cause they've been doing a lot of different experiments with making me feel things, yet they've all turned out a bit disastrous, so we'll see.
+
+---
+
+whatever happens though, I simply have to keep going toward finding my own connection. during the process, I'm getting more and more emotional control, which is basically making me unstoppable. I feel that the likely future here is not that they'll find a way of justifying me feeling better so that a manifestation can happen, so they'll spin their wheels on trying to force it, all the while I'm getting more and more capable of feeling the way I want to feel (which makes me less and less controllable to them), until I actually become completely uncontrollable: «you want to be so good at finding your own satisfaction, that no one is the boss of you».
+
+then, the manifestation can happen, and it's actually the "worst" manfifestation, too. instead of the girls finding their connection along with me, I'll be connected, and they'll be able to draw off of that pretty easily. so, it actually fits right into the same category as the electronic stimulus to overclock the brain into a heightened state. sex can do the same thing, and it's kind of annoying to me to think of it in this way, because then I become the drug the girls want, and they're essentially crackwhores. I'm not really happy about this. obviously they can't possibly allow for some little girls to get connected, so they'll have to limit them as well, so like me and the diminishing effects of stars now (lasting a few hours, whereas previously the effect would persist for days), they'll feel they need to have sex more frequently to get that feeling back.
+
+additionally, there's a whole lot of other stuff going on as well with the allowance of people to have their own DMT inside of their brain, which is alraedy happening in my case especially, in the same way that coke is controlled right now. you have to get it from an "official" source (that is from the police), and you have to have enough money to be able to clean up your messes. for the rest of the people, coke is illegal, unless you're in a crack house.
+
+the big black guy at the door makes sure you do not leave until you're out of money, and the guy running the house doles out crappy coke in the form of crack rocks to the visitors. if you're a woman and you want some coke for free, you can think about doing some favours in exchange for a few rocks.
+
+this is pretty much how it's going to work. the crackwhores are the ones that cannot afford the drug and have to get it by any means necessary.
+
+it's funny because in this whole process, there has constantly been this feeling like, "but kenny, we (the girls) are so attractive and charming, can't you make an exception to make us feel good?" that's not who I am. my original intention was never to have sex with girls. my original intention has been and always will be to be able to translate non-physical energy into something meaningful. I've always wanted to establish a meaningful form of communication with non-physical energy, and even the things that I want to create are also an extension of that (the devices which can utilise non-physical intention as method for controlling machines and extracting data). if you want people who have rigid rules and will make an exception and allow you to break their rules because you're attractive, you're looking at the wrong guy. there are plenty of those types of guys running shady operations, just for you.
+
+no one is forcing you to follow their rules. you can make your own rules and learn to feel the way you want to feel, but if you want to get the quick fix and make some favours in exchange for your drug, go ahead and do that. I knew this one woman in spain called cris, and I didn't really know what I was getting into with her because she was one of those types that made favours for coke, and her life was miserable. I suppose that susana was similar too, but I appreciated susana much more because she was much more human and stuff -- but, that's how all of this started. that's where this whole thing began, so it doesn't really surprise me that this is kind of where we're headed.
+
+the other thing I noticed is that the guys running the show really really want to be the superior ones, so that others in th crackhouse have to suck up to them to be able to get what they want. they want more of the gold-digger (cute an manipulative) types.
+
+it looks like I'm sort of locked into the worst manifestation now and it seems like that's what people actually want. it saddens me a bit to realise this, but I have no sympathy. I don't know how long it'll take me to finally get connected, but that seems to be the dividing line or the time split.
+
+---
+
+yeterday, I came up with a good analogy to this thing that I really liked. imagine a very dense rain cloud over the earth, and watching in slow-motion the leader as it makes its way down from the cloud looking for the ground. first, notice that the leader does not go in a straight line. second, notice that there are more than one leader, each one shooting off from where the previous one left off. notice too that most of the leaders don't make it to the ground. only *one* of them makes it down to earth and makes the conection. once that connection is made, notice that huge amounts of current in the cloud make it down to earth.
+
+you can imagine that the charge accumuationg in the cloud is similar to human desire to make bridge the gap toward ground. once enough charge has accumulated, that's when the leaders shoot out in the method I described above. after the connection to earth is made, a lot of the charge vacates the cloud, but not all of it. in fact, quite a bit of the charge remains suspended in the cloud.
+
+we can see that as a simile to what I had been callng a time split. it's not exactly the same, however, a large amount of something does leave and the majority stays behind.
+
+as I get closer and closer to getting connected, it creates an example for people to see that it is possible. many people will follow me in that regard. someone has to make the first connection and figure out how to get there. afterward, there's a bit rush of lots of other people with similar desire to connect with earth which will follow the same path.
+
+only the ones that want to bridge that gap will actally go; most will remain in the cloud. if you missed it, don't worry because eventually desire will rise high enough again to cause another leader to find another route so another connection can be made.
+
+this is perhaps an easier way to perceive a time split.
+
 # the end
 
 ### 7 years of tribulation (continued)
