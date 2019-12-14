@@ -11247,6 +11247,16 @@ only the ones that want to bridge that gap will actally go; most will remain in 
 
 this is perhaps an easier way to perceive a time split.
 
+### 2019-12-14 08:24 - the grand irony to what I just said
+
+first of all, by wanting to be superior so badly, they are actually making me the most superior, because I will become for quite a while the only person on the planet that's connected. it'll take others a bit to become more powerful than their machines (eg. become so good at finding their own satisfaction that no one is the boss of them), so for a little bit they will make me into the most superior. thanks :)
+
+the other way that I think there's some great irony, is that this time around people really wanted to see a lot of sex as the mothod of getting connected, but that won't happen until next time. the emphasis of this time is utilising something outside of yourelf as a means to gain connection (eg. nosebook using my form of perception and me using the stars). the way it's forming up to be is that next time that all external forms will be so heavily controlled, that really the only thing with power in it anymore will be sex. so, in a world where the superior ones want favours in exchange for your own DMT, sex will be the only way to really make that happen again. so, next time around will be what you're all looking for, and there will be many of us too, thousands of me's in both male and female form.
+
+so, the thing that they're trying to use as their booster, is the technique which the leaders will use to make their connection.
+
+it seems to be a cycle of irony and paradox.
+
 # the end
 
 ### 7 years of tribulation (continued)
