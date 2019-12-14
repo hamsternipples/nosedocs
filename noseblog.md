@@ -11257,6 +11257,30 @@ so, the thing that they're trying to use as their booster, is the technique whic
 
 it seems to be a cycle of irony and paradox.
 
+### 2019-12-14 14:04 - in short, they want crackwhores
+
+to sum up the the previous two entries, what I think happened is I wrote about what I wanted here: @[entry](2019-12-11 08:12) and there was a strong reaction to that. they don't want women who are actually attractive and capable of their own direction, because they cannot control them. instead, they want the more cute manipulative types because they think they can control them easier[^1].
+
+as a result, if they're desiring that the girls are more of the crackwhore type where they're trained to make favours to get their DMT fix, then I need to get connected, so the girls don't have to do anything accept for have sex for their fix. their own desire to want to control the girls with DMT is the reason why I suddenly changed to going back to not being able to move forward without getting connected.
+
+that, combined with the fact that they cannot possibly actually let me feel good enough for it to happen, puts us right into the middle of the "worst" manifestation.
+
+---
+
+however, just cause I get connected doesn't mean that the girls *must* behave like crackwhores. they're free to do what they want to do, and I will obviously discourage that kind of behaviour, too. so, not all is lost. really, they'll make what they want from it.
+
+---
+
+the true crackwhores that are coming out of all of this are the guys working at network addicted to my form of perception. it's obvioous that they cannot possibly imagine living without it, which is why they're working so hard to make sure I never get connected or to leave. so, in that sense, the company is very divided, with the younger hotshots that are addicted to my form of perception, strongly desiring that I never get connected, and the older crustier types desiring both that I do and don't get connected. I may have just tipped the scales in them with a bit of a jedi mind-trick describing the control of the girls being easier with the girls being reliant on my DMT fix like crackwhores. we'll see :)
+
+anyway, the back to the young hotshots addicted to my form of perception being the true crackwhores... lol. they're addicting theirselves pretty heavily to that feeling of mental clarity and alignment so much that when my form of perception is no longer available (for whatever reason), like me after my mdma and shrooms experience, they're going to have to figure out how to get back to that feeling without access to the drug.
+
+some ideas I have for them are: sex and learning how to release negative emotion and the beliefs that cause them. however, with sex, they'll probably want to find a way to orgasm at the same time as the woman for the powerspike they're looking for. however, the way that the woman perceives him and feels about him during the orgasm greatly affects the form of perception that he receives from her (remember, men are receptive like a tesla coil, and women are emissive like the magnifying transmitter). so, he may want to try and optimise her emotional perception of him. either way, I imagine that the majority of these hotshots are going to have a pretty serious crash and burn just like I did after my encounter with raquel and my inner conection being muted after vallecas.
+
+I woke up just now with a pretty strong desire to want to go back to working hard at getting connected. I think my jedi-mind trick worked a bit in my favour :)
+
+[1]: LOA demonstrates that they both have to be on the manipulatioun vibration to meet, so they're both going to be thinking they're both manipulating each other, so it'll just be more of the same thing we have right now (what I don't enjoy about women, and the reason I decided to become asexual in the first place)
+
 # the end
 
 ### 7 years of tribulation (continued)
