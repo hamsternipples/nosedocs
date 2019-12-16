@@ -11281,6 +11281,92 @@ I woke up just now with a pretty strong desire to want to go back to working har
 
 [1]: LOA demonstrates that they both have to be on the manipulatioun vibration to meet, so they're both going to be thinking they're both manipulating each other, so it'll just be more of the same thing we have right now (what I don't enjoy about women, and the reason I decided to become asexual in the first place)
 
+### 2019-12-16 13:14 - I think the tentative plan is...
+
+after writing the last entry, I had a whole bunch of strange reactions to it. the most notable of them was to the part where I mentioned that the true crackwhores are actually those that are growing very addicted to my form of perception. when I was saying it, I was thinkign primarily of the people running the netowrk, holding me away from my capablity and utilising it for theirselves I'm also most used to getting reactions from them, and in some cases, it's hard for me to even distingusish my own emotional response anymore because their feelings are so much on my frequency now, that I notice very little difference from my own now (it's easy to get the reactions from the extremely different than my own frequency, like mr. motor or whatever).
+
+anyway, this was a bit mind opening for me because I didn't really realise how many very famous and powerful people are on my frequency. so, when I say that they are really the ones becomming addicted to that feeling, and are going to be the true crackwhores, it stirred up a whole lot of funny feelings of insecurity regarding the whole thing. first of all, it's quite true that they (the engineers doing all of this stuff) have no concept of what they're playing with. second, they're so far strung out on DMT, that the way they are interpretting reality is very very distant from what it really is. if you've ever done high doses of mushrooms or ayahuasca, you'll know what I mean when I say that even at the peak of the trip, even though there is a sense of urgency to try and regain some form of normalcy, the whole experience feels just as real and normal as it possibly can be[^1].
+
+like I said, a very similar thing happened to me after the vallecas incident when this amazing connection that I had to something went away. because I had such a wonderful time with it, I had to find a way to get back to it, and *that* was actually the greatest gift that nosebook could have given me, because now I'm totally in control of that. I said the word crackwhore, because I wanted to use an extreme example of a woman willing to do just about anything to get back to the way that she feels on coke. it's pretty close to the same thing though, cause once I had it, I *had* to find a way to get it back.
+
+that caused me to go through various drug experiences, but eventually landing on stars and extensive reprogramming of my personality to accomodate for a less-resistant perspective of how things in life work. although I monetioned that perhaps what they'll be looking for if that ever goes away will be to try and orgasm with the woman during sex to get the power boost their looking for, but that garnered a negative reaction both to the idea of actually needing to focus on or allow the woman to have any sort of pleasure during sex (eg. this is all about the dude and his sexual experience, and the woman is just the inferior receptor) -- and second, a negative reaction to the idea that in any way could their system ever fail (eg. the idea of there being an absence of a system seemed incomprehensible, cause they feel so sure of their system for some reason).
+
+---
+
+so, yesterday there was a lot of activity (meetings) in response to my assertion that there is simply no way that I can possibly go through with this until I'm connected. the sense that I get is that once I'm connected, then a whole lot of people (not just the ones that work for network), are going to be demoted down to whatever their backup form of perception is (jaron?). the reaction was strong because they seemed to be quite frustrated with the recognition that now they're not going to be on the highest form of perception anymore; they'll be like everyone else now.
+
+so, it seems that yesterday there was a huge boost in desire that I *don't* get connected amonst those who pay for that form of perception. seems they really don't want to lose it.
+
+I went to sleep and during the night I had a bunch of weird dreams where it seems they were experimenting and running simulations on the idea of me going with the girls now. seems that no matter how they try and work it out, the girls get a huge power boost, and it felt to me like when that happened, because of the way the girls are, the earth kind of turned into a fantasy like environment where things were manifest in 3d space with the mind, people flew and all sorts of fantastical creatures sprung into existance from people's imaginations.
+
+I woke up this morning and they were kind of depressed about the whole thing, so I responded to them saying, "I don't understand, all of the things that you wanted to control, you have now under your control. as soon as you realise that there are more things that you cannot control, you get pissed off and want to have absolute control, but I feel the same way about the whole thing too, but with my freedom. I want complete freedom from this prison, but I never seem to be able to get it, either. you never get absolute control, and I never get complete freedom."[^2]
+
+I went up to eat and explained to their that their feeling feels like adolfs's does at the end of the second world war. he simply had not accounted for or made any plans to lose the war. it never entered his mind (sorta like the negative reaction I felt from them to the idea of their being a time in the future where their system isn't working). he killed himself because he couldn't come to terms with the idea of living in a reality where he had failed. that was what I felt from them. I went downstairs and laid down again. they put me to sleep and put me through this weird dream sequence where I was trying to rub my sister's vagina again (through her pants), but it was really weird because it was really her sock on her foot. I was force ejaculated, only to look up and see patrick standing there, looking at me like "wtf are you doing??" -- but I was confused because it felt to me more like jessica than it did melissa, and also I was apparently rubbing her foot.
+
+I woke up feeling one of those "wtf is going on, which reality am I in" sort of moments, and as I regained reality my butt (prostate) really started to hurt. I was pretty frustrated because I don't understand what they're doing. I think they're trying to piss me off, and ensure that the girls thing doesn't happen.
+
+I sat there thinking about what I could possibly do to protest their stupid force ejaculation dreams, but I don't really have anything I can do. they're just going to keep doing it. then, I started thinking about what I had said about orgasming at the same time as a power boost, and it seems that they're going to have to try and stop that too, to ensure all of those people paying for my form of perception that I don't ever get connected. so, they basically will have to make sure we have a lot of bad sex trying to make sure we don't orgasm at the same time and stuff. there's nothing we can really do about it either. it takes my forced ejaculation problem and expands it out to the girls and stuff too. pretty uncool.
+
+---
+
+it seems that I could kind of go both ways on this, but obviously I'm going to continue to watch stars and stuff as a way to get connected.
+
+when I came back from LA, there was a lot of confusion in the air as to what will happen and stuff. I went and I got some weed to help me think because like this I'm WAAYYY out of sorts. anyway, what I saw is is that I would continue to rise higher and higher in vision upgrades, presumably watching stars. I suppose it could also happen from sex too, but the point is I should continue to rise up higher and higher. these guys running the network are going to try and remain superior to me, so I'll push them up higher and higher.
+
+while this is happening, the two major projects I want to work on will be the meditator and the games for the brain injured. after talking to rianne(sp?) and maria about it, seems they want to also be doing things that will integrate more ways for these BIPs (brain injured/y people/patients) to tell their story. chris also wants to integrate a lot of different ways to tell yourself stories with the meditation thing and the way we're going to sell the thing.
+
+it's a really great idea, because I recognise the value in telling yourself (and others) stories, because I did this a lot in spain drunk in bars, and found that the process of telling the story is actually your own way of processing your "trauma" -- and so the way that you tell the story each time actually helps you to kind of "work through" the trauma and begin to make it into something that has a more epic feel or some sort of bigger thing that's happening in the life of the story. I really think this is something that is very worthwhile and and will have a tremendous impact on how people perceive life.
+
+at the same time, it seems likely to me that those hooked into my form of perception will all begin perceiving theirselves from an external perspective. perhaps some people pay for this now, but I think as I keep going up, this external perspective will become the inferior one, and so it seems to me likely that eventually everyone on my form of perception will see theirselves externally, and it'll become the new normal for people. this is also really good, because the new detached perspective of yourself will make it a whole lot easier to tell stories about yourself, because as we can now see the perspective from which the story is told makes a whole lot of difference.
+
+that all seems to be falling into place just fine. the only question remaining will be the one of the girls. I think I way I want to do it, is to make sure that during this transition time, my focus is going to be on star-watching and on programming.
+
+what this creates is a bit of a buffer. a transition period where things are going to get pretty nutty as I/we approach getting connected. remember, the adolf reaction from last night's experimentation, where it seems that they're pretty sure that they cannot stop the girls from getting connected. so, that means we're all heading there, and there's not much they can do about it.
+
+so, it seems to me like during this time, I think it's a good idea to be doing these sorts of things, generating some money, and then we can afford to get our own place and stuff too.
+
+I get the sense that we should just begin the whole thing kind of naturally or whatever. I've always maintained the idea that this whole thing has been delayed from 2012, by 4 years and so for some reason in my mind it seems to me like this transition period will last ~4 years or so. so, that essentially means I'll remain disconnected for another 4 years or so. so, because my star-watching is going faster and faster that does seem likely to me. in order to get to 11d, and assuming I just got 5d, then I have 6 dimensions more to go over the next 4 years. seems like I could perhaps shoot for 6d next year, 7d the year following, 8d and 9d the year following, and then in the final year get the remaining 10d and 11d. it seems pretty doable to me.
+
+so, I definitely want to be doing a whole lot of star-watching to be able to make that happen. I don't really know, but I don't really think I'm that opposed to the idea of sex during this transition period. it doesn't really matter to me either way. I'm going to be mostly economically focused, and I suppose that if you want to have disconnected sex with me, that's really up to you.
+
+if we focus on econing in the early game (I feel like I'm talking about TFT), then we'll have the resources to be able to accomplish what we want to in the mid to late game.
+
+I think this is probably the most viable plan for right now. I'll consider it the tentative plan for the moment. I'm going to go buy cigarette papers and think about it in the snow, now.
+
+---
+
+I'm reminded of this really famous thing that has caused some controvacy. in the great pyramid, thoth (I'm assuming he's the builder) uses this concept which I really like to square the circle. he takes two  3-4-5 triangles, a square of side-length 3, and uses it to describe the ratio of the earth to the moon. on the bottom, there are a line segments of longths, 4, 3, and 4 as indicated below. if you take the history of this event, we're at the end of the square now. imagine the figure below really upside down, and it looks like from the end of 2012 til the end of 2016, the line decends. from there, it goes into a lull up until the end of 2019 where no vertical progress is made, then at the end of 2019, the line begins to rise again (up until the end of 2023?).
+
+I thought that was an interesting thing. it's like the descending pasageway in the great pyramid :)
+
+```
+             +---------+
+          .  |         |   .
+      .      |         |      .
+  .          |         |          .
++------------+---------+------------+
+|      4     |    3    |      4     |
+^            ^         ^            ^
+2012        2016      2019         2023
+
+
+           ...inverted...
+
+
+2012        2016      2019         2023
+^            ^         ^            ^
+|     4      |    3    |     4      |
++------------+---------+------------+
+  ˙          |         |          ˙  
+      ˙      |         |       ˙      
+         ˙   |         |   ˙          
+             +---------+              
+```
+
+[1]: the way that the DMT in mushrooms or the ayahuasca works, is to get you to look at pretty fractal patterns, so that your sense of normalcy is disrupted and you can accept that something different or abnormal is happening. like a magician does with slight of hand, the pretty colours are essentially just a distraction mechanism to allow you to transition and accept a whole new reality as "normal"
+
+[2]: I postulated that the next time that we show up on this planet, again a huge technological advance will be made, and they'll be right there trying to control it (it likely has to do with clones and living a multiple bodied experience), but it'll yet provide another freedom, which they cannot (yet) control completely (probably having to do with the definition of who someone really is, and how do you control them if they exist inside of more than one body)
+
 # the end
 
 ### 7 years of tribulation (continued)
