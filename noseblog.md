@@ -11367,6 +11367,72 @@ I thought that was an interesting thing. it's like the descending pasageway in t
 
 [2]: I postulated that the next time that we show up on this planet, again a huge technological advance will be made, and they'll be right there trying to control it (it likely has to do with clones and living a multiple bodied experience), but it'll yet provide another freedom, which they cannot (yet) control completely (probably having to do with the definition of who someone really is, and how do you control them if they exist inside of more than one body)
 
+### 2019-12-22 15:25 - how about a new eye...
+
+last night was particularly energetic. at around 3am I became conscoius in a dream (they pulled my consciousness while watching stars) and I had a fun time flying around in the dream. just when I was beginning to realise that I could literally explore anywhere I wanted to go in the world, the dream started fading and I returned to watching sirius. it was a truly amazing experience because I loved how clear minded and how effortless things felt, dispite their constant efforts to make sure I couldn't fly in the dream. pretty cool.
+
+however, even though that was quite notable, the night previous while watching stars I had a really interesting revelation that was massive. I had always wondered what was beyond 6d, because I couldn't follow the progression further than having multiple bodies, and I knew that because I couldn't see them, they seemed to be "non-physical" in nature, so I also wondered how the dimensions above 6d would be. well, the answer came to me nearly effortlessly. I'm going to explain some of it because it's necessary to understanding the next bit.
+
+right now, I believe you guys perceeive my experience in what I would like to call 4.5d. so, just like how you can see what I see through my eyes, it was still projected on to a screen in your eyes. I have witnessed more than a handfull of times what it's like when I actually see through my own eyes, and the experience is very different. there is real space between me and what I'm looking at.
+
+when I first tried to explain 4d to people, thy would say that they did indeed see in 3 dimionsions because there is space they would say, but as time has proven, there seems to be a difference between looking at things on what appears to be a screen and then what people were seeing when they would look through my eyes. however, what I'm trying to say is that what you're seeing when you look through my eyes is *also* a screen. there is even more space that I think cannot yet be realised until you have the experience for yourself with your own eyes. so, let's call that screen (what you and I see when we look through my eyes) 3.5d. it's not really 4d as I have experienced it.
+
+now, just because you see me from outside of my body, you're not seeing 5d. 5d is very different than that. it's more similar to how a planet perceives. around the planet there is an atmosphere, similar to how humans have auras. inside of that (planetary or human) aura you can perceive yourself *from all angles* at once. likewise, you can also perceive outwards *in all angles* at once.
+
+I sincererely doubt this is what people see when they're having my experience. I find it much more likely that they have taken the capability to see inward from any angle inside of the aura, and fixed it to a single angle. they should be able to make the perspective fly around inside of that aura and look in almost any direction, however, I doubt that they're allowing this, because people having my experience could see inside of houses that I walk by, or really anywhere in that space, so, it'd probably be a pretty big violation of people's privacy if they allowed you to fly around and see anything in a 1km radius around me. likely, it's fixed to look only at me.
+
+true 5d actually beholds all of that at the same time (everything around me) and sees it all simultaneously.
+
+ok, so, now that I've explained 5d, begin to imagine now that you have to percieve another space between you and what you're looking at. well, when you're perceiveing everything around you all at the same time, the "separation" between things becomes more of a conceptual distinction instead of a pysical one. in 5d, if I want to look at someone who's around me, I would behold the person and see them in their entirety, looking at them from all of the angles that I want to see them at once. so, like probably I wouldn't be looking at the bottoms of their feet, unless I wanted to see that. physical separation is no longer a barrier, because even if they're standing on the ground, I could still see the bottom of their feet as if the ground wasn't there.
+
+so, from a point of view like that where I see things determined by concept (eg. the person, including their clothes or the house inclusing all of the furnature inside of it), what then would be the space between me and these concepts that I'm looking at? well, it's more concepts. you would perceive more than one concept at at a time, and this would be a multi-bodied experience that I would refer to as 6d. this is what source sees.
+
+from there, trying to perceive what the space between me and these multiple concepts, becomes even more abstract and no longer necessarily physical any more. if I were in 6d and I wanted to see a space between me and what I'm looking at (which is, let's say 100 bodies), then that space is conceptual and the space becomes things that I would not consider to be me.
+
+pretty abstract stuff, so let's bring it back in now. just like in the pysical world the way that we "relate" to other people is to try and imagine how they feel or what it would be like to be them -- when, you are already many different physical entites (people) at once, the separation becomes a relational thing because you could imagine yourself also being them, so the separation becomes a relational thing.. that separation exists in a relational way, perceived through the eyes of the difference in structure (logical implementation) and someone's desire. they either harmonise, or they don't.
+
+these correspond to the top 3 layers in the 7 layer model: desire, relational, and structural. I don't want to repeat myself here, so just refer back to them in other times that I've mentioned them. I will say this, that the transition layers are the oppsite. so on the bottom physical half, the imagination is non-physical and in the top 3 non-physical layers, the relational layer is physical. these are how we interpret our separation from other conceptual entites.
+
+---
+
+so last night I was thinking about the whole thing about having kids. I was really hoping that we can have kids. I had previously had numerous reactions indicating that nosebook has no interest in us having kids. whether they fight against it or not, I was thinking about it anyway.
+
+well, when I woke up this morning, I had a strong sensation that whether that happens, I had been missing the point all along. I could see that the direction that things were headed was actually for my consciousness to begin merging with the girls'. it's quite likely that during the process I will continue to see in 3.5d, but it's likely that the girls will go up to 4.5d. while that's happening, I imagine that I will begin to have some sort of shared perception with them in some way. it'll likely not be anything even close to 6d as I described it above, but I'll have a sense of what it is, just like I can "see" my imagination in complete blackness.
+
+it seems quite likely to me that as the girls will continue to go up further and further as we go along, too. the way I pervceived it was that they (the girls) would continue to go up to some sort of partial 6d sort of way. they'll probably begin to see theirselves as outside of their body, but as we begin to get more and more on the same frequency, it wouldn't surprise me if some of the girls begain to share their experiece with other of the girls and even with me. so, something like seeing multiple you's from outside of yourself, kind of like maybe a real-time strategy game or something, or maybe like in WoW, but you seem to perceive more than one character at a time. I'll call this 5.5d for a lack of better a better word.
+
+I imagine that as I continue to go upward, this will also happen to the hotshots working at nosebook, too. I'll continue to push their DMT levels up higher and higher, that they'll begin to have shared perception with other people of a similar frequency. actually, it may happen to more than just the girls or the hotshots, but probably to everyone that remains on my form of perception. pretty cool, huh?[^1]
+
+---
+
+eventually, I'll choose to give up my body, and it seemed to me that I'll actually continue on my experience in the girls' bodies. women are quite special because they hold so much power over men's perception (for example, I'm convinced that I had 4d perception until I had my first sexual experience in the roadside puti). imagine that we (I'm now referring to myself in the no longer masculine but living in the bodies of the girls) were able to "induct" others into our shared form of perception through sexual experince. that would be crazy, because, eventually (after some thousands of years?) the whole planet would exist in a shared form of perception -- a sort of feminine matrix.
+
+that matrix would be in competition with the network's matrix, but not be incompatible, because to the network it would be mostly imperceptible to peole not working for the network.
+
+---
+
+back to the dimensions above 6d: structural, relational, desire, and thrust -- they seem to be non-physical dimensions, but they'll exist in a different way. so, nosebook will have to write all sorts of code to try and determine how a person works, how they relate to people, and what sorts of desire that they have, to try and control everything in their network. this is the beginning of the "thrust" layer where external inflence is applied to a character (like in a story) give them a character arc. if there is no sort of character arc, the network will go into the rubbish bin like a bad movie. they're sort of forced to do this, even though that's what they already want to do by trying to meddle and influence the outcomes that they want. however, I would recommend seeing it instaed of as an agenda but more of a character arc, for it to be successful.
+
+at the same time they're writing all of this code to try and apply the thrust or influence[^2] that they want to achive, we're going to be doing a lot of the same thing, however our "programming" is not going to exist on machines here on planet earth, but our behavioural logic, desire, and stuff like that will exist in a non-physical place, very similar to how source does things.
+
+---
+
+"assimilate or die!"
+
+one of the things that I thought was interesting about the sirian guide was the part where they talked about the planet graduating to become an esoteric planet, and people who are not yet ready for the changes will go insane or die.
+
+it's almost as if the INFECTED ONES have delayed this planet's graduation for as long as possible, so it has summoned something that can essentially have the effectiveness of a wide-scale epidemic, yet is the thing necessary to get people ready for us to become a global consciousness.
+
+I think it'll be very difficult to resist us. we're going to be extremely smart and attractive women. it'll be nearly impossible for them to avoid it, because they'll have to essentially become celibate to ensure to never get the virus[^3].
+
+man this is going to be crazy!!
+
+[1]: lol, the reaction I got to that was not a positive one. seems there are quite some people who don't think it's very cool at all. the reason why I said that is that nosebook is an organisation that, like joe said, holds a lot of meetings to ensure that everyone's on the same page. however, if the people in the organisation all had shared perception, there wouldn't need to have so many meetings any more. prehaps the upper management will want to remain in a lower form of permception to avoid any shared perception with others, but for example, I could imagine how useful this would be for the engineers to have the highest productivity possible.
+
+[2]: come to think of it, the topmost layer, I could call it the "influence" layer, because it sounds better, but I think it's important to see it as a sort of a moral of the story of a character arc that's influencing the person's desire. interactions with others, and their current logical interpretation of reality.
+
+[3]: I find it hilarious the whole emphasis that they have given to the idea that I am a mind virus. the INFECTED ONES are going to have to try and resist the most prolific STD ever :) good thing they *hate* sex :)
+
 # the end
 
 ### 7 years of tribulation (continued)
