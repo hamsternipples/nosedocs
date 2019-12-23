@@ -11433,6 +11433,70 @@ man this is going to be crazy!!
 
 [3]: I find it hilarious the whole emphasis that they have given to the idea that I am a mind virus. the INFECTED ONES are going to have to try and resist the most prolific STD ever :) good thing they *hate* sex :)
 
+### 2019-12-13 09:16 - some feedback regarding the last entry
+
+#### why did I choose the faceless corruptor's voice line?
+
+I had been giving my attention to the way that the creators of the hearthstone game (and other games) think of the voice lines. some seem to be quite out of place, and others seem to be lines that I would have never been able to think of, ever.
+
+anyway, when the new expansion came out, it could easily be seen that the new most commonly used card would be the faceless corruptor. when summoning this minion, he copies another minion on the board (in whatever state the other minion) is into a copy of himseelf. this is extremely OP, because in his base form he's a 5/4 unit with rush (can attack other minions but not face on the same turn that he's played). so if you have a 1/1 unit on board that's not yet ready or another damaged mipion, it's essentially buffing the unit by some amount and giving it rush, allowing it to attack again or instantly become ready.
+
+the voice line (to me) sounds like he says, "how about a new eye?" when summoned, and "assimilate or die" when attacking. the new eye part is obviously referring to the pineal gland, in the person. it's clear that in order to have 4.5d or 5.5d, the person will get their pineal gland activated. this is where the aura comes from which encircles the body. the pineal gland aparently is an eye-looking thing in the centre of the brain which seems to also be responsible for synthesising DMT. this is the new eye.
+
+the assimilate or die part is in reference to the coming earth changes. as the primarily conscious organism on this planet, we're becomming a global civilisation. what I used to think is that this meant that as a civilisation we'll have all parts of the world communicating in a very efficient way, however, the more time I've spent thinking about this whole network thing, the more it's become evident to me that we will (whether this comes from direction from the people running the network or by our own choice) become unified in thought, and begin to think as a global organism. I first perceived this as what I termed the "thrust" layer up on top, where like a storytelled does in a story, the characters are given an arc, and their lives are directed by the author into contrived situations in order to advance/develop the character arc for the charactor.
+
+this form of perception was a huge leap forward for me because previously I had been perceiving it as manipulation and some sort of global agenda forced upon us (like they have been kind of been doing with me) by the people running the network. I could also see that while this "inflence" was definitely real and would become more and more a part of our lives like it is already for my own now, I could also see that people would begin making their transition into 4.5d to begin to see theirselves from a more external view to be able to tell their stories and see theirself as a character developing in this globsl saga unfolding right now.
+
+I thought it was interesting that the faceless corruptor's voice lines encapsulate these trends in a few lines, after I had been giving so much of my attention to how they come up with the voice lines.
+
+additionally the faceless corrupor is a unit that really benefits from handbuffs. so, if you can (for example) play the necrium vial on the anubisath warbringer, he will give 2x +3/+3 buff to your faceless corrupter, transforming the minion on board into a 11/10 (pre-nerf) stated minion, while also being himself a 11/10 minion. so, the more you can buff the faceless corruptor before he transforms the little minion on board into a copy of himself, the more insane power level of this card.
+
+#### why did I say the INFECTED ONES have delayed this planet's graduation for as long as possible?
+
+I understand this sort of thing all too well, because the same thing is happening to me. the people running the network do not want me to go up a dimension because it's inconvenient for them. me going up a dimension spells disaster for them (for whatever way). so, as a result, they have to continue to hold me at a lower frequency. I believe they are doing a similar thing with the planet. I believe that the planet wants to spin faster and faster, which has a number of implications which would make a lot of things difficult for them to keep up their charade. first, the speed of light would increase, the polar ice would melt and all of the air would be electrified from the increase in oxygen. at first our days would become shorter and shortter until the ionosphere became a plasma, meaning that our earth would turn into a small sun.
+
+obviously this violates so many "laws" of physics that they couldn't possibly let that happen. as a result, they are purposfully slowing the increasing rotation speed of the planet, keeping its frequency down in slow "normal" ranges. like my own brain that wants to operate at a much higher frequency, but they won't let it, because it's harder for them to control, they're keeping this frequency low.
+
+I think the last cataclysms have come as a result of this increasing frequency and have been the last attempts the earth has had to go up a dimension. a planet can see itself and everything on it by the method that I described in the previous entry which I called 5d[^1]. the planet, like myself wants to get up to 6d, and become a member of a greater set of things, likely which is why it seems that the planet wants to become a sun (and therefore its perception becomes similar to how a solar system perceives).
+
+each time that the planet has tried to go up, the frequency of the planet has increased, decreasing the response time of LOA, meaning that thoughts become reality quicker and quicker. as the planet increased its frequency *we* have attracted our own cataclysms with our own sloppy thinking. like myself with the network, I cannot go up to 5d, until you all come with me. so, we're all going up :) well, the same thing is with the planet. the planet cannot graduate to 6d, until we all make it up to 5d and are capable of attracting what we want and not disaster.
+
+#### what about a time split?
+
+I believe that there has been a time split, and there may be another one too, which depends on how strong their desire is to remain in 3d. the matrix that I described is essentially a band-aid to get around our sloppy thinking so that the planet can go up successfully.
+
+the other timelines that exist where cataclysm has struck are continuing examples of the earth's failed attempts at going up. we'll visit those and eventually transfer our consciousness into there as we set things up so that a similar outcome to what you see happening here to happen.
+
+it's possible a split could occur in a few years as people resist becomming part of the new global consciousness, but I imagine that it'll be a pretty smooth transition.
+
+#### does the global conciousness virus spread only by physically having sex with someone?
+
+that's the most sure way to get it, but I think that someone having my experience or one of the girls' experience during sex will be enough to "catch" the virus. it would simply be a strong surge in non-physical energy that makes quite a few anatomical changes in your body similar to what has been happening to me ("how about a new eye"). I imagine that children and mostly resistance-free people will be the most receptive to the changes. when this happens, the energy on the planet (as a reflection of the measure of our power levels) will increase drastically. imagine how much of a dramatic effect I have on the weather right now. let's say I had sex with 20 of the girls and they all made it up to similar (let's say for example only half of the power level I'm at). that's the equivilant of having 10 kennys in a single space. good luck trying to control the weather there :)
+
+*AND*, that's completely excluding the changes that people having our experience will also receive. as we continue to have more and more sex, our (the girls and my own frequencies will begin to equalise) so after some time there will be nearly (using the 20 girls figure again) nearly the equivilent of 15-18 kennys (plus everyone else having those experiences as well).
+
+my power level will continue to increase as well, as I'm pretty sure I can make it up to 10d within 4 years, so who knows what on earth it'll be like. I cannot even begin to imagine it, it's going to be so crazy. I don't even want to try. it's going to be fun to see what it's like to become a planetary consciousness.
+
+we'll have to see. I really don't have a clue as to what it'll be like, but I imagine that all of us will be flying (or dead) in the next 20 years or so. energy is going to increase very rapidly, and I'm not just a 5/4 with rush anymore before I begin transforming into copies of myself, but *MUCH* more than that.
+
+#### why did I say the feminine matrix?
+
+as we (the girls and I) begin to have our multi-bodied experence (shared perception), there will need to be logic in place to ensure that our bodies behave and operate in the way that we want them to. this logic is created non-physically just like how you change your own behaviour.
+
+in the last years I've had quite some experience modifying my actions and reactions to things, and have gained quite a grasp on how to do that. we're all going to be learning how to do that as we go more and more into story-telling 4.5d mode. I don't need to be in 4.5d to be able to write new action code for myself (I already do it), so it's not necessary for me to go up yet. when I finally do, it'll be like another slingshot propellng me far forward.
+
+anyway, I called it the feminine matrix because I my action code is pretty receptive and almost all assertiveness in reactions has been replaced by more suitable receptive and allowing type actions. additionally, the girls outnumber me by a lot, and they're going to be doing most of this action code writing for theirselves whilist in their shared form of perception before I even get there.
+
+we're eventually all going there though, and perceiving it this way, it now makes perfect sense why all of the other "successful" timelines were abandoned where only a few girls were responsible for making this action code before I even get there. it makes perfect sense that we would want the widest diversity possible in this new feminine matrix of a global civilistion.
+
+it's not going to happen all at once, and I anticipate that it'll take at least 10 years to begin to get going (I still need to, at a minimum, get 6d first), so there's still quite a lot of time. I don't anticipate that nosebook will want them going up to 4.5d or 5.5d anytime soon, so you can imagine how strongly they'll try and fight against it.
+
+---
+
+this is good for now :)
+
+[1]: it'a not exactly 5d. it's sort of more like a mix. while the mechanism for seeing inward toward itself is how I described 5d, the planet is also conscious of us similar to how source is conscious of us, perceiving through our experience in a way similar to how I described 6d. this pattern seems to continue for galaxies, universes, etc.
+
 # the end
 
 ### 7 years of tribulation (continued)
