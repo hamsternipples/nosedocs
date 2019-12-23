@@ -11497,6 +11497,36 @@ this is good for now :)
 
 [1]: it'a not exactly 5d. it's sort of more like a mix. while the mechanism for seeing inward toward itself is how I described 5d, the planet is also conscious of us similar to how source is conscious of us, perceiving through our experience in a way similar to how I described 6d. this pattern seems to continue for galaxies, universes, etc.
 
+### 2019-12-23 14:54 - a little more on the feminine matrix
+
+first of all, I want to remind you that all of this is now outdated. it's now far better/worse than previously imagined.
+
+next, I want to expound upon the idea further of why I think it's the feminine marix: as I've mentioned before, women are better transmitters than men at sexually transmitting energy. the vagina is similar to to the "magnifying transmitter" and the penis is more similar to the tesla coil. women have a receiving organ as well, the clitoris, and men also have a transmitting organ, the prostate, so it will work fine for gay men as well. things are fine.
+
+so imagine that you're a woman and you participate in one of the girls' experiences and you're low enough resistance that you begin to gain frequential similarity with that girl, that woman will become a transmitter of that vibration as well, so if she then has a sexual experience with another man, she will be, in a sense, transferring that form of perception on to the man. woman, in this sense will be the primary tramitters of this "disease".
+
+next, I think it's important to realise that none of this will happen instantly, either. I'm a sensitive guy so I'll acquire the various forms of perception (resistant and not) from the girl, just as well. this happened to me already with raquel and others, and I don't really find it much of a problem, because in this sort of highly energetic environment, LOA will attract/provide situations which will allow me to clean up those resistant forms of perception. I'm quite good and very confident in my capabiltiy to "redefine" or transform that form of perception into something less resistant. it'll be, in that sense, an engoing process.
+
+also, I do want to say that it's not 100% a feminine form of perception, because I, being the strongest transmitter will enssentially provide the "base" code, and I'm sure that the final reusult will be more similar to me than you might think. this additionally fulfills the projection that I could see that women would become more assertive/masculine than previously.
+
+the trend, I am sure will spread like an epidemic because women, I've noticed have essentially two mjor parts to them (it could be more if more fragmentation has occeurred), one that operates in the day-to-day and a second protected one that is much sweeter which only makes an appearance in moments when she feels she can let her guard down (eg. intimate moments) so, I find it very likely that women will be able to receive and later retransmit that very easily. (very similar but kind of opposite for gay men)
+
+---
+
+I'm not at all concerned about talking about this in the open because it's sort of difficult for me to hide things. this is a coming trend as we move toward becomming a global consciousness, too because in a few decades we'll all be have a sort of shared from of perception, making it quite difficult for anyone to hide things. it's true that normally the way that it works is that you'll want to keep your ideas that you want to be successful to yourself (a secret) until they have enough inertia to not be aborted with someone else's thought vibration mixing with them. however, because of my situation, I've learned that it's not really a problem for an idea to be "aborted" like this, because that idea is outdated anyway, so its abortion is actually making space for the newer bigger idea. let's say that someone tries to fight against the manifestation of that idea too, I also do not find that to be a problem is capable of maintaining focus upon what's wanted and not let the conflict shift the perspective toward unwanted.
+
+so, don't worry, I've got this :) everything is fine, because the worst anyone could do would be to make the idea bigger by causing it to be rebirthed into something greater. it's quite possible that's what's happening here, as I'm allowing them to try and kill this idea and make it bigger right before its manifestation :) who knows...
+
+---
+
+lastly, I think that this or something greater than this is going to happen because if you think about it in a frequential sense, the dominant vibration to this whole ordeal has been (from nosebook's perspective) to let other people (like me[^1]) do all of the work and to just cash in on the benefit. so, if all the resistant men need to do increase their vibration is to find a woman that has achieved a higher vibration and have sex with her, that seems like it would fit right in to the "trend" of the way things have been going up until now.
+
+because of the way all of this works, there will always be some amount of resistant or unwanted vibration in the human species. to try and eliminate it would be akin to trying to divide by 2 to get to zero. it's an impossibility, so «you can't get it wrong, and you can't ever get it all done». we will continue on to reach greater and greater heights of what is wanted, as the quanitity of unwanted approaches zero. it's not "the end" BY ANY MEANS.
+
+remember that everything that is being built has some sort of scaffolding that's necessary -- something that's necessary for its construction but is discarded or covered over upon completion, and the goal is to make that amount as little as possible. humans are born in placentas, etc. and the birthing process of any creation is usually the most difficult part as it makes its transition from a comfortable creative environment into reality. I don't in any way anticipate that this will be any different. it'll be fun though :)
+
+[1]: this thought reminded me of the video I posted, "MANBEAT vs culture-beat" where I said that we (men) should allow the women to "clean up the mess". wow, controversial reaction to that one there :) lol...
+
 # the end
 
 ### 7 years of tribulation (continued)
