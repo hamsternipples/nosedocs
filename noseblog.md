@@ -11527,6 +11527,44 @@ remember that everything that is being built has some sort of scaffolding that's
 
 [1]: this thought reminded me of the video I posted, "MANBEAT vs culture-beat" where I said that we (men) should allow the women to "clean up the mess". wow, controversial reaction to that one there :) lol...
 
+### 2019-12-26 00:00 - back on track for a time split
+
+most likely what I described in the previous entriies became reality and created a timeline which was quite successful. I wouldn't doubt that the girls and I were able to find our way to getting connected. in fact, it seems that there is an abundance of timelines where I *do* get connected. this seems to be the common case, in fact.
+
+so, I was thinking about it during the eclipse, and anytime something is the common case, that's not the thing that makes the connection. I always like to think of lightning as my example, and there are lots of leaders which *don't* make it to the ground. that's the common case. however, there's only one that does make it, and that one that makes it, is essentially the culmination of all of the previous leaders which didn't make it.
+
+this sort of boggled my mind a bit, because the case where there can only be one of is the case where I *don't* get connected. if I think of it from perspective of 20 years from now, why would nosebook cooperate with me to ensure that there's a timeline where I *don't* make it? well, from their perspective it would be the most awesome timeline ever because I can imagine how much things would change if I suddenly did get connected. their entire charade would be seen by all rather easily and there would be all sorts of things that are out of their control.
+
+if they could get a timeline where I do not get connected, then they would be able to make disconnection be the "norm" -- in fact, it would only be a legend or a rumour that something like that would be possible because there has never been any examples for it. they would be able to run the earth as if none of that were relevant -- and, there are quite a few people out there which don't desire theirselves to be connected. they don't actually want to feel good and would rather feel pleasure. this world is for them.
+
+I joke about nosebook being so much like the catholic church, but I think the direction they're going with this is something of anti-spirituality, where no one is allowed to find anything about how they operate, so that they can have all the power to manipulate things from the top.
+
+---
+
+anyway, if the goal then is for there to be a timeline where I don't get connected, this is essentially an impossibility because if there are girls, there will be sex, which is enough power to overcome their efforts to keep me disconnected. I think sex is so powerful that if they want to have a timeline where I don't get connected, then absolutely sex cannot happen.
+
+so imagine the difficulty then of trying to find a way to make a timeline where I don't get conncted, because the more they try and keep me from it, the more and more opportunities keep presenting theirselves to me. it's probably pretty difficult.
+
+it seems pretty funny to me because their whole charade is a giant house of cards, and in order to actually make a timeline where I don't get connected, they have to have all sorts of help and hand-holding along the way. think about all of the different ideas and technologies, plus how much help they get from even myself while I'm asleep, and they're still struggling to keep up with me.
+
+it's a really really really shaky foundation for their setup, and they want to try and ensure the longevity of their operation as best as possible. to me now after thinking about it during this eclipse, it appears to me simply that I am so unbelievably successful at finding my connection that extreme amounts of limitation on my circumstance and tons of manipulation has to happen to ensure that I don't get conncted, and since it appears that I'm so successful, it just looks to me like they want to try and make a world where the difficulty is much much higher.
+
+I suppose the process will repeat because they're getting stronger and stronger by the day. of course so am I, but you can imagine that I won't just be one person the next time that I show up, but quite a few. I don't know how many but I imagine that the difficulty level for them will also be raised quite a bit higher for them too.
+
+so, imagine then next time around, once again, we're going to need to find a timeline where we *don't* get connected. however, they're going to have to deal with say hundreds of me's. they can barely handle one of me, and I'm not having any sex. if there are hundreds of us living in a world where sex is very normal and promoted by the state, it's going to be a pretty difficult task for them. we're upping the difficulty level for them too. and, they'll have to figure out how to do this on the shakiest of foundations. it's going to be hilarious.
+
+---
+
+they have been thinking that if they can trick me into getting the girls thing going before I get connected, it would slow me down. however, it seems evident to me now that girls = getting connected.
+
+I don't know how much more they can last, because it seems they're getting pretty desperate. I think things will get more and more rough until there is finally a time split. I have no idea how long it will take. 4-18 years, I guess, so anything's possible there. it would seem to me that it's getting more and more difficult for them to hold on. I'm even getting vision upgrades now without even watching stars, so I mean if I had to guess, I would say they wouldn't even make it more than a 2 years more.
+
+knowing this information now, it seems I may just take a more moderate approach and do the mediator project with chris full-time, while only watching stars on a more part-time basis. I dunno.
+
+---
+
+oh yeah, obviously I was writing this from their perspective. I can't possibly imagine a world where I don't make it to getting connected. clearly their desire to maintain their charade combined with others' desire to live in a simple world with only physical pleasures and none of this emotional stuff or psychic capabilities -- will create a timeline split. each consciousness will choose their own path based on the experience they want to have (eg. a world with me getting connected or a world where I never make it).
+
 # the end
 
 ### 7 years of tribulation (continued)
