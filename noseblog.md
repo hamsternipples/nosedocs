@@ -11621,6 +11621,48 @@ effortless
 
 [1]: I have a whole thing I want to write about that
 
+### 2019-12-27 14:24 - some thoughts on conquest
+
+as I mentioned in @[entry](2019-12-08 11:49) (and other places), the first step to releasing a technology for the most long-term benefit is to allow it to be used *not* for it's greatest good, because starting from the "worst" manifestation, the only thing that can be done is to improve upon it.
+
+I stated that the first step for these advances is to allow them to be used for control or limitating communication. once that has been surpassed by something greater, then the next step is to monetise it.
+
+---
+
+now, alongside that concept I had been saying that the next conquest is in the mind/brain of the consumer. it's easier to see if we look at conquest as ownership (or control) of something. the most basic form of this is seen in animals, where they defend their territory. in more primitive times, the highest form of control was control of territory. this is why governments were established, to defend that territory. in today's terms, we're a lot less violent, so we perceive real-estate to be a very valueable first investement. after that, there is a slighly more risky market (economic) invetment of comervcialisation.
+
+however, those sort-of, but do not really control the people inside of these territories. as we move closer and closer to a state of planetary abundance, the commercial form of control is not working as well as it was. it also requires a bunch of people that believe that economic freedom is their form path to happiness, so that the ones controlling the market and economy are the ones in control.
+
+when abundance and safety is felt more, then the next form of conquest is the mind. the last time a sense of abundnce and saftey was felt was around the height of the roman empire. it would have happened in the 1900's as well, but constant wars and "terrorism" since then have stunted this feeling of safety. economic control has been attempted because wars and terrorism are losing their effectiveness of keeping people in a survival mindset. so, for people to feel like they're in survival mode, there needs to be a large disparity between the upper and lower economic classes.
+
+this is breaking down quickly because nowadays a person with drive an motivation can make quite a bit of money. just see youtubers, twitch streamers and other internet celebs as evidence for this.
+
+so the next conquest is in he mind. so now, back to the roman empire. if a survival mindset cannot be achieved, there needs to be a sort of way to make people feel insecure about their reality. after jesus came and boosted a whole bunch of people's self-confidence, along comes the church to make sure people are back into thinking of original sin and all sort of things that disempower the person and make them feel insecure again. this was that period's conquest of the mind. because the most difficult thing the controlling/conquesting types have controlling is the sheer number of people they're trying to control[^1].
+
+we've got the next conquesting entity now, amazon which is trying to gain control of people's minds. however, I have to wonder what it will create, because in a sense I seem to be in a very interesting position, much like jesus was at the height of the roman empire.
+
+---
+
+the eclipse really made kind of a funny change on things, because I had posulated that as I arrive to 6d, I will begin to gain a shared form of perception with those vibrationally similar to me. you can already see the infancy of this in what I have called "reactions", but with the girls thing falling through for a little bit, that means that when I gain 6d consciousnses (I'll still see in 3.5d though), I'll gain a very vivid sense of those who are vibrationally similar to me. without the girls, that means that now I'll be most vibrationally similar to those using my form of perception.
+
+I sincerely doubt that most of the really resistant types in command over at amazon are using my form of perception, and I still have a long way to go before I get 6d, so probably most of them will bail out pretty soon as things rise higher and higher. probably women and children will be pretty ok with it though, so we'll be on the same frequency for quite a bit. it's likely that men who are capable of finding ways to feel good (joe rogan comes to mind) are likely fine and men who are interested in what they're working on technically (engineers at amazon come to mind) are also fine. so, as I approach this shared form of perception with them it'll be interesting for me because reasons.
+
+it's easy to love someone as you love yourself (like the girls), but what about all the douchbags and hotshots on my form of perception? that is a challenge that I will find kind of interesting. it's also going to be interesting because I'll have a similar role to what source plays in our lives. I thought the network bros were going to be the main thrusters trying to influence me and the girls in the creation of this new dimension, but it looks like it'll actually be me.
+
+I don't believe that I'm going to be in any way some sort of punishment type or any of that other nonsense. instead, it'll be interesting for me to simply setup my feeling "logic" which, witch built on the platform of LOA will influence certain things to happen to essentially provide the circumstances and things necessary for these guys to get all of the power and authority they could possibly want. from my perspective, I have to feel them and know their success much like I had already been practicing for my time with the girls, but instead it'll be for their success and attainment of what they want. it reminds me very much of how my mom felt about me when I was growing up.
+
+---
+
+so, I'm sure that many will see this form of influence as some form of control of the mind, perhaps even similar to how the church is perceived. that doesn't bother me because in the process I'll learn a lot, and like many parent do, they learn to let their kids make mistakes and learn for theirselves.
+
+I think it'll be good for me to get good at this form of non-physical influnce as a kind of practice round before I get to the girls. I may have made a misspeak there, but I don't know how to say it better. I know the girls are also likely on my form of perception as are likely their mothers as well, so it's not like I'm focusing all my energy and stuff only toward nosebook. this will be an interesting learning experience all around. later then, when we're together though, obviously the rest of the world on my form of perception will take become a much smaller "voice" in the way I perceive things, and the girls will take the main stage, as we'll be most vibrationally similar.
+
+and yes, I anticipate that there will be amazon chiefs that believe that my influence is too strong and they need to regain their power and control over people's minds. it's certainly not going to be without lots of interesting difficulty, and it's going to be interesting for me to perceive it from both sides. it may also cause them to find (similar to what zaryn did in tuenti) a whole lot of people that will tell him what he wants to hear and do what he wants them to do, so probably they'll need more of the command-obeying engineers and to obsolete the intuitive creative ones on my form of perception (cause I'll have a sense of what they're doing). maybe this has already started to happen, my spider sense tells me :)
+
+it's certainly going to be interesting. it's also funny to me because there's another stickie on my wall that says, "don't fight too hard against something you will soon assimilate"
+
+[1]: it shouldn't surprise you that the church had a lot to say about reproduction. however, this idea is kind of a mixed-bag, where some organisations promote extremely fast reproduction, and these seem to typically be the underdogs, as attaining large numbers was a way to gain more population market share (users). it seems to go shift back and forth from the extremes. I don't honestly understand it fully.
+
 # the end
 
 ### 7 years of tribulation (continued)
