@@ -11565,6 +11565,62 @@ knowing this information now, it seems I may just take a more moderate approach 
 
 oh yeah, obviously I was writing this from their perspective. I can't possibly imagine a world where I don't make it to getting connected. clearly their desire to maintain their charade combined with others' desire to live in a simple world with only physical pleasures and none of this emotional stuff or psychic capabilities -- will create a timeline split. each consciousness will choose their own path based on the experience they want to have (eg. a world with me getting connected or a world where I never make it).
 
+### 2019-12-27 12:25 - a change of pace
+
+I sent an email to chris which seemed to have confused some people. here is the email:
+
+```
+I hear what you're saying in the lyrics to that song, so I'd like to just put a few things out there.
+
+don't worry about your insecurities. the project will not likely go to far. the reason is, no matter what it is that I want, there are people that are working very hard to make sure that I never get anything that I want. I don't really know why that it is, but if I had to guess, I've demonstrated over time that I'm intuitive in knowing what I want and the thighs that I want are usually beneficial to me. so, because they're so afraid of losing power over me, they don't want me to have anything that I want.
+
+I can prove it: the minute that I begin to acclimate to the idea of the girls and make it into something that I want, all of a sudden there is a huge amount of resistance and the thing completely falls apart. it doesn't matter what I want, just the fact that I want it means that they're in the business of making sure it doesn't happen. so, because I've wanted to make this project, you can imagine the amount of difficulty that I've had trying to create it. I assure you, it's not *that* difficult of code to write. it should be simple.
+
+anyway, so what I was saying is, don't worry too too much about it. I'm sure they gave you a whole briefing and pumped you up on the whole thing to make it seem like it's going to become a reality (just like the girls thing) and all the while at the same time they're working against it using untraceable technology (so that no one can ever accuse them of working against the thing they're making the illusion is going to happen).
+
+so, once again don't worry too much about it. yesterday around 1am I first felt them giving you the pump up, then yesterday evening while watching stars, I felt your insecurities rising as they were making it seem to you like a much bigger thing than it is and that there's a lot of pressure and stakes are high and stuff. don't worry about them. just play along and give them the lip service that they need to feel like you've got it all going the way they want it to be done.
+
+---
+
+as for me, my situation is a bit peculiar, in that I can only do as well as I can do. I'm sincere in what I set out to accomplish and I don't have any agenda. I just want to feel good. I went into vision sequence the other night while watching stars and I cannot really explain to you what it felt like, but I felt so light and effortless that it was almost as if I was floating an inch or so off of the ground. I could and did fly around and begin exploring the world before the vision got interrupted -- but, the feeling of effortlessness has lingered as something that I really really want to attain. that's where I'm headed man. I will really enjoy putting forth my best effort doing this project with you, but don't get too much of your hopes up on it either; it's not likely to go too far -- just far enough to get me to the next place.
+```
+
+reactions are varied, but the the most pertinent reaction was one of confusion over where I said that the moment that I began to want the do the girls thing, it fell apart. well, from my perspective, it seems clearly that way. when I was writing about the idea and making it into something that I want, I felt no resistance. however, I think that some people are very against the idea of having a shared form of perception. I don't really mind it, cause I think it's cool, but there are people that are very against that idea.
+
+so christmas day rolled around, and they were pulling my consciousness from me, and trying to force to to go to sleep. I didn't want to sleep, because if I'm going to do the girls thing I want to have the extra light in my head that the stars provide. no other way around it for me. I want to feel good and with all of their pressure, I felt quite like a miserable zombie even though I had taken (they took my consciousness away from me) 2 naps the day before. there's no way that I needed to sleep that night. I had an abundance of sleep. the real fact is they didn't want me to be star watched and with the girls. well, fuck that. I'm going back to finding my own connection then. no way around it.
+
+there was also tremendous resistance in a whole lot of other ways, but I want to have light in my head and feel good when I'm with the girls, not feel like I feel when I just wake up. so, from my perspective it fell apart, because they won't allow me to feel good. nowadays, I've got a pretty rigid program in my now that does not ever let me do something when I don't feel good. it's prevented me from lots of angry outbursts, and is just never good to take action when I don't feel good.
+
+so, if they don't want me to feel good, then the *only* choice that I have is to make my priority once again to find my connection. there's a stickie on my wall that says, «never make a decision based on what you do not want. always move in the direction of what feels good.» there's another one that I havn which says, «you want to be so good at finding your own satisfaction that nobody is the boss of you».
+
+so, my goal is to get connected, essentially: when I'm able to find my own satifaction (for example watching stars), and they no longer have control over me, then I've made it. period.
+
+---
+
+so, then last night was another eventful star watching ceremony because I had a pretty big realisation. my future self was named "*former* white hat". I emphasised the former part, because I realised and have often wondered why he was always helping out the bad guys (nosebook) and not helping me out. I always just figured this was to toughen me up, or to increase the difficulty as high as possible, but my revelation came to me last night.
+
+I mentioned that I had this dream / vision sequence where things felt effortless, and since I had that I've really been wanting to achieve that feeling in real-life. that's what I want to feel like, and I know it's possible without drugs too, but how do I get there?? how do I take my present circumstances which are extreme difficulty and turn them into that feeling of effortlessless?
+
+well, once again my interactions with chris paved a new pathway for me to see forward. I went to sleep thinking about how futile this whole project is when I can't even figure out how to write simple code that I just had working *after watching stars*. I was pondering why they simply don't want me to get anything that I want.
+
+anyway, I'll cut to it. since the girls thing has fallen through, and it's absolutely clear to me now that I have to «become so good at finding my own satisfaction», that I *must* get connected before this can happen. simply because I cannot take action anymore on something that doesn't feel good. if they want to try and break that mental program so they can push their agenda through, lots of bad things will happen because I can take action on things that don't feel good -- which isn't really something I (or anyone else wants).
+
+so how do I get to that feeling of effortlessness? up until now I had been fighting against nosebook to try and keep my power. yet, I said something to mom in relation to a comment I had made about eric calling himself a narcicist and then about amazon's concquest[^1], where I said, "any time you feel powerlessness and you want to get your power back, it's common to think that you need to get your power back by taking it away from someone else, but that never works out well." (paraphased)
+
+so, here are the salient points here:
+
+1. no matter what it is that I want, they are always working their hardest to make sure I do not get anything that I want.
+2. my power is in no way related to nosebook's power. I don't gain power when they have less.
+3. I want to feel effortlessness.
+
+so, just look at it backwards and I have my answer. my goal is to make sure that nosebook gains as much power as they possibly can. they can't fight against that, because if they did, they would be cutting off their own vigor.
+
+instead, I imagine that something will change to be more similar to how a child responds to a parent when they say, "stop helping me! I want to do it by myself!" -- and then, off they go :)
+
+effortless
+
+[1]: I have a whole thing I want to write about that
+
 # the end
 
 ### 7 years of tribulation (continued)
