@@ -11663,6 +11663,57 @@ it's certainly going to be interesting. it's also funny to me because there's an
 
 [1]: it shouldn't surprise you that the church had a lot to say about reproduction. however, this idea is kind of a mixed-bag, where some organisations promote extremely fast reproduction, and these seem to typically be the underdogs, as attaining large numbers was a way to gain more population market share (users). it seems to go shift back and forth from the extremes. I don't honestly understand it fully.
 
+### 2019-12-29 15:12 - compression of experience (and the reciprocal nature of it all)
+
+yesterday I made a funny comment which got quite a reaction and also got me thinking further. I was walking by the gas station explaining how yet once again, my behaviour is exactly the same as what the guys trying to run the show would be doing. I find it funny how similar we are, and have often wodered about this.
+
+I made the comment that considering what we now know about timelines and stuff, the most likely explanation to why they're all so similar to me is because they ARE ME. I postuelated that if you were to look at it from the point of view of another timeline, the timeline (this one) that's got the most consciousness on it would have many people riding along in the bodies of others. I have toyed with this idea in relation to the girls and the idea that women in other timelines could easily place their consciousness into one of the girls' bodies and experience it from the experience of the girl. I even postulated that women in this timeline could even become conscious in the girl's body that their future self has chosen to ride along inside of, too.
+
+for me though, I'm probably a quite attractive person to ride along inside of, so there are likely quite a few, and it wouldn't surprise me if a lot of them work for nosebook.
+
+imagine if in the future there was a thing offered where anyone (man or woman) who wanted to ride along in my body could do so. the attractive bit about the thing is that kenny would do all of the work. he's a total pro, so what we would do is would bring him down to such dispair, agony, and frustration that pretty much *anyone* who wants to ride along is capable of gaining vibrational similarity with him. he'll figure out a way to find his way back to feeling really good, a lot of sex will happen, then you can choose the child that you want to grow up inside of.
+
+you really can imagine that if there were some large portion of nosebookies riding along inside me, waiting to get to the good part (the sex), they'd be more than certain that I found my connection before that happened. they definitely wouldn't have anything to do with putting up with years of disabled sex, like they want for me now.
+
+in that sense, nosebook is fighting against their own selves and their own will to have things the most desirable outcome.
+
+---
+
+this is pretty attractive idea, I'm sure, but it's not for everyone. the alterative would be to transfer your consciousness into a younger version of yourself and to ensure that you figure out things that you wished you had of learned earlier on, in a more rapid way. maybe as well you'd want to kind of help yourself to avoid certain challenges that set you back, or whatever. you would be an older version of yourself in younger version of your body.
+
+you wouldn't have any memory of your "past life" because memory is state-bound. if you're in a dream or psychedelic state, it's very different to your normal reality state, so you typically cannot remember your dreams or mind-blowing experiences. the same is true for your other experiences, so you wouldn't have direct memory of your "past" in the way we think of memory. in addition to this, there are potentially more than hundreds of successful timelines where somehow humankind gained timeline technology without sosmething bad happening, so if you're someone who would rather be a younger version of yourself, there are potentially 100's of older versions of yourself all sharing the same experience of you right now, so which one of their memories would you have?
+
+you would, however, have conceptual, extra-experiential knowledge, things that your future self knows conceptually, you could easily gain access to that knowledge at a much more rapid rate. you could even have a knowing or an understanding of something you have not directly experienced. this happens to me all of the time. somehow I have knowledge of things that I have not personally experienced, and *lots* of people look familar to me when I've never met them before. it feels to me like I already "know" them.
+
+from another timeline (and we'll do this soon enough on this one) you will be able to transfer your consciousness into the body of someone that's vibrationally similar to you. let's say you'd rather have jaron's or someone else's experience, that's also an option. there really isn't any limit to it.
+
+obviously, not everyone will want to transfer their conciousness into another body on another timeline though, and I've given this idea much thought, because if let's say in 20 years or so, a whole bunch of us peace out (transfer our conscoiusness out) to another timeline, the direction this headed (not physically) is going would shift quite dramatically. so, that's been a fun thought experiment for me.
+
+anyway, the people that do not want to transfer their consciousness will eventually die. this is a 100% guaranteed future event that will happen to every-body. there are stories of people who did not die in the traditional way, but were "taken by God" or released their conscoiusness in a way where they *still* made their transition into non-physical experience[^1]. eventually then, you do come back to have a physical experience once again.
+
+---
+
+so, in reality, because death is so inevitable, we're all going to experience the system that's being built now. the people in charge of running the network are not at all interested in anyone ever finding their alignment, so they will work as hard as possible to make sure that their superiority is never challenged by these connected ones.
+
+so, imagine that you work for nosebook and in half of the timelines you choose to take my experience to get a chance to be one of the gnomitos and the other half chooses to retain your self-identity. I assure you that any children that are born will be *very* heavily regulated by nosebook to ensure that they never get connected.
+
+the funny irony to this concept is this is that the people of nosebook will be both the kids and a much older very strongly against their own success "worst" version of theirself (probably similar to me and mr. motor). the ones who find a way to get connected dispite he circumstances will all have a shared form of conscoiusness like I've been talking about, and I highly doubt that they're going to try and "get rid of" their "oppressors" much like how I'm becomming now. I don't really care; they can't touch me, and they're only making us stronger anyway, so why would I be bothered by someone who's dedicated to making me stronger. (it would be like firing my personal trainer for making me stronger, lol)
+
+this limitation will probably be imposed on everyone, but imagine it from someone working at nosebook: right now, they're getting super addicted to the way that "alignment" feels, so when they finally die, their pre-birth desire will be to find some way, any way, to get that feeling back. they'll be similar to me, and they'll be born into a system that "doesn't allow that", so like me, they'll have to learn their own emotional control in a very emotionally manipulated environment, or they can figure out a way to manipulate their way to the top of the nosebook organisation.
+
+assuming that everyone's desire for alignment (once you've experienced higher dimensions, you can't go back) is really really high, the world that's being created now rewards both the best manipulators and those with the most emotional control. if you can feel yourself as limitless, then you are. there is nothing their system can do to stop you. you are completely superior to even the "laws" of nature like gravity. however, one can never be superior to the law of attraction[^2].
+
+---
+
+in summation, no matter what path you choose, we are *all* going to be experiencing this system that is in place in one way or another.
+
+I really like the reflective and reciprocal nature of it :)
+I really think it's turning out perfect, too :)
+
+[1]: the stories I'm referring to are elijah, ramtha, and I believe there are a lot of stories that moses was also had a non-death transition. finally, people say jesus too had a non-death transition into non-physical experience which doesn't make any sense to me, so he's excluded from the list of ones that *I know*. I personally have always maintained the idea that I will not die until I'm ready to go, then I will choose to release my consciousness. until then, I'm basically invincible. so, I too would place myself into this category :)
+
+[2]: the only way you can get around that law is to build a system which unfairly benefits some more than others and get people to believe in the validity of that system over LOA :)
+
 # the end
 
 ### 7 years of tribulation (continued)
