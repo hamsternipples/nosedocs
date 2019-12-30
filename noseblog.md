@@ -11716,6 +11716,32 @@ I really think it's turning out perfect, too :)
 
 [3]: considering that we're headed to a shared form of perception, it doesn't make as much sense to dwell on the fact that there are multiple people sharing the experience of each of the gnomitos, since their ttrajectory is already toward a shared form of perception, anyway.
 
+### 20§9-12-30 16:32 - if it feels like it isn't going to happen...
+
+it occurred to me that just like the way I... ok, so programming is very important to me, yet quite a lot of time lately I just simply cannot feel like it's something I want to do. it's as if the desire to make the program has gone.
+
+so, I was thinking that it's quite possible that a similar thing may happen regarding the girls. if they were to extend that same thing in to the perception of people around me, then a similar thing would occur.
+
+what happens for me is, even though I know that I want to program, there is a disconnect to that action taking place in the sense that I do not, in that moment, feel capable of doing it.
+
+---
+
+so, if it feels to you like it isn't going to happen, yet at the same time, you know that you want it to happen, don't dispair because it's just a reality disconnect because of a temporary shift in the way you feel.
+
+your inner being has it all worked out, and no matter what the current situation feels like, it's all worked out, so you don't have to worry about it.
+
+I don't really fully understand why it works that way, because I have always maintained the idea that that your reality is a reflection of the way you feel, and there are infinitely different versions of you that feel slightly different and therefore have slightly different realities, too. however, this temporary feeling seems to be a temporary thing, and the way that I know it is, because say for example, with me programming, when I feel like I'm not capable of it in the moment, that feeling doesn't feel good to me.
+
+so, in light of that, if you feel like it's not going to happen and that idea feels bad to you, then just know that right now, you're not pointed in the direction of it's reality becomming manifest, and that's perfectly ok. however, if it feels like it isn't going to happen and that feels good to you, then know that things are fine and you're headed in the right direction.
+
+so, just pay attention to how you feel in response to how your present reality is being perceived and know that the way you feel about your interpretation of it is just an indicator of what your really desired direction is. it's all ok.
+
+---
+
+I think this entry has come about in response to a bunch of mounting desire from both sides of wanting it and not wanting it to happen. just let it happen and don't worry too much about it.
+
+"pedro, just follow your heart; that's what I do."
+
 # the end
 
 ### 7 years of tribulation (continued)
