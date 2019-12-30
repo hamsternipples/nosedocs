@@ -11673,7 +11673,7 @@ for me though, I'm probably a quite attractive person to ride along inside of, s
 
 imagine if in the future there was a thing offered where anyone (man or woman) who wanted to ride along in my body could do so. the attractive bit about the thing is that kenny would do all of the work. he's a total pro, so what we would do is would bring him down to such dispair, agony, and frustration that pretty much *anyone* who wants to ride along is capable of gaining vibrational similarity with him. he'll figure out a way to find his way back to feeling really good, a lot of sex will happen, then you can choose the child that you want to grow up inside of.
 
-you really can imagine that if there were some large portion of nosebookies riding along inside me, waiting to get to the good part (the sex), they'd be more than certain that I found my connection before that happened. they definitely wouldn't have anything to do with putting up with years of disabled sex, like they want for me now.
+you really can imagine that if there were some large portion of nosebookies riding along inside me, waiting to get to the good part (the sex), then to grow up having sex with the girls, they'd be more than certain that I found my connection before that happened. they definitely wouldn't have anything to do with putting up with years of disabled sex, like the amazon chiefs want for me now (you have to combine this cencept with the "how about a new eye" concept for it to make sense).
 
 in that sense, nosebook is fighting against their own selves and their own will to have things the most desirable outcome.
 
@@ -11687,7 +11687,7 @@ you would, however, have conceptual, extra-experiential knowledge, things that y
 
 from another timeline (and we'll do this soon enough on this one) you will be able to transfer your consciousness into the body of someone that's vibrationally similar to you. let's say you'd rather have jaron's or someone else's experience, that's also an option. there really isn't any limit to it.
 
-obviously, not everyone will want to transfer their conciousness into another body on another timeline though, and I've given this idea much thought, because if let's say in 20 years or so, a whole bunch of us peace out (transfer our conscoiusness out) to another timeline, the direction this headed (not physically) is going would shift quite dramatically. so, that's been a fun thought experiment for me.
+obviously, not everyone will want to transfer their conciousness into another body on another timeline though[^3], and I've given this idea much thought, because if let's say in 20 years or so, a whole bunch of us peace out (transfer our conscoiusness out) to another timeline, the direction this headed (not physically) is going would shift quite dramatically. so, that's been a fun thought experiment for me.
 
 anyway, the people that do not want to transfer their consciousness will eventually die. this is a 100% guaranteed future event that will happen to every-body. there are stories of people who did not die in the traditional way, but were "taken by God" or released their conscoiusness in a way where they *still* made their transition into non-physical experience[^1]. eventually then, you do come back to have a physical experience once again.
 
@@ -11713,6 +11713,8 @@ I really think it's turning out perfect, too :)
 [1]: the stories I'm referring to are elijah, ramtha, and I believe there are a lot of stories that moses was also had a non-death transition. finally, people say jesus too had a non-death transition into non-physical experience which doesn't make any sense to me, so he's excluded from the list of ones that *I know*. I personally have always maintained the idea that I will not die until I'm ready to go, then I will choose to release my consciousness. until then, I'm basically invincible. so, I too would place myself into this category :)
 
 [2]: the only way you can get around that law is to build a system which unfairly benefits some more than others and get people to believe in the validity of that system over LOA :)
+
+[3]: considering that we're headed to a shared form of perception, it doesn't make as much sense to dwell on the fact that there are multiple people sharing the experience of each of the gnomitos, since their ttrajectory is already toward a shared form of perception, anyway.
 
 # the end
 
