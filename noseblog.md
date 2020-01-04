@@ -11742,6 +11742,54 @@ I think this entry has come about in response to a bunch of mounting desire from
 
 "pedro, just follow your heart; that's what I do."
 
+### 2020-01-04 13:37 - ???
+
+the other day when I wrote @[entry](2019-12-26 00:00) I jumped to a conclusion that I now think is wrong. I went to bed this morning thinking that actually the time split had occurred and they (nosebook) are stuck with me, and I'm just working my way up to finding my connection.
+
+the whole premise of the entry previously mentioned was that there are seemingly infinite timelines where the girls thing happens, so I mixed that idea with what I believe happened in jesus' timeline where he died. I reasoned that since all paths lead to me finding my alignment, then there had to be only one where I didn't find my alignment (with who I really am).
+
+so, I postulated that this was the coming time split, however, they already tried to fake a time split and it really did split it seems and quite a mess was made. so I guess that was the time split.
+
+---
+
+I woke up this morning with a similar idea, that seemed to be in reaction to questions that were asked at the latest abe workshop (which I'm assuming happened today). I realised that since all paths lead to me finding my connection, the *one* that's different is not the one where I don't get connected, but the one where *all* get to experience that connection.
+
+it seems that on other timelines, I either found my way without the girls, or I found my connection with the girls, resulting in a situation where me, the girls, and people willing to participate in the girls' experience were the only ones on the planet that got connected from the event. obviously this would have created quite a strong desire to fix the situation, timeline technology was created this timeline adjusted to derail the latest disconnected interaction with the girls and yet again people wanting to experience that transferred their consciousness into this timeline to experience it. it probably happened quite a few times, seeing how many times things fell through.
+
+so, from what I picked up from the reaction is that if the guys at nosebook wanted to continue to use my capablities (that is, instead of losing them when I go up), they  would have to let me go up. however, this is the part I don't really understand, because it felt to me like there was a catch, where in order to hold good to their promise to people, they would have to let everyone go up along with me or something like that.
+
+that last part is the part that doesn't make sense to me because I don't really understand what other people have to do with me.. wouldn't they just hold other people down like they do me? why are they forced to let other people go up too, and why are other people guaranteed to go up? are they being held down too??? I don't really understand it to be honest. I only think in the direction of finding my connection without any regard for what others are doing.
+
+anyway... the reaction was funny to me because it came to me in a funny form, because here nosebook had been working so hard to ensure their superiority, only to find out that if they keep it up, they are ensuring female or receptive superiority, because my form of perception would be such a big difference to what other's are that it would no longer be compatible -- so therefore the form of perception which peole can participate in would be the girls' which would improve very rapidly, and farsurpass the typical masculine form of perception.
+
+so, no matter how hard they are working to hold their own superiority, they were obsoluting theirselves, and the only solution to not become the least superior is to allow me to get connected and let everyone rise up right along with us, both receptive and assertive types alike.
+
+so, it seems that all timelines were pointing to this one where "everybody gets a vision upgrade!!"
+
+---
+
+it would seem that perhaps they may try to fight it even still, giving me maybe partial connection or some other lame half-cocked idea like that -- yet, I don't have any problems with that because I've come to realise that any limitation only makes me stronger (so they would be making me stronger), and it seems completely inevitable that eventually with my interaction with the girls, I will be fully connected. so whatever man...
+
+---
+
+since I'm a wonderful extrapolationist, I would imagine now, in light of this new turn of events, that the way that nosebook gets rid of us pesky connected ones is to allow us to transfer our consciousness into other bodies in other timelines, leaving them in control of the bodies we left behind and the people that are not offered to leave their timeline.
+
+I know that I'll be peacing out to another timeline for sure. it'll probably be the disastrous one that they created when they wanted to fake me out and pretend a timeline split happened. that one sounds like it's got a whole lot of contrast on it :)
+
+so, I guess you guys will have to wait until then to get the most ideal manifestation I was referring to (and it seems like we're part of its buildup). I/we will peace out though, and I've often wondered what would happen if a whole bunch of us were io leave a timeline. I've mentioned it a few times as a fun thought experiement.
+
+in my estimation, probably not a whole lot. I would just expect ... well, if the people who are improvement focused and appreciating the contrast as the most efficiont form of expansion, I would imagine that most of the people remaining here would experience very little contrast at first, however without the contrast which produces the expansion, the previously ideal curcumstances would eventually get boring, not that exciting, and so removal of unwanted would begin to happen, leading to deterioration and decay...
+
+people who are improvement focused thrive in a world of decay though. the contrast is necessary to arrive to the improvement.
+
+this balance isn't a bad thing either because you cannot *only* breathe in, for example -- your lungs need to eventually expell air and contract from time to time.
+
+everything goes through stages of expansion and contraction. the majority of my experience the last 12 years or so has been contraction, so it only really depends on which part of the circle (and resulting sine wave) you find yourself. the sine wave changes direction twice per cycle at the peaks, so everyone experiences both of these. I guess it depends on where you want to do your expansion or contraction: at the beginning or at the end.
+
+this form of binary expansion is an interesting idea, however, in matt's video on the synchronisation of 3 metronomes, he arrived to a divergent 3-phase, which has sparked a ton of ideas in me because if some third mechanism could be added to compliment expansion and contraction, these three forces could operate with smoothly (the sum all of the waves in a 3-phase at any point in time always equals zero) and the sum of the three would ever give a result of one of the forces having "superiority".
+
+that's my new thought experiment: what is a force that compliments expansion and contraction perfectly and "fits" between the two. it sounds to me like another dimension to me :)
+
 # the end
 
 ### 7 years of tribulation (continued)
