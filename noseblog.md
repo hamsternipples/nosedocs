@@ -11790,6 +11790,54 @@ this form of binary expansion is an interesting idea, however, in matt's video o
 
 that's my new thought experiment: what is a force that compliments expansion and contraction perfectly and "fits" between the two. it sounds to me like another dimension to me :)
 
+### 2020-01-08 15:09 - I don't feel the need to stop star-watching.
+
+the last few days, or rather ever since I wrote the previous entry stating that they would need to let everyone go up -- it has felt to me like there has been some sort of effort to try and persuade me to stop star-watching.
+
+first of all, I think this is bologna and I don't believe it for a minute. to me it feels like they're just simply trying to buy time so they can get more things under control. it also feels to me like they're trying to work it out in such a way that not everyone gets equal something. it feels like they're working really hard to make sure some people get more of something than others.
+
+from my perspective this is completely not an issue. they have given the impression that they can hold me indefinitely away from getting connected, so I apperciate the opportunity to continue to get stronger. I see no reason to stop.
+
+---
+
+there was another thing that popped into my head where I should make some sort of deal where I exchange my star-watching for the ability for us to have kids. once again, I call bullshit. there's no way they can possibly keep us from having children and not have it be a public relations disaster. simply put, they *have to already* let us have kids, so that's a pretty bad deal. additionally, that deal implies that we grant them the power to decide if kids are aborted or not (unless some sort of deal with them is made).
+
+this is exactly the kind of salesmen "jujas" that are so prevalent in thier interactions. this interaction is only a shadow of the coming "influence" they wish to have on people.
+
+---
+
+I really feel like I'm in the process of leading a whole bunch of sheep into the hands of a bunch of wolves. whatever they're concocting to try and give people will likely be a very limited form of 5d. they likely won't let people actually experience that, so I'm a bit sad there. however, that is from my perspective where I know better, however, for a normal person that is used to seeing out of their crappy 2d eyes, it's probably a huge upgrade. I'm glad for those people, but for the rest of us, 4.5d is a pretty big downgrade.
+
+I realise that it is the fulfillment of what I had anticipated that would happen where people would go into "storytelling mode" with a perception from outside of their body, but at the time the concept existed in space so I didn't really think about all of the manipulation involved with what it would become.
+
+I should have known though... I guess some people will think it's pretty cool, but from my perspective, I'm sorry for essentially creating a new status quo of really manipulating people hovering around over you as if they were God, lording things over you to boost their own sense of self-accomplishment.
+
+obviously, I have to just keep going my own direction. I wish you all the best.
+
+---
+
+it's not that I'm leaving or anything, I'm just saying that because I really wanted to make something different. the appealing thing about the whole time-split thing is something that I'll elaborate on shortly because this outcome sort of changes things entirely, and I'm not sure I totally am up to speed with it. I can see why it's shaping up this way though.
+
+it actually combines almost all of the things I had been talking about into one manifestation. it's really hard to put it all into words. I kind of really want a cigarette now to begin to think this over again. I'll try a little bit here out loud.
+
+---
+
+we know that nosebook does have enormous desire that I do not go away, because it would essentially mean the end of their charade. we also know that this can be solved if I do make my transition into a multi-bodied experience -- and they would have even more me's to try and manipulate. so, whether they want to see it this way yet or not, me gaining a multi-bodied experience is actually what they want.
+
+the kids will also have a similar rite of passage before actually getting connected, which is something I was thinking about in the cultures idea.
+
+most importantly, if I make my transition into a multi-bodied experience, there won't be a time split in the same tradtional way that I had been anticipating because my energy is now spread among multiple experineces. it would be as if the earth had "caught" me and then off we go from there. I guess nosebook provides the continual contrast necessary to continue increasing that energy. obviously at the same time, I'll replicate and continue to increase in strength.
+
+I'm pretty sure that even though these guys are trying to make different tiers of this 4.5d experience, that it's still a precursor to the next one which will be probably 5.5d for you guys where you control multiple characters also from a godlike perspective. I really think this is the only way these guys can stomach the idea of a shared form of perception: when they're no longer in any sinlge one character anymore where that one character has something to hide (obviously, instead the whole group of characters have something they are all hiding, so now previously awful things can be shared amongst members of the group).
+
+this is a fulfillment of the "identity/mun" idea I've had so long ago amongst other things, as well.
+
+---
+
+I guess I'll leave it there... I want to begin to think more on it. I guess it's mostly just not what I expected.
+
+doing things that you don't want to do != doing things that don't feel good to you
+
 # the end
 
 ### 7 years of tribulation (continued)
