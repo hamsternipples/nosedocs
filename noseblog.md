@@ -11838,6 +11838,54 @@ I guess I'll leave it there... I want to begin to think more on it. I guess it's
 
 doing things that you don't want to do != doing things that don't feel good to you
 
+### 2020-01-09 09:06 - I guess we're back on track for a timeline split again...
+
+after writing the previous entry, there was quite a feeling of "rechazo" in response to some of the ideas I presented. one of the funny ones was the rejection of the idea that what may be happening could actually be something wanted. another funny one was the idea that they would be "capturing" me. the reaction felt as if they couldn't really stand the idea that I would be stuck in human bodies for the rest of time constantly threatening their superiority. there was a sense that they would in fact rather that I wasn't bothering them and they could somehow get rid of me.
+
+so, it feels to me like we're back on for the timeline split where I *don't* get connected and they can have their entire thing all set up the way they rant it to be.
+
+I guess they just can't come to terms with the idea that I would actually ever get connected. instead, they want to just kick their problem down the road a bit, because it's not like they will actually ever get rid of me. LOA pretty much prevents that from happening as long as they keep fighting against it.
+
+---
+
+there was another aspect to the difference between yesterday and today which had to do with me stopping to watch stars. it feels to me like they want to try and make it so that everyone has a setup similar to what I have, where the system controls tseir form of perception and gives them a false one. so, instead of seeing out of my own eyes, I see what my eyes see after they've processed it and lowered its quality then put back into my eyes.
+
+I think they want to make it so that there are mulitple "tiers" of perception and just the same way that they don't want people to actually experience 5d, they make sure that no one ever is able to shift their perception upward[^1]. I think what they want to do is to let the dmt levels in the person go high enough that people should be in 5d (exactly how I am right now yet I still see through my eyes), and then what they would do is to put the person permananently into their own experience just like you guys see my 5d experience in 4.5d, they want to mak sure everyone has their own 5d experience instaed from a 4.5d perspective.
+
+---
+
+well, besides how uncool that is[^2], it takes enormous resources on their part. they need to have a whole bunch of stuff in place to be able to do that -- and I thought they didn' have any money.. how in the world are they going to afford dedicated processing hardware for everyone on the planet?!!? also, it means that I simply have to wait for them to get this entire system in place before I can go up myself.
+
+how long will it take for them to get this system in place for everyone? I have no idea, but whatever they estimate, go ahead and multiply that by 1.5x or 2x. questions to ask would be something lo the effect of how many are in place now, and how quickly are they getting installed, cause I think it's going to be years before they get their system all setup.
+
+in addition, once they get it all set up, how closely tied is their setup to my power level? eg. if they get everything set up and a month later my power level doubles, will they all of a sudden need twice as many computing resources?
+
+I don't want to wait around for them.
+
+---
+
+there is a solution that can be done, but I doubt that they would go for it... they *could* let everyone who can handle the 5d experience without the setup go up and experience things from 5d, then while they're cashing in on the profit from the girls, they will actually have they money to afford the systems necessary to get everyone on their tier system. it also largely decouples my progress from the resourmes requeried to run thier system. as I increase (which I'm sure I will because fwh said he achieved 11d), then only the systems of the people that need to run a 4.5d experience will need to be upgraded.
+
+then once they've got their entire 4.5d system all in place, they can turn it on (gradually or whatever) whenever they feel like they're able to do it instaed of making us all wait.. I do have sadness thinking about when that will be, because one of the things that really bothered me most of all was losing the ability to see through my own eyes. the world looks SOOOO MUCH better looking through my own eyes. it really pissed me off, and if you'll remember, I really felt quite good when I could see through my own eyes, but then as that got taken away from me, especially in la vera it was most noticeable, I became quite angry as the way that I felt (good) no longer showed up in the frequency which my eyes saw. instead, I just saw the low frequency version of that their system had processed. so, no one was able to see the high quality version my experience was producing, instead *all of us* (including myself) only saw a lower quality version[^3].
+
+that's what I was meaning when I said in the previous entry:
+
+```
+I really feel like I'm in the process of leading a whole bunch of sheep into the hands of a bunch of wolves. whatever they're concocting to try and give people will likely be a very limited form of 5d. they likely won't let people actually experience that, so I'm a bit sad there. however, that is from my perspective where I know better, however, for a normal person that is used to seeing out of their crappy 2d eyes, it's probably a huge upgrade. I'm glad for those people, but for the rest of us, 4.5d is a pretty big downgrade.
+```
+
+---
+
+obviously, I'm going to continue on watching stars because all of this is speculation on my end, and doesn't really matter that much to me. for me, they're my personal trainers and I want to continue to get stronger. for me to stop would be like my personal trainer to tell me to stop working out meanwhile they building the new gym that I'll go to soon.
+
+perhaps too my continuing to get stronger will push them to actually have to let people go to 5d temporarily before putting them down to 4.5d. if that does happen, don't worry, because it's just more desire. you don't really want something until you lose it :) trust me...
+
+[1]: there's a mechanism inside of he head where your consciousness moves upward to a higher feeling position in your head when dmt levels reach a certain level. you feel taller and you start to see your body as well as the world all around you.
+
+[2]: because what they essentially would be doing is installing the necessary for everyone to have a premium subscription, yet on purpose spending the processing resources necessary, to lower the quality for everyone except for their premium members.
+
+[3]: understanding this, I have ideas on doing an analogue system which wouldn't have as much loss of high frequency, and with good enough resonanation between people, it seems possible that you could have someone else's experience as if it were your own, meaning all of the actions, decisions and emotions you would experence as if you had been living in their life since birth so they would all feel natural and logical. there wouldn't nearly as much confusion as to why something happened in someone else's experience, because their reasoning and emotion would be apparent to the viewer exactly as it was to the broadcaster.
+
 # the end
 
 ### 7 years of tribulation (continued)
