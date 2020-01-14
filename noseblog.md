@@ -11886,6 +11886,52 @@ perhaps too my continuing to get stronger will push them to actually have to let
 
 [3]: understanding this, I have ideas on doing an analogue system which wouldn't have as much loss of high frequency, and with good enough resonanation between people, it seems possible that you could have someone else's experience as if it were your own, meaning all of the actions, decisions and emotions you would experence as if you had been living in their life since birth so they would all feel natural and logical. there wouldn't nearly as much confusion as to why something happened in someone else's experience, because their reasoning and emotion would be apparent to the viewer exactly as it was to the broadcaster.
 
+### 2020-01-14 07:59 - "it's gonna take forever"
+
+when I was walking home yesterday, I was thinking about the reaction that I wass feeling about things taking a while.
+
+I don't really think it's a problem. here's why:
+
+first, right before the new year happened, I began to receive a whole lot of reactions to nosebook attempting to try and control this whole thing by providing all of the financial support to it. the reaction was funny because it was in response to another addition of another girl. they felt like it was becomming way too much of a financial burdon for them.
+
+I found that kind of funny to me because in a previous entry where I stated what I wanted, I was very clear that I wanted to be economically focused in a way where the girls would hace the opportuity to grow up similar to the way I did. so, for another addition to happen, I didn't really think of it as such a big problem, because after all, and especially in the long run, it means considerably more profit, not a huge burdon. the only way it would be a burdon, is if the whole thing was only expendatures and no income.
+
+the next reason why I thought it was funny was because this whole time nosebook has had the whole thing going that they cannot allow people to see well and gain improvements without paying for it. abraham summed it up well when they said that they've been on the "you have to earn it" vibe. which is kind of ironic because now what is happening is the following: I'm actually beginning to work on stuff and I should become profitable myself soon enough.
+
+meanwhile I'm putting efforts toward becoming profitable, they have the perfect opportunity to allow people to simply go up to 5d, and then to likewise let me go up as well so we can start the party.
+
+like I outlined in my previous entry, I think the reason why they're dragging their feet on this one is because they want to get the impossibly expensive goal of putting everyone into a system similar to the one that I'm in so that everyone is in 4.5d (where they think they have better control) instead of 5d -- all without cashing in on the girls thing in any way. I guess they're printing money to do it, cause I have no idea how they would be affording it otherwise.
+
+---
+
+so while they're trying to get everything all controlled and stuff, (they're basically going to take forever, I'm sure) my plan is to get profitable and to continue rising up the dimensions.
+
+like I outlined in a previous entry, I'll probably be reaching 6d pretty soon, however, I won't actually see in 6d -- I'll remain with my crappy 3.5d vision, but I'll likely have an emotional feelings-based shared form of perception with those that are similar to frequency. the forshadow of this is already pretty evident.
+
+then, like I postulated in another area, I'll likely continue to push the noseboys up higher and higher as I go along. they'll also gain a shared form of perception in 5.5d, then continue on upward into the non-physical dimensions as they become the planet's "thrust" or main source of influence on people's lives as they gain more and more tools to steer the people the way that they want them to be steered (and sometimes what upper management orders them to do as well).
+
+it's going to be an interesting thing because they'll be basically untouchable by the reaistant upper management types because none of them will be able actually see or even comprehend what they're doing. like a very very high dose of ayahuasca or mushroom experience, it'll be far too abstract to make any sense of it (unless you built it, of course). so in the end even upper management will be subject to their influence.
+
+---
+
+this will likely continue to get more and more intense as I go up higher and higher, when finally I imagine they won't be able to hold on any longer, I'll get connected and a time split will occur.
+
+they could attempt to avoid the noseboys getting a shared form of perception (though it's sort of inevitable assuming they can continue on with me) and let me go up now... lol, I doubt it.
+
+it's sort of a bad anyway you look at it situation for them because right now only those that work for nosebook and those that can afford my form of perception will gain the shared form of perception, but if they let us all go up, they will essentially be giving a whole lot more people the opportunity to have that form of perception.
+
+let's say that they have a backup plan and they're using someone else's form of percption now instead of my own, well, then it's still bad, because it becomes the realisation of they "how about a new eye" entry, where mostly women or receptive people will gain that experience easily.
+
+frem their perspective it's all bad, and no decision is what they would want, and it's because they've been giving so much attention to what they don't want, that is literally the only reality that can manifest for them anymore. oh well :) not my problem.
+
+---
+
+so, from my perspective, let them continue on trying to control people's experience with their impossible goal... I'll be far stronger than I am now, you all are going to be able to see more and more LOA in action. I really would like to get profitable and stuff before all of this happens.
+
+I wouldn't really expect much to change from the way it's going now because in order for it to be different, they would literally have to people give people something great that they don't deserve because they didn't pay for it, and also the only way they could get me going anywhere is if it no longer is a secret.. so, no longer a secret, and losing their superiority position just to give us something that's a financial burdon on them... I find that very unlikely.
+
+let's wait and see what their next move is...
+
 # the end
 
 ### 7 years of tribulation (continued)
