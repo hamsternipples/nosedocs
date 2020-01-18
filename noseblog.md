@@ -11980,6 +11980,16 @@ looks like this one is going into the long game.
 
 [1]: I should qualify that statement. when I was in 3d, and I was feeling pretty good things were all fine, and I made great business negotiations with zaryn and such, but then I had my first sexual experience and lost 3d. it was in 2d where I no longer had access to all of that extra perception that people really began to take advantage of me. my inability to perceive unwanted remained, yet I was now playing on the 2d playing-field of perception of people who were considerably better at manipulating things on that plane than I was. learning how to get that form of perception back came as a result of my desire to get back there, so LOA brought me a lot of learning experiences to allow me to navigate those things and to gain even more confidence in myself than I had before I lost 3d preception.
 
+### 2020-01-18 13:33 - preference
+
+one of the funny reactions I got to the previous entry was this idea that if I lose my preference for attractive women (that is, I'm able to appreciate the unattractive ones -- that is, or to perceive only the wanted part in the unattractive ones), then they would actually rather be appreciated by a man that prefers an attractive woman.
+
+yes, it is true that more resistant men will have stronger preference toward attractive women. so, if you want to be preferred for your physical beauty or preferred (as superior to other women), then definitely a more resistant guy is certainly for you. you get what you're looking for though.
+
+---
+
+when I was talking about losng my preference, what I was meaning is that it's an inclusive sort of thing, so my own preferences do not disappear, I lose my resistance to experioncing other peoole's preferences. my prefrences become a sort of combined total of the whole human race. like, I don't really think shooting guns is cool but I don't think it would bother me to experience that anymore. or maybe some bizarre food item or whatever. it seems I can even apperciate negative preferences as well. for example, if someone really dislikes something (yet I would normally like it), I can experience their dislike from their perspective and it doesn't really bother me. that capability is sort of an extension of still feeling good dispite the envoronment that I'm in. I can recognise in the envorenment someghing unwanted, but it doesn't really make me feel bad anymore.
+
 # the end
 
 ### 7 years of tribulation (continued)
