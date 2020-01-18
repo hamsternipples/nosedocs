@@ -11932,6 +11932,54 @@ I wouldn't really expect much to change from the way it's going now because in o
 
 let's wait and see what their next move is...
 
+### 2020-01-18 07:56 - yesterday was a weird day.
+
+yesterday was a bit weird because on my way walking to friedly harbor I was immediately presented with 2 girls playing while their father was washing the car, then another also with her father on the way to school presumably. I felt strong desire and I didn't know really what to do with it. I decided to let it just sit.
+
+later further events unfolded where there seemed to be quite a bit of activity in a wierd way which I cannot effectively describe in english. when I got home I went to go star watch and begin to think about the events. I had the impression almost as if it were similar to like a last call bell at the bar before it closes.
+
+I realised that these were all potential inclusions as well. I really didn't know what to do about it because it already seems a bit much to me, yet besides my logical mind saying it was too much, I didn't feel bad about it. in fact, quite the contrary: I really wanted to include them as well. I started warming up to the idea and that's when it all started to become clear.
+
+at first, I reasoned that because I'm kind of an all or nothing kind of guy I would have to go with all of the girls that presented theirselves yestreday. I wondered why that seemed like not an issue, and I also wondered what was the bigger picture.
+
+---
+
+you see, nosebook has been giving a whole lot of their attention to how much they cannot control things, and so therefore because of LOA, they are presented with a disaster of yesterday where now it appears even more uncontrollable. then, I have been releasing resistance like crazy, such that I am now actually quite close to even being somewhat abraham-like in the sense that I no longer perceive (or I can perceive it but because I see the bigger picture so much clearer), the unwanted bit no longer appears to me anymore as unwanted.
+
+this is a very interesting thing because I am supposed to make a selection based on the girls that I like and the girls that I don't like, yet I no longer can really find anything unwanted in things anymore. I really am approaching virtually zero resistance now. that means similar to how abraham presents theirselves, I no longer have much of a preference anymore. in fact, the thing that got me to this place was the realisation that if none of this ever happened (probably pretty imposisble becasue of how LOA works and the amount of inertia that it has presently) -- even if none of this happens, I'm prefectly fine with it all because I no longer perceive it as a physical manifestation but as an energetic accumulation of energy that's really the most valuable (hard to describe what that feels like, to be more confident in the non-phycal energy behind what's happening than the manifestation itself).
+
+when you think about it, the most resistant people have the most preference, but as I noticed myself releasing resistance, I stopped worrying so much about any specific preferences and just let LOA do all of the work.
+
+it makes sense that I'm beginning to lose enormous amounts of "personal" preference as I appreach 6d -- because, if you think about it, the storngest preference you have is toward your own experience. you prefer to spend time in your own experience, so it would be wierd for somebody to begin to experience somebody else's experience along with their own. however, that's where I'm headed. in oreder to experience 6d, not only do I have to release my resistance to other people interacting in my expereince, but to even release the resistance to experienceing their experience as if it were my own.
+
+I believe this is what it means to realise the understanding that I am "source energy in a physical body".
+
+---
+
+so, where does this take us? I gave it some thought, and I belive that this is only the beginning of the unveiling of the new evolution of desire that has come about as a result of the events that have been taking place.
+
+I believe the girls thing, because nosebook keeps on growing it bigger and bigger is just simply causing it to be diffrent than we had anticipated it to be.
+
+I think the girls are going to all be much much more self-confident and self-reliant, and this will come about because they cannot all rely on my for those things and will have to find them more for theirselves (it'll be easy though!). I also think we're all going to be more self-sufficient and more independent for the same reasons.
+
+that's a super graet thing because these are all qualities of strong and wonderful women, but I think the most greatest thing that's coming as a result of all of this is that we'll all gain a shared form of perception. I'll share my experience with the girls and our children as well. to the outside world, we'll all look like individuals (and behave as such), but yet at the same time we'll have a sort of a rhythm and syncronicity to our intractions that will seem like we're almost operating as if we were some sort of larger organism.
+
+---
+
+in addition to this, as I approach 6d, a similar thing will begin to be happening with the noseboys. as I have been going up and up, my form of perception sees less and less unwanted, so they (I'm referring more specifically to the engineers) are becoming less and less capable of perceiving anything unwanted in the things they're given to do, which probably makes them pretty productive, and yet at the same time it seems like I am reminded if myself right after I had the brain haemorrhage and in my early parts of spain. I was very productive, but I was also pretty naïve. I had a very difficult time preceiving the unwanted part in things, and as a result people really took advantage of me[^1].
+
+they're going to be going up a lot higher than I was after my brain haemorrhage, so that'll be an interesting experience for them... anyway enough about that.
+
+---
+
+I'm kind of excited about all of this, as it appears that the shared form of perception is going to be fun. annother interesting thought that I made peace with last night with as well, was the idea that assume that for whatever reason we're not able to have any kids, obviously in order to maintain a resistance-free form of perception, this needs to not bother me/us, and also means, assuming that somehow nosebook is able to hold me away from actual 6d for the duration of my time here, that it's quite possible that I'll "make my transition" into the multi-bodied experience of the girls. kinda a weird idea from the perspective of a man, but I'm very closely approaching no longer being *just* a man, but having a source enregy perspective in a human body.
+
+who knows man.. there are probably tons more evolutions of desire to go, because I find it very unlikely that they would ever be able to allow me to go up now that I'm approaching 6d. the last thing they would want is for me to be able to peek into anyone else's experience. they had a super hard time when it was *just* 5d, so I think they're probably going to fight it as long as they ppssibly can.
+
+looks like this one is going into the long game.
+
+[1]: I should qualify that statement. when I was in 3d, and I was feeling pretty good things were all fine, and I made great business negotiations with zaryn and such, but then I had my first sexual experience and lost 3d. it was in 2d where I no longer had access to all of that extra perception that people really began to take advantage of me. my inability to perceive unwanted remained, yet I was now playing on the 2d playing-field of perception of people who were considerably better at manipulating things on that plane than I was. learning how to get that form of perception back came as a result of my desire to get back there, so LOA brought me a lot of learning experiences to allow me to navigate those things and to gain even more confidence in myself than I had before I lost 3d preception.
+
 # the end
 
 ### 7 years of tribulation (continued)
