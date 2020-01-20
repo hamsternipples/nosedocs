@@ -12000,7 +12000,7 @@ personally, I do not believe they will ever feel like they will be able to contr
 
 ---
 
-just now, and the reason why I'm writing this is because, I woke up with a really bizarre dream that seemed to try and make the implcation that if I continue to watch stars, then other people will have some sort of difficulties or something (the dream was extremely convoluted and barely made sense). I have a number of objections to this dream, because since they do not let me dream normally, this is only appears to me as a an attempt to try and keep me further away from 6d[^1].
+just now, and the reason why I'm writing this is because, I woke up with a really bizarre dream that seemed to try and make the implcation that if I continue to watch stars, then other people will have some sort of difficulties or something (the dream was extremely convoluted and barely made sense). I have a number of objections to this dream, because since they do not let me dream normally, this is only appears to me as a an attempt to try and keep me further away from 6d[^1][^2].
 
 upon making this realisation, immediately, I was reminded of how miserable it is for a really intelligent kid to be held back and not allowed to excel, forcing them to go at the same speed as everyone else in the class. IMO, 95% of the bad kids these days, are not actually bad kids, but bored kids. they're smart kids that are not allowed to go at their own pace. our institutions seem to have this "one size fits all" idea because it's easier to manufacture (or control) one size than it is to manufacture (or control) a wide diversity of different sizes and shapes.
 
@@ -12026,6 +12026,8 @@ whatever dude, you just keep trying to fit people in your little control boxes. 
 
 
 [1]: following how LOA works, their efforts to try and fight against me getting to 6d, seem to only be fueling my desire to get there, so this dream likely had the opposite effect of what they desired.
+
+[2]: up until now, they have been controlling my dreams, preventing me from having any dreams that they do not control. I can tell this because when I have natural dreams, they are clear and I have intuitive knowledge into what is happening in the dream -- then, something usually wakes me up or something to end the dream. the dreams that I get from them and the ones that they control, my vision is usually much more blurry, and I have a very difficult time understanding what is happening in the dream. the dream usually has stuff appearing and disappearing as they're attempting to steer the dream, and lots of nonsensical appearances of things, which always leave me feeling confused or not undredstanding what is happening. this simply is because the concepts that my brain is used to processing are much higher frequency than their machines can produce, so it's sort of like the difference wbetween talking with someone on an old phone with a bad connection, or in person. the difference in quality is very noticeable. there's no doubt the dream was created by them. lately more than before, they seem to be using dreams to try and steer people.
 
 # the end
 
