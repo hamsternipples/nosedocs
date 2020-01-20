@@ -11990,6 +11990,43 @@ yes, it is true that more resistant men will have stronger preference toward att
 
 when I was talking about losng my preference, what I was meaning is that it's an inclusive sort of thing, so my own preferences do not disappear, I lose my resistance to experioncing other peoole's preferences. my prefrences become a sort of combined total of the whole human race. like, I don't really think shooting guns is cool but I don't think it would bother me to experience that anymore. or maybe some bizarre food item or whatever. it seems I can even apperciate negative preferences as well. for example, if someone really dislikes something (yet I would normally like it), I can experience their dislike from their perspective and it doesn't really bother me. that capability is sort of an extension of still feeling good dispite the envoronment that I'm in. I can recognise in the envorenment someghing unwanted, but it doesn't really make me feel bad anymore.
 
+### 2020-01-19 17:42 - tolerating diversity
+
+I went to sleep pretty confident that I didn't want to make any more inclusions. the different signals seemed to fit the idea (there was the feeling of the "last call" followed by two that seemed to both be the "last" ones for different reasons). in addition to that, I felt done or no longer like there is still more. no now, that means my focus will begin to change to align much more with what's coming rather than where I'm at now.
+
+so now I wanted to spend my time watching stars and pregramming as much as possible while things all get ready -- I suppose, it seemed to me like there was a feeling that nosebook wanted to try and get everything all "ready" (under control), even though it seems to me like we could start now, just they don't want to allow it to begin now because they cannot control it all.
+
+personally, I do not believe they will ever feel like they will be able to control it, and I think they're just wasting time. so, I figure that instead of waiting around for them, I want to continue to watch stars and go up the dimensions as fast as I can, awaiting the moment when they're supposedly going to release the restrictions on my body (yeah, right, huh).
+
+---
+
+just now, and the reason why I'm writing this is because, I woke up with a really bizarre dream that seemed to try and make the implcation that if I continue to watch stars, then other people will have some sort of difficulties or something (the dream was extremely convoluted and barely made sense). I have a number of objections to this dream, because since they do not let me dream normally, this is only appears to me as a an attempt to try and keep me further away from 6d[^1].
+
+upon making this realisation, immediately, I was reminded of how miserable it is for a really intelligent kid to be held back and not allowed to excel, forcing them to go at the same speed as everyone else in the class. IMO, 95% of the bad kids these days, are not actually bad kids, but bored kids. they're smart kids that are not allowed to go at their own pace. our institutions seem to have this "one size fits all" idea because it's easier to manufacture (or control) one size than it is to manufacture (or control) a wide diversity of different sizes and shapes.
+
+this morning was actually quite fortunate because matt just posted a video on this very subject yesterday: @[youtube](https://www.youtube.com/watch?v=NbiveCNBOxk)
+
+the story goes, due to new requirements of more advanced figher jets, new uniforms needed to be made. the US air force commissioned a study to try and find the "average man" and build their uniforms around that size. it turns out that the "average man" does not ezxist. it seems that nature wants to try and maximise diversity of attributes within the species. so, as a result, things like adjustable seats, helmets and such needed to be created to accomodate for the wide variety of different pilot sizes.
+
+---
+
+I'm so glad it was the US air force that commissioned this study, because the same exact thing applies to mental capability. I think they're trying to do a similar thing, where they're attempting to fit the entire planet into one muental size (a controllable version of mine) and then try to get everyone to conform to that one size.
+
+in reality, this is (going back to the school analogy) akin to tryning to force all of the kids to go at the speed of the one going the fastest. you're just going to have a lot of really lost kids that have no idea what's going on. as with everything, everyone needs to be able to go at their own pace. I realise that this was impractical to allow everyone to go at their own pace a few decades ago, but today, espcially with advances in technology, it's never been more available to let kids actually learn at their own pace. there is no "average student"
+
+so, because there is no "average human" anywhere to be found, I think it's a grave mistake to try and slow people down (like me), or try to hurry others up to meet some sort of metric of expectation for mental performance. I'm sure that some people feel like they're in some sort of wind tunnel trying to experience life with my form of perception, and forcing someone to go at some arbitrary speed is not what I'm about. these are performance expectations, and if any sort of expectations are going to be put, when we should be focus these instaed improvement expectations.
+
+---
+
+lastly, let's just imagine for a moment that I did believe that dream that I my going faster is in some way harmful to other people and that I'm somehow *responsible* for these people's difficulty by going too fast... so, let's say I slow down. how long do they need to get everyone up to their contrived metric? one year? two? four? let's say it's 4 years for them to get everything they need all ready.
+
+they honestly want me to sit around on my hands for four years just so they can get ready, only to not be able to have any children? let's say the cutoff date when I do make my transition is in 2038 when andrea is 33, that gives us 18 years if we started now -- really only 17 if yuo consider how long it takes children to be born. most of the girls won't realistically be having children for 2-8 years more, so the majority of the children will be under 10 by the time 2038 rolls around. we don't really have that much time, and you want to drag your feet how long to make this system for the "average form of perception" for all humans -- an impossible task come to materialise??
+
+whatever dude, you just keep trying to fit people in your little control boxes. I have stars to watch.
+
+
+[1]: following how LOA works, their efforts to try and fight against me getting to 6d, seem to only be fueling my desire to get there, so this dream likely had the opposite effect of what they desired.
+
 # the end
 
 ### 7 years of tribulation (continued)
