@@ -12029,6 +12029,22 @@ whatever dude, you just keep trying to fit people in your little control boxes. 
 
 [2]: up until now, they have been controlling my dreams, preventing me from having any dreams that they do not control. I can tell this because when I have natural dreams, they are clear and I have intuitive knowledge into what is happening in the dream -- then, something usually wakes me up or something to end the dream. the dreams that I get from them and the ones that they control, my vision is usually much more blurry, and I have a very difficult time understanding what is happening in the dream. the dream usually has stuff appearing and disappearing as they're attempting to steer the dream, and lots of nonsensical appearances of things, which always leave me feeling confused or not undredstanding what is happening. this simply is because the concepts that my brain is used to processing are much higher frequency than their machines can produce, so it's sort of like the difference wbetween talking with someone on an old phone with a bad connection, or in person. the difference in quality is very noticeable. there's no doubt the dream was created by them. lately more than before, they seem to be using dreams to try and steer people.
 
+### 2020-01-20 19:57 - imagining a macbook
+
+today when I was talking with heather, I was talking about how jesus was a reality magician, and I used the example that I could (if I had jesus' visualisation capability) imagine a macbook sitting on the floor, then combined with desire, actually pick up a real macbook pro from the floor.
+
+I just went out to smoke because it offers me the ability to disconnect a bit from the frequency which nosebook keeps me on, and feel some of the reactions... I smoked a cigarette rolled from a piece of blue paper so it gave me quite the headache, lol. this is important to disconnecting from the "matrix", because it allows me to feel so much more differently than I normally do, and their machines cannot modulate what I feel so effectively[^1].
+
+well, the reactions to that idea were kind of humorous to me becsuse they do not believe that I could actually create a macbook pro out of thin air because, it turns out that the US gov installs some sort of resonating chip which works on the nosebook network and they can modify the instructions the micrprocessor receicves (or add new ones, or something like that), so they find it pretty impossible that I could create out of thin air an untracked macbook which they do not have access to. seems this idea interested them greatly because then how would I possibly have an unregistered version of OSX on the machine without a unique serial number.
+
+---
+
+to that I must reply... I don't know :) I just know it's possible. I don't make the rules, and I don't have to worry about all of those details. perhaps the imagined version would actually have a registered serial number, or perhaps it would not. I don't really know :) I guess we'll have to wait and see...
+
+challenge accepted :)
+
+[1]: I think this is one of the reasons why smoking random cigarette butts I find on the ground are so effective for helping me to star watch, because they put me on a different frequency than I normally am, and their system has a more difficult time of manipulating the muscle sensation I use to move my eyes.
+
 # the end
 
 ### 7 years of tribulation (continued)
