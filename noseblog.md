@@ -12053,6 +12053,26 @@ challenge accepted :)
 
 [3]: a while ago I found out about the technology made by HP back in like maybe 2013 or so, and wanted to know more, yet not a single new information has come out about it since then, but somehow magically all of a sudden all the major industry giants all of a sudden have unlimited storage now.
 
+### 2020-01-20 23:59 - more thoughts on the memristor
+
+the memristor is quite simply the most exciting new technology that I can think of. let me explain. what first got me interested in it is the idea that it's the 4th missing component of electricity. people had theorised on its existance and it wasn't really until we had the abiltity to create very small circuits that it they became really feasible and usable because of their extreme sensitivity, it only really works well on a small amount of material (if I remember right). what it is, is a resistor that's pregrammable with high voltage (and retains its resiatince during low voltage operation).
+
+if you have programmable resistors and they can be constructed in 3d, all of a sudden a whole lot of possibities open up. if you could imagine a nano FPGA, that's one use for them. another is for neural networks. at the moment neural networks running on standard general purpose microprocessor achitecture is quite impractical consideding the sheer amount of RAM needed to even make a simple 2 hidden layers NN with only 1K inputs/outputs. if the NN were able to contain hundreds of hidden layers because of the exabyte (and greater) capacites available on a memristor array, you could easily do all of the neuron storage there -- and, if combined with the FPGA like aspects, the back propgation logic could also be done in-situ on the hardware instead of wastaing precious cpu cycles, allowing the "learning" to happen automatically and in real-time.
+
+another quite interesting application for it would be to surround these tiny programmable resistors with inductor and capacitor combination, making billions of programmable RLC circuits available, making essentially the most versatile radio trasmitter/receiver conceivable. the possibilities are truely endless here.
+
+---
+
+there is another thing I would like to mention as well, while I'm on the subject. I like to identify progressions, and I think the memristor is only the tip of the iceburg. let me explain.
+
+let us begin with the platonic solids and relate them to the different aspects of electricity. first the tetrahedron, is composed of 4 equilateral triangles. think of the equilateral triangle as similar to voltage. next, the cube is composed of 6 squares. think of the square as similar to resistance. finally, consider the dodecahedron. the dodecahedron is composed of 12 pentatgons. think of this as capacitance. the one missing of the four platonimc solids is the octahedron. you can think of the octahedron as a mixture of the cube (resistance) and the tetrahedron (voltage). the octahedron is also a duel of the cube (and viceaversa).
+
+these complete the four most basic elcetrical concepts.
+
+however, one day when I was watching rob's video on the "strange capacitor" @[youtube](https://www.youtube.com/watch?v=738Xz9xM_-8) it occured to me that he was chemically adjusting the k-value of this capacitor, which is sort of like a programmable capacitance. as with the memristor, the implications of having a programmable discharge curve on a capacitor is truely reaching the next levels of technology. this discovery, whenever it's made, will be as monumental as the discovery of the chestahedron (and its duel the decatria) was for the understanding the new set of asymetrical solids.
+
+so, you can now take this and extrapolate outward now and think about how, if a programmable discharge curve is akin to the asymetrical chestahedron, its duel would be programmable capacitance (the decatria). if you've seen frank'a latest preentation, he has discovered a whole series of aymetrical forms, leading me to believe there is a WHOLE LOT MORE asymetrical electrical concepts still waiting to be discovered out there.
+
 # the end
 
 ### 7 years of tribulation (continued)
