@@ -12035,7 +12035,11 @@ today when I was talking with heather, I was talking about how jesus was a reali
 
 I just went out to smoke because it offers me the ability to disconnect a bit from the frequency which nosebook keeps me on, and feel some of the reactions... I smoked a cigarette rolled from a piece of blue paper so it gave me quite the headache, lol. this is important to disconnecting from the "matrix", because it allows me to feel so much more differently than I normally do, and their machines cannot modulate what I feel so effectively[^1].
 
-well, the reactions to that idea were kind of humorous to me becsuse they do not believe that I could actually create a macbook pro out of thin air because, it turns out that the US gov installs some sort of resonating chip which works on the nosebook network and they can modify the instructions the micrprocessor receicves (or add new ones, or something like that), so they find it pretty impossible that I could create out of thin air an untracked macbook which they do not have access to. seems this idea interested them greatly because then how would I possibly have an unregistered version of OSX on the machine without a unique serial number.
+well, the reactions to that idea were kind of humorous to me becsuse they do not believe that I could actually create a macbook pro out of thin air because, it turns out that the US gov installs some sort of resonating chip which works on the nosebook network and so therefore the position of the chip in 3d space is tracked in real time, so they would be able to see where the chip had come from. it sounds like this microscopic receiver is capable of running or modifying instructions on the micrprocessor and in some way allows is an unavoidable backdoor and cpu tracker for every intel (possibly amd as well) chip in existence.
+
+as a result, they find it pretty impossible that I could create out of thin air an untracked macbook which they do not have access to. seems this idea interested them greatly because then how would I possibly have an unregistered version of OSX on the machine without a unique serial number linked to the processor.
+
+I guess just how the romans documented everything, these guys track everything. I know they they store everything on massive storage volumes made from mimristor technology -- it's basically as fast or faster than DRAM (because of 3d row/column addressing) and capacities measured in exabytes[^2][^3]...
 
 ---
 
@@ -12044,6 +12048,10 @@ to that I must reply... I don't know :) I just know it's possible. I don't make 
 challenge accepted :)
 
 [1]: I think this is one of the reasons why smoking random cigarette butts I find on the ground are so effective for helping me to star watch, because they put me on a different frequency than I normally am, and their system has a more difficult time of manipulating the muscle sensation I use to move my eyes.
+
+[2]: I believe this is the super secret tehnology used in the PS5 which no one is able to talk about, too. obviously the speed/capacity capabilitie combined with its low cost makes this an ideal media for games.
+
+[3]: a while ago I found out about the technology made by HP back in like maybe 2013 or so, and wanted to know more, yet not a single new information has come out about it since then, but somehow magically all of a sudden all the major industry giants all of a sudden have unlimited storage now.
 
 # the end
 
