@@ -12073,6 +12073,28 @@ however, one day when I was watching rob's video on the "strange capacitor" @[yo
 
 so, you can now take this and extrapolate outward now and think about how, if a programmable discharge curve is akin to the asymetrical chestahedron, its duel would be programmable capacitance (the decatria). if you've seen frank'a latest preentation, he has discovered a whole series of aymetrical forms, leading me to believe there is a WHOLE LOT MORE asymetrical electrical concepts still waiting to be discovered out there.
 
+### 2020-01-21 11:39 - followup to the platonic solids and electricity idea
+
+so it turns out that my head was having severe failure when writing that as I was mixing a lot of different ideas together. probably smoking blue dye had something to do with it. instead now I will explain what I did see, which I think is valid.
+
+the platonic solids are 3 of triangle (tetrahedron, icosahedron, and octhedron), one of square (cube) and one of pentagon (dodecahedron). I have been playing with the idea of these relating to the fundamental forces of electricity for a while now... which are not those I mentioned. I'll do more research on it and refresh my memory there...
+
+anyway, the transformation I could see ia that the cube is a dual of the octahedron and you get the octahedron by pressing the verticies of the cube inward. I saw on one of frank's video that the dodecahedron can be made from the cube also by pushing the edges into planes[^1].
+
+obviously there are no more platonic solids after the dodecahedron because after the pentagon is the hexagon, which lays flat and tiles the plane perfectly (as does the square).
+
+frank, in his videos begins to show off his asymetrical shapes, the first being the chestahedron which is created by opening up the tetrahedron such that three of the legs of a pentagram (5-pointed star) come to a point at the top. these three kite-shaped surfaces also have equal surface area as the triangles of the tetrahedron, but the most important thing I thought about this is that it retains part of the pentagon's angles with each of the legs being 1/5 of a 5-pointed star.
+
+also, if you place the chestahedron inside of a sphere, such that all of the verticies are touching the sphere and you look at the plane that divides the sphere into two, where this intersects the chestahedron makes a hexagon (and therefore a cube if you position the cube at root-3 diagonally inside of the hexagon).
+
+---
+
+anyway, what I was trying to illustrate is that the 3 basic componentes of electricity (resistor, capacitor and inductor) can be thought of like the triangle, square, and pentagon, with the three main ones (octahedron, cube and dohecahedron) all having primary transformations on the cube by pushing vertices or edges. then, this is where things get kind of muddy in my mind, because it seems like there's a relation between voltage and resistance as similar to the cube and octahedron dual just like the memristor. this is where I need to give it more thought, because it seems to me likely that this has something to do with another type of component (and possibly more, following the sequence) which are capable of having programmable k-values (that is to be able to modify the discharge curve or the electrostatic capacitance of the component).
+
+I really would enjoy studying this sort of thing, as I think there is a whole lot of new things to be discovered from the asymetrical forms like the chesatahedron. also, I believe geometric relationsips are important to really understanding induction, and these relationships seem to be related to the enegetic patterns in planetary alignments found in astrology, too.
+
+[1]: as seen on the bottom of this image: https://www.cosmic-core.org/wp-content/uploads/2019/03/chestahedron-dodec.jpg
+
 # the end
 
 ### 7 years of tribulation (continued)
