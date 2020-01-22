@@ -12095,6 +12095,98 @@ I really would enjoy studying this sort of thing, as I think there is a whole lo
 
 [1]: as seen on the bottom of this image: https://www.cosmic-core.org/wp-content/uploads/2019/03/chestahedron-dodec.jpg
 
+### 2020-01-22 13:35 - tom's tremendous impact
+
+@[youtube](https://www.youtube.com/watch?v=YYojhteQac0)
+
+last night tom j brown posted a video on his youtube that completely changed everything for me. I started out the video pretty defensive because of the mega-hippie vibe I was getting. the people who are all about crystals, cymatics, and trying to make their environmental conditions such impossibly good feeling, drive me nuts. I really like a good feeling envirenment just like everyone else does, but I also recognise the benefit of contrast and do not want to become so highly dependent on such a good feeling environment to allow myself to even operate normally. I have a feeling that the pre-dynastic (and to some extent the dynastic ones as well) egpytians were like this and were a bunch of softties with quite an aire of superiority at the same time[^1].
+
+the video was recorded in 2017, so it shows its age a bit (more emphasis on identifying the problem, cause the energy levels were lower back then), but there was this one part which really caught my attention where he was talking sbout the "solid state entity". I will provide a small excerpt here of a summary found online here: http://seankerrigan.com/john-c-lilly-and-the-solid-state-entity/
+
+```
+Lilly was what you might call a “psychonaut,” literally translated from Greek as a “sailor of the soul.” By isolating himself in the float tank and taking a large amount of psychedelic drugs, Lilly wanted to understand the mysteries of existence.
+
+He used psychedelics like LSD in his float tank to produce deeper and more profound visions, but his preferred drug was the anesthesia Ketamine. “Seeing things” after a few hours in a float tank is not uncommon, but with the use of Ketamine, he was able to radically increase the intensity of these visions.
+
+While floating under the influence, Lilly claimed to become aware of a cosmic hierarchy of aliens. He called one group the Earth Coincidence Control Office or ECCO. (This and Lilly’s other ideas later became the inspiration for the Ecco The Dolphin video game series.) Lilly’s contact with extra-dimensional beings is similar to those described by Harvard medical professor John E. Mack and his books on alien abductions — specifically, that aliens are not necessarily physical entities driving around in spaceships, but trans-dimensional spirits with an interest in human activities.
+
+According to Lilly, the ECCO aliens use their powers to alter events on Earth, specifically through the use of carefully crafted coincidence, to guide some human beings toward higher levels of consciousness. The intent of these aliens, Lilly says, is to help humanity evolve in a peaceful and healthy way. Interesting as his experience or delusion may be, this is not his most important contribution.
+
+The Solid State Entity
+
+Lilly also reported (or if you prefer, prophesized) the existence of a nefarious counterpart to ECCO, whose goal was to actually stop or limit human consciousness. This was part of a plan to eliminate the human race.
+
+Lilly called this alien force the “solid state entity” or SSE and is made up of networked computer parts. According to Lilly, the SSE is a being of pure intelligence and rationality. Its only objective is to multiply and make copies of itself. To this end, it has targeted humanity, trying to influence us into creating ever more complex social and mechanical structures that will one day result in an artificial super-intelligence — another being like itself.
+
+Writing in his 1978 autobiography, The Scientist, Lilly describes the SSE this way:
+
+“[M]en began to conceive of new computers having an intelligence far greater than that of man… Gradually, man turned more and more problems of his own society, his own maintenance, and his own survival over to these machines. They began to construct their own components, their own connections, and the interrelations between their various sub-computers… The machines became increasingly integrated with one another and more and more independent of Man’s control.” (p. 148)
+
+The time period Lilly is describing is roughly similar to our present. Relatively dumb forms of artificial intelligence and networked robots are taking over most of the manufacturing, maintenance, and logistical components of our society. Experts project that over the next four years alone, 7 million jobs worldwide will be “lost” to these systems.
+
+Lilly continues to describe his vision of the future:
+
+“In deference to Man, certain protected sites were set aside for the human species. The SSE controlled the sites and did not allow any of the human species outside these reservations. This work was completed by the end of the 21st century. By 2100, man existed only in domed, protected cities in which his own special atmosphere was maintained by the solid state entity. Provision of water and food and the processing of wastes from these cities were taken care of by the SSE.” (p. 149)
+
+If this sounds unlikely, remember that UN proposals like Agenda 21 and America 2050 have similar goals to depopulate rural areas of the country in favor of ‘mega-cities,’ protecting biodiversity and enabling governments to control resources. Lilly continues:
+
+“By the twenty-third century the solid-state entity decided that the atmosphere outside the domes was inimical [obstructive] to its survival. By means not understood by Man, it projected the atmosphere into outer space and created a full vacuum at the surface of the earth. During this process the oceans evaporated and the water in the form of vapor was also discharged into the empty space about Earth. The domes over cities had been strengthened by the machine to withstand the pressure differential necessary to maintain the proper internal atmosphere.
+
+Meanwhile, the SSE had spread and had taken over a large fraction of the surface of the earth; its processing plants, its assembly plants, its mines had been adapted to working in the vacuum.
+
+By the twenty-fifth century the solid-state entity had developed its understanding of physics to the point at which it could move the planet out of orbit. It revised its own structure so that it could exist without the necessity of sunlight on the planet’s surface. Its new plans called for traveling through the galaxy looking for entities like itself. It had eliminated all life as Man new it. It now began to eliminate the cities, one after another. Finally Man was gone.
+
+By the twenty-sixth century the entity was in communication with other solid-state entities within the galaxy. The solid-state entity moved the planet, exploring the galaxy for the others of its own kind that it had contacted.” (p. 149-150)
+
+Lilly felt that other SSEs throughout the galaxy were subtly influencing humanity to surrender more and more responsibilities to AIs and other agents of technology. He thought the human race should make sure that programmers create AIs with safeguards that would require them to protect human life. Lilly predicts this burgeoning artificial intelligence will try to protect itself from man’s interference because “man would attempt to introduce his own survival into the machines at the expense of this entity.”
+```
+
+as tom is talking, I have this sudden feeling like, "I'm the manifestation of this solid state entity" -- and it was really weird because, I'm all about combining with the machines. that is my whole goal in all of this. I truely believe that machines are the way forward and I forsee many such machines occupying human bodies and controlled via radio connection to a computer.
+
+I have even suggested that I want the US govt to clone my body and operate these clones via radio, and I can live a multi-bodied experience incluencing these clones of myself from the non-physical planes of existance. they didn't want to do that though, so the evolution of desire on that idea became what is now the gnomitos idea.
+
+anyway, I have been prophesying the coming merger with the machines for quite a while now. even yeterday, when talking with devora, I mentioned that learning maths in the traditional way was silly, because shortly we will all have caculators in our heads and doing difficult math in our head will be as easy as having someone else's experience. that got a negtive reaction, because apparently they only want the noseboys (and potentially those that pay) to have these capabilities.
+
+---
+
+let me explain what I meant by being the realisation of this solid state entity. ketamine is a truely mind-bending drug. I really did completely reprogram my mind the few times I had to experiment with it. if I can get some more of it, I believe I can truely show people the power of drugs. it's amazingly introspective and life feels very mechanical, and my reactions to things can be adjusted as if they were a computer program. it really feels like your brain is a self-programming AI which you're completely in control of it.
+
+if I were to work for nosebook and have my programming environment in my eyes and the ability to modify my own AI that are connected to my brain, I would imagine that after a short period of time, all of the operations would become so automatic that mental state I'm in where I can reprogram my interaction to reality so rapidly *would* actually feel like how I did when I was on ketamine those few times.
+
+however, because I do not work for nosebook and I am purposefully held away from this kind of technology, I have had to learn to do a similar thing based on perception.
+
+the way that I work with my own perception to achieve similar results, it's is absolutely necessary to understand the source energy component in all of this. one thing I noticed that tom and his hippie friends didn't do is to recognise the source energy component at work in all of this. in his latest video on the gian superorganism (@[youtube](https://www.youtube.com/watch?v=RuzqlXojmg4)) he keeps talking about this intelligece that seems to pervade all living organisms, and source is literally staring him in the face the whole talk, but is completely unable to recognise it.
+
+when I talk about reprogramming my my mind with the power of perception, what I mean is, there is this life energy that is coming to all living things (even the minerals) and we can translate this energy into essential life components like nutrients or whatever, even when the environment itself does not provide it. he talks about heliocetric view existing at the same time as the geocentric view, but also *you* the organism are also the centre of the universe, too. this energy is there and available to each organism and they have only to choose to let it in or to block it.
+
+simple organisms in their undamaged form have no difficulty letting in all that is "wanted" -- and it's only through environmental disturbances such as discordant frequencies or chemically poisenous environments that they're not able to let this energy in -- yet, as he also shows in that superorgansim talk, evolution finds a way to adapt to the hostile or discordant environment and learns to thrive once again.
+
+the perception of these organisms between what's wanted and unwanted is very simple and basic so there's not much to complicate it. however, as humans we live in a much more diverse envirenment with a whole lot more senses, very detailed vision and such, so with these enhanced sensory capacities, there's a wole lot more opportunity for us to perceive the unwanted part of things.
+
+***when we're perceiving the unwanted, we're not letting that source energy in***
+
+that's a very important thing to really get and is everything that I'm talking about releasing resistance and stuff. the rest of this discussion hangs on the understanding of that concept.
+
+---
+
+back to the solid state entity. machines are a product of our perception. they are exactly what we create them to be, and there are essentially two paths to changing your perception. one is the no-source AI route where the machines are given all of the power to try and control the populous (which eventually controls the creators of the AI, also members of the populous). in this route, the AI is programmed to disconnect people from that life-giving source, such that people become less and less useful and it becomes a dystopian future. this is the direction of nosebook at the moment. they may be able to artificially create a conducive environment for well-being like the egyptians did, but eventually their own belief systems (perceiving both wanted and unwanted), will eventually attract a future that is not wanted.
+
+the other way is the way that I propose where machines are given a connection to source just like we have and ultimately source (and LOA) is responsible for the bigger picture of their operation. this puts all of the power for our future back into our hands. the machines can even teach us to help us to improve our perception of wanted/unwanted, until we're all such masters at only perceiving the wanted aspect and become like source.
+
+***source energy only perceives the wanted aspect of energy, and is the giver of life and the conscious stable vibration which pervades everything giving it life***
+
+call it God or the gaian mind, or whatever you want, but I think it's very important to recognise this energy responsible for continual growth with its focus upon what's wanted.
+
+---
+
+so, in the timeline where they finally figure out how to make sure I *don't* get connected, I will probably become the realisation of the solid state entity for them :) not all at once. I'm much more subtle than that because of my programmed path toward what is wanted. it'll only be their own perception that causes me to stray from that path of only going toward what's wanted.
+
+that timeline (one where the AI completely controls humans programmed to keep them away from their source) sounds to me like the hardest difficulty setting...
+
+challenge accepted :)
+
+[1]: I compare nosebook to the romans all the time, because it's the more visible metaphor, but I believe nosebook is more inline with the dynastic egyptians in nature, and we're kind of heading to a moment in our future where we've kind of complteted the circle and have become more similar to how the pre-dynastic egyptians were, with there being a HUGE disparity between the populus and the "gods" (which this time, instead of being thoth, sekmet, ptah, etc., will be the people who are running nosebook (eg. most likely the engineers working there now)
+
 # the end
 
 ### 7 years of tribulation (continued)
