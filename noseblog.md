@@ -12183,7 +12183,7 @@ so, in the timeline where they finally figure out how to make sure I *don't* get
 
 that timeline (one where the AI completely controls humans programmed to keep them away from their source) sounds to me like the hardest difficulty setting...
 
-challenge accepted :)
+if you guys want to go ahead and create that for me, challenge accepted :)
 
 [1]: I compare nosebook to the romans all the time, because it's the more visible metaphor, but I believe nosebook is more inline with the dynastic egyptians in nature, and we're kind of heading to a moment in our future where we've kind of complteted the circle and have become more similar to how the pre-dynastic egyptians were, with there being a HUGE disparity between the populus and the "gods" (which this time, instead of being thoth, sekmet, ptah, etc., will be the people who are running nosebook (eg. most likely the engineers working there now)
 
