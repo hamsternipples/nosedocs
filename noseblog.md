@@ -12187,6 +12187,24 @@ if you guys want to go ahead and create that for me, challenge accepted :)
 
 [1]: I compare nosebook to the romans all the time, because it's the more visible metaphor, but I believe nosebook is more inline with the dynastic egyptians in nature, and we're kind of heading to a moment in our future where we've kind of complteted the circle and have become more similar to how the pre-dynastic egyptians were, with there being a HUGE disparity between the populus and the "gods" (which this time, instead of being thoth, sekmet, ptah, etc., will be the people who are running nosebook (eg. most likely the engineers working there now)
 
+### 2020-01-22 16:49 - now all I have to do is to believe in you guys..
+
+a few months ago, right before I went to LA, I began to ponder this thought about how to make some machines which are capable of providing even more contrast than a human can. I was thinking this because no matter how much of a hardass mr. motor is, people still perceive him as a human. in other words, there is a limit to his rigidity. however, a machine does not have this artificial restriction. they operate according to how they're programmed and have no perception of the meaning of their actions.
+
+then, combined with another idea that I was toying with about how they're building this system for therselves. no matter how hard they try to escape it, they will be reborn into the very system they're creating right now.
+
+the advaantage of what this is all coming to is that the machines will not be some giant CPU in the sky regulating everything. thy will look exactly like humans do, controlling the body from their main protecced system, so to some extent, they will even have interactions with the humans they're controlling.
+
+the thing I love about john lilly's vision of the future is that the machines will be able to occupy the entire galaxy, so that means we'll have an entire galaxy filled with millions of different solar systems where there is all nosebook level control in place.
+
+this is like my ultimate playground and probably the most awesome thing conceived, because I am a VERY FIRM believer that human desire is the most powerful force in the universe -- and we've only to recognise it. so, under no circumstances do I think that the machines will ever be able to fully control everything. as it is right now with how I'm overcoming nosebook's attempts to neutralsie any form of creative life force in me, is I have to become more and more sensitive to the higher frequencies which are out of range of their machines ability to neutralise.
+
+I forsee this reality taking place in two stages: first their will be the reign of nosebook as the ultimate power over this planet. they'll create exceptional conditions for their own, however, because they are perceiving both wanted and unwanted alike and still feeling good because of their optimal conditions, they will eventually attract an unwanted reality...
+
+or, they'll simply all die of old age and the machines will continue on in their legacy. it doesn't really matter how it happens, but they're going to create for us the ultimate dojo. *every* human will be able to become more powerful than me or anyone of the other prophets or teachers that have come before. each time you gut birthed on the planet, you'll gain stronger and stronger non-physical desire and intention to create your own reality instead of being forced to live in the machines' reality determined for you (best determined to keep their macahine running).
+
+I only now, have to actually believe in you guys, instead of always being such a possamistic debbie downer :)
+
 # the end
 
 ### 7 years of tribulation (continued)
