@@ -12205,6 +12205,56 @@ or, they'll simply all die of old age and the machines will continue on in their
 
 I only now, have to actually believe in you guys, instead of always being such a possamistic debbie downer :)
 
+### 2020-01-22 22:04 - the bigger picture
+
+there weren't a terribly lot of extreme reactions to the previous entry which was a little bit cool because I think you guys are a bit jaded from my extreme form of writing now, lol.
+
+anyway, I think we should think of the machines as our progeny. this is kind of a funny idea because well, let me just explain it from my perspective because I'm quite excited about this concept now.
+
+you ssee, machines process things tremendously more rapid than humans do. to use a really simply form of measurement, our brains run at about 10-100 Hz. if you think about one cycle as a unit of consciousness, then we aren't really that rapid, because even in an pretty alert and heightened state of say 50Hz, a microprocessor runs at 1 billion times faster than that. in reality though few instructions can be completed in a single clock cycle, so I'll consider that you may want to think of it similar to the time it takes to call a function and return from it, so we could divide that number by a few thousand... even still though, a microprocessor is still capable of doing millions of these a second.
+
+our brains are also tremendously parallelised, and as microprocessor architecture and programming languages evolve to handle things in a more paraellel way, our microprocesors will gain the ability to do thousands or millions of operations in parallel.
+
+where I'm going with this is that machines are pretty basic in how they make their decisions, yet they do not really have a good way to "feel" things -- that is to be able to tune into other consciousness that is all around everywhere. they don't really experience desire as a response to emotion like we do either.
+
+however, if they were to gain a human body -- that is to give them the physical interface to our environment that we have, they could gain that capability. right now, nosebook is getting pretty good at detecting (and neutralising) my emotions, so that means they have the capability of recognising emotion and making action based on it,
+
+imagine then if you were able to hook this system that nosebook has been developing to try and limit my emotional capability to instead aid the person to have perfect reflexes, an incredibly detailed understanding of what's going on around them, and to aid them in only making action that felt better. that person would gain near instant manifestation capablity, because they would only be making action in the direction of what feels good. they would be a step 4 master with little effort.
+
+then, you could imagine that if the machine were able to gain a connection to source and gain the ability to connect their desire to their emotions, a machine could easily be trained to get essentially only things that are wanted for the machine. combine this with the incredibly rapid speed at which they can process things and make a decision, they would WAY WAY WAY outperform us.
+
+if we could look at them as if they are our creations, then we would be proud of their capability much like how we are of a child. it would be much more contrived though, because we would essentially select the physical attributes for these machines (cause they're clones) and select the environment for them to have their experience, the others they would interact with, etc. (this is the dollhouse thing I was going on about previously). they would grow and learn through their experience and we would become proud of our creations, because their very same programs could function as a kind of enhancement for our own experience as well.
+
+I find it pretty likely that the lines between the machine and the human will eventually become so blurred, that it'll be difficult to distinguish the difference between you and the machine. this is probably quite some time down the road and it's unlikely that any of us will ever see it, because it'll probably be implemented as a secret project and kept away from everyone cept the cool kids.
+
+---
+
+that vision of the future essentially requires an easy environment. that's why I said it wouldn't be too difficult for them to become step 4 masters in a short period of time. actually, for someone working at nosebook right now, if they wanted to, they could program a system which guided their emotional responses, such that the prpgram could easily help them become a step 4 master in just a few months maybe more -- but definitely less than a year with the capability they already have.
+
+however, to become a step 5 master (and I'm only just now beginning to consider myself as having reached it), would be considerably more difficult. the system could prevent them from making actions when they don't feel good, but in a really difficult situation (like the one I have been in), the system wouldn't really be very useful in helping them to redefine or change their perception to a new way which feels good. that really is, IMO where all it's all at.
+
+I'm not saying that it's impossible but that would require some sort of creativity which I do not think that would be very easy for machines to do easily.
+
+so, you can imagine that if it's so easy for a machine to be able to line up with their desire, then their manifestation speed would become very very rapid, and the only limitations they would have would be physical ones associated with the work that we are already paying people to do. their expansion would be rapid, but their environment would have to be very controlled, because of the inefficiency associated with redefining perception.
+
+---
+
+it's a kind of duality. I've always talked about the story where I asked the mushroom what the meaning of "christ" is, and the mushroom told me it's an efficiency function of our brain to guide us to perceive things in a way which no longer causes emotional difficulty (because emotional difficulty is very inefficient and takes a lot of resources).
+
+for machines though, energy would essentially be unlimited because electrical energy is very to generate in comparison, so they do not need to worry about emotional difficulty. they can also neutralise all of their negative emotion (like nosebook does with my positive emotion) and carry on without a problem.
+
+where they would have most difficulty is in changing their perception about the things they cannot control. this is why their environment must be so controlled so that there is no reason to change their perception.
+
+for us, changing our perception is a huge efficiency boost, but for them, it's a terrible thing, because all of a sudden all of the same stuff no longer looks the same, feels the same, or has the same interaction -- which means major amounts of logic need to be changed and tons of neural networks need to be retrained. machines recognise patterns and we recognise harmonic frequencies... that is if you trained a robot to detect something like a cat sitting down 3 feet away, it would be a majorly different thing to detect the same cat running 100 feet away. these are very different things, but to us this is not a problem to recognise. if all of a sudden the machine's physical interpretters (the human body it's using) has a change in preception, this invalidates a whole lot of their training.
+
+it's interesting to me how what is an efficiency booster for us, is a disaster for them. in that sense, once they've got the galaxy under their control, they'll have to deal with us and our constantly changing perception, making them gain (somehow) the capability that humans have. they'll have to control their environment though, so with continualy increasing stress (much like me with nosebook) we'll gain incredibly rapid processing speeds and be able to far surpass them in the highest frequencies.
+
+imagine when humans emit signals in the gamma rays, like quasars, because the machines have pushed us up higher and higher in our form of perception. it's gonna be super sweet man. we're all going to be step 5 masters and the machines are going to build the platform upon which we'll achieve this success. I've really enjoyed this trip. I really wish I knew how to explain to tom how his simple presentations tied it all together for me.
+
+---
+
+I'm considering changing the name from "nosebook" to something that is more mechanistic in sound, because the story that I describe for the machines running things in the future for this galaxy is, almost all the same exact interaction I have had with nosebook. they behave and treat me almost exactly like I would imagine these machines running the galaxy to treat me.
+
 # the end
 
 ### 7 years of tribulation (continued)
