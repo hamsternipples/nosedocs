@@ -12263,6 +12263,46 @@ the other thing that is kinda bothering me is the whole girls thing. I don't rea
 
 I want to continue this, but I have go go...
 
+### 2020-01-27 14:21 - I think I tanked a cosmetic sergery advert last night...
+
+a woman was asking me if I noticed that she had cosmetic sergery on her boobs and it looked very natural (or something like that)... I tried to respond, but had some difficulties to respond, so I switched to spanish and it became much easier. anyway, this is what I was attempting to say when I was abruptly awoken from the dream-state:
+
+I don't really fixate too much on those things (what women'a boobs look like), but I did imagine that could have been the case (that she had a boobjob) because I had a friend that had one. she had it done to look more like a woman (she was very flat-chested), and her story always made me wonder about some things. she was very loose with her sexuality, and tended behave anywhere between (often times depending on how much alcohol was present) a prostitute or just for free (presemably because she wanted affection).
+
+her story had often made me question what the definition of what it is to be a woman. because, if having the shape of boobs coming out of your chest is what it means to be a woman, or is it something else?
+
+she (my friend) is a very caring person, so it seemed she was able to "put up with" what I would consider barbaric or overly assertive men. our interaction made it clear to me that her past sexual experience with men seemed to shaped how she perceived men and what it means to be a woman. she was very surprised by me because I didn't fit the mould of what her mind defined as the way a man is... (and to be quite honest there is such a plethora of examples of these macho types in spain so it's no wonder her perception is this way).
+
+anyway, what triggered the thing in the dream is that this woman that was asking me the question (if I could tell she had a boobjob), felt very similar to my friend. they both feel like they need to have some sort of physical attractor (their boobs) to be able to attract some form of affection, (presumbly from men in the case of my friend, but could also be from another woman).
+
+this attraction seems to have two beneficial effects which they're primariliy concerned with: 1. to feel like an attractive person, and 2. to receive in some way some form of physical affection, and therefore a feeling that someone actually cares for you (both of these woman by nature seem to feel very caring toward others, but my friend, at least, had difficulty caring for herself, and needed to have the feeling of someone caring for her first to be able to allow herself to be cared for).
+
+---
+
+I find all of this to be silliness, and a really difficult way of conjuring a feeling for yourself that you are an attractive person.
+
+think about it, when you're an attractive person (physically too), then things just come to you. you don't need to work for them, they just seem to arrive, as if you're sort of the attractor (in the LOA sense) of the things you want.
+
+using physical beauty or physical affection to try and achieve the feeling I described above, is, in my opinion a very difficult way to feel like you're an attractive person. there are just so many things that can go wrong. it becomes so unmanageable that you might think you need to go out and get a boobjob to even be able to be marginally attractive. that's no good at all.
+
+there is a better way, and it has only to do with you. stop paying attention to the people around you and what they think of you. they have no idea -- they really don't, and you definitely don't need someone else to desire you to feel attractive.
+
+when you feel attractive, everyone will desire you -- not the other way around.
+
+---
+
+you get there with practice, by noticing how attractive you are little by little. definitely try to keep physical attributes like friends, houses, money, beauty, etc. out if it as much as possible, because those are the hardest.
+
+maybe try starting out really low like noticing when you attract a pissed off person in your vicity, or when you attract a funny comment from a total stranger, a song on the radio, etc. things like that are much easier to start out with.
+
+in time, your physical reality will begin to reflect your emotional state of being -- and then, when you're confident in your attractiveness, maybe then you want to get a new pair of boobs. that's when you want to do it.
+
+---
+
+if you're dissatisfied with your beauty and you try to "fix" it with cosmetic surgery, you are still dissatisfied with your beauty, so something else will happen or something will go wrong. you only need to watch an epidode or two of dr. phil to see how people trying to fix their feelings about theirselves with a form of action only results in a bigger disaster
+
+(which then dr. phil proclaims that expert professional action will instead yield the desired results... lol, I doubt it)
+
 # the end
 
 ### 7 years of tribulation (continued)
