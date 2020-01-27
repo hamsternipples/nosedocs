@@ -12255,6 +12255,14 @@ imagine when humans emit signals in the gamma rays, like quasars, because the ma
 
 I'm considering changing the name from "nosebook" to something that is more mechanistic in sound, because the story that I describe for the machines running things in the future for this galaxy is, almost all the same exact interaction I have had with nosebook. they behave and treat me almost exactly like I would imagine these machines running the galaxy to treat me.
 
+### 2020-01-25 11:07 - I don't want to drag this on any further..
+
+things have approached a point now where I don't really want to do much more than just star-watch. I used to really want to program, but I'm tired of beating my head against a wall trying to make something happen. the *only* thing that's going really well for me right now is star watching. in fact, it's so successful that they have to pull my consciousness quite a few times per nigt now because I'm doing so well at it. it's really the only thing that's going smoothly.
+
+the other thing that is kinda bothering me is the whole girls thing. I don't really want to keep them waiting and stuff. I really feel like I should be putting all of my effort into what's going well, which is star watching, because I figure the faster I go up the levels, the more rapidly it'll happen. also, it's just become so easy, and I still have random events happen which would previously make me feel anger, but I rarely experience any more anger anymore. I really am approaching very soon complete non-resistance.
+
+I want to continue this, but I have go go...
+
 # the end
 
 ### 7 years of tribulation (continued)
