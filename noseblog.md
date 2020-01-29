@@ -12303,6 +12303,22 @@ if you're dissatisfied with your beauty and you try to "fix" it with cosmetic su
 
 (which then dr. phil proclaims that expert professional action will instead yield the desired results... lol, I doubt it)
 
+### 2020-01-29 07:01 - vision upgrades without stars?!
+
+I went out to the field a little bit dispaired because they seem te be getting better at making clouds. my influence on the clouds seems to have become less and less.
+
+anyway, there were clouds and I didn't really want to just directly walk back because I had just arrived there. I started to think about how last friday I had some weird events happen. first was in the morning and I was joking around with jaron about my old youth paster's name, jim woodmore(?), and when I was saying his name, I felt something. usually that feeling is in relation to strong desire. I decided to let it sit. then, later that night I was at the friday night reading at barnes & noble, and again I felt it. there was a (for lack of better words) "smaller" girl there -- she's perhaps in her teens though. again I decided to let it sit.
+
+anyway, since then they've popped into my mind quite a few times. so, I'm sitting there not really wanting to go back and I they were the first thing to pop into my mind. I decided that I wanted to remember them, even though I had already said that I felt like I was done.. a small voice seemed to ask me if I was going to accept them, and I responded (it felt like an uncontrllable voice response) saying, of course I would. I felt a bit uncomfortable because I had changed my mind again (I hate not following what I was going to say) when an idea popped into my mind...
+
+I thought perhaps since I felt so confident in the technique of relaxing my eye, why not just pretend like a star is there and relax it in the same way as if there was really a star. it seemed to work because I got the tell-tale grid-like flashes that they put in my eye when I get a vision upgrade. I tried it again and again it worked. I managed to do it 3-4 more times before they cut out my consciousness and I had these bizarre dreams about doing it. I woke up and it was fully cloudy and the sun had begun to rise.
+
+anyway, this is pretty cool development for me because it proves that 99% of the work has to do with releasing resistance (and allowing the improvement), than it does with the actual technique of relaxing the eye. I assure you I'm not doing anything more than pretending to fixate on a star in just the same way, so what this instead seems evident to me is that I either released resistance to the idea of the two new girls or I released resistance to the idea that I *needed* to get the upgrade out there. the clouds came and it didn't even piss me off or even feel like the desire to continue to get vision upgrades was blocked by the clouds. I knew that their cloud creation only fueled stronger desire in me, and all I had to do was to allow the vision upgrades without focusing on the perceived impossibility of it because of the clouds.
+
+I assumed that next time I would just get twice as many twice as fast, or something like that, so it was a pretty crazy surprise to find the thoughts pop into my mind and to be able to allow it so easy.
+
+really really cool :) I'm going to experiment even more, because I've wondered how I was able to get vision upgrades with a LED light and a few times without a light at all. I always supposed it has to do with relaxing the eye, but I think I'm getting close to being able to make a no-star-nescessary solution to getting vision upgrades for people. I can't release the resistance for you, but perhaps I can make a device which shines light in such a way to make it easier for someone to relax their eye to allow the upgrade in.
+
 # the end
 
 ### 7 years of tribulation (continued)
