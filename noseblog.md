@@ -12307,7 +12307,7 @@ if you're dissatisfied with your beauty and you try to "fix" it with cosmetic su
 
 I went out to the field a little bit dispaired because they seem te be getting better at making clouds. my influence on the clouds seems to have become less and less.
 
-anyway, there were clouds and I didn't really want to just directly walk back because I had just arrived there. I started to think about how last friday I had some weird events happen. first was in the morning and I was joking around with jaron about my old youth paster's name, jim moorwood(?), and when I was saying his name, I felt something. usually that feeling is in relation to strong desire. I decided to let it sit. then, later that night I was at the friday night reading at barnes & noble, and again I felt it. there was a (for lack of better words) "smaller" girl there -- she's perhaps in her teens though. again I decided to let it sit.
+anyway, there were clouds and I didn't really want to just directly walk back because I had just arrived there. I started to think about how last friday I had some weird events happen. first was in the morning and I was joking around with jaron about my old youth paster's name, jim moorwood(?), and when I was saying his name, I felt something. usually that feeling is in relation to strong desire. I decided to let it sit. then, later that night I was at the friday night reading at barnes & noble, and again I felt it. there was a (for lack of better words) "smaller" girl (amongst her friends there with her) there -- serry I don't have a better way of identifying her though. she's perhaps in her teens and she also reminded me a little bit of the daughter of the woman that give lived on the 9th floor in arrasate and gifed me the scarf. again I decided to let it sit.
 
 anyway, since then they've popped into my mind quite a few times. so, I'm sitting there not really wanting to go back and I they were the first thing to pop into my mind. I decided that I wanted to remember them, even though I had already said that I felt like I was done.. a small voice seemed to ask me if I was going to accept them, and I responded (it felt like an uncontrllable voice response)[^1] saying, of course I would (if you want to join, of course). I felt a bit uncomfortable because I had changed my mind again (I hate not following what I was going to say) -- when an idea popped into my mind...
 
@@ -12322,6 +12322,20 @@ really really cool :) I'm going to experiment even more, because I've wondered h
 [1]: apparently, they can put voices in your head, ask you questions and then force an answer. I have numerous times experienced myself answering what seemed to be a question in my inner voice, yet this time was the first time I felt the voice too. judging by the reaction to what I just wrote, they don't want me to hear the voice and that seems very concerning to them[^2].
 
 [2]: apparently this is pretty concerning as well, because how can they stop me now? there also seems to be other reactions that I feel as well from people that seem to not be associated with nosebook. it feels like they don't want me to get too high and they lose their ability to continue on my vision frequency, or something like that... I don't really understand, because I was under the impression that they're going to take everyone to the ability to see at that level or something. either way, not my problem. I want to get as many vision upgrades as I can before all of this begins.
+
+### 2020-01-29 13:21 - why not just let people pay to access their own brain?
+
+last night, it seemed like someone was designing some sort of harbour in my dream state. however, I felt very strongly during the whole thing there was a big flaw in the design. I tried to explain it multiple times in the dream state, which apparently activates my logical or conscious side to try and explain it well. every time I did though things got very confusing and they forced me back to something that I didn't feel was a good design.
+
+my brain is interested in turning people's desire into physicality. I too am a reality magician in that sense, but when I'm prevented from actually translating their desire accurately, it troubles me quite a bit. I woke up feeling pretty worn out by the whole thing. so, if you designed a harbour or some other resort-like water feature in my dreamstate last night, I believe there is a fatal flaw in the design. I cannot remember the details of the creation or the flaw, because they erase my memory.
+
+---
+
+however, this had me wondering when I woke up -- because everyone has this capability -- so, why not just allow people to pay to be able to access this area of ***their own brain***. if you want to use mine, then I'm happy to oblige, but then you should at least allow me to express my opinion on the subject.
+
+this reminds me of when I was doing web development, and the designers would get pissed off because they kept getting forced to make bad designs. they didn't want their name associated with the bad design because it doesn't represent their accomplishments as a designer. they would always say, "why don't you design it then; why do you need me?"
+
+I feel the same way about this. don't attribute this design to me. I don't want to be be attributed as the creator of this fatal flaw. let people pay to design their own bad designs, and leave me out of it -- or at least allow me the capability of expressing myself in the dream instead of shutting me down and throwing my mind into confusion over and over. all I wanted to do was to make the best designed version of this person's desire.
 
 # the end
 
