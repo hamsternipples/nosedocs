@@ -12335,7 +12335,9 @@ however, this had me wondering when I woke up -- because everyone has this capab
 
 this reminds me of when I was doing web development, and the designers would get pissed off because they kept getting forced to make bad designs. they didn't want their name associated with the bad design because it doesn't represent their accomplishments as a designer. they would always say, "why don't you design it then; why do you need me?"
 
-I feel the same way about this. don't attribute this design to me. I don't want to be be attributed as the creator of this fatal flaw. let people pay to design their own bad designs, and leave me out of it -- or at least allow me the capability of expressing myself in the dream instead of shutting me down and throwing my mind into confusion over and over. all I wanted to do was to make the best designed version of this person's desire.
+I feel the same way about this. don't attribute this design to me. I don't want to be be attributed as the creator of this fatal flaw. let people pay to design their own bad designs, and leave me out of it -- or at least allow me the capability of expressing myself in the dream instead of shutting me down and throwing my mind into confusion over and over[^1]. all I wanted to do was to make the best designed version of this person's desire.
+
+[1]: they do this all the time, to try and prevent me from becomming conscious in the dream state. I understand their motive, but they're undermining the person paying fow the design by doing it that way.
 
 # the end
 
