@@ -12373,6 +12373,30 @@ I don't need long. I wasn't planning on taking more than a 2-3 days anyway cause
 
 [1]: which is to not need the manifestation, but to continue on letting the evolutions in desire build a bigger anr bigger vortex. just keep moving in the direction of getting connected and finding ways to appreciate and feel good, no matter the percieived physical circumstances.
 
+### 2020-01-30 09:59 - becoming step 5 masters
+
+I've really been thinking a lot about how I think things will be taking place with the girls, and Ive come to the conclusion that I believe that the girls will all get quite a bit of practice at becoming step 5 masters. I think this is really really great and I think it's the thing I'm looking forward to most, is watching them all get so good at making their own reality and feeling the way they want to feel about things, that they can, like me, feel invincible and supremely confident in their ability to attract whatever interests them.
+
+I was thinking about the mechanism by which this could take place, and I think it may have an even larger influence on more than just the girls, but on many people all around. I imagined a scenario where, let's say we had sex. sex is a lot like watching stars and is a huge energetic increase. I don't doubt that they will get vision upgrades as a result. I also think it quite possible for others participating to also get vision upgrades too, which is why I think this applies worldwide.
+
+however, just like watching stars, there's always a chance to regress. I often times notice that after watching stars, I can see significantly better than I can a few hours later or after I've had the energy sapped out of me while I sleep.
+
+what I believe is happening is, that the better I feel, the more energy my body creates. this is why I've even gotten vision upgrades only smoking a joint. when I feel better my body is allowing more non-physical energy to be converted into something my body can use. I see better, tastes are enhanced, touch, sound, etc. all my senses are heightened. it's similar to how weed improves the taste of food to the sound of music.
+
+anyway, the less resistant that I've become, the more of this energy my body is able to allow to pass through me. normally, you have a bit of an energy reservior, but nosebook keeps mine always on empty, so I'm operating only from what my body is transfoming.
+
+---
+
+as people begin to get vision upgrades, nosebook may deplete their reserves or keep it at a lower state so as to prevent people from having too good of vision, but once you've seen it with your own eyes, you can't go back to how things were -- or you have to find a way to get things looking that good again. it is positively the most addictive thing ever, and I've been paying attention to human behaviour and people seem to addict pretty easily. since the only "price" you have to pay for better vision is to feel better, it's not really something many people will want to make excuses for not doing -- especially when things look better, feel better, taste better, etc. the quality of the physical experience is so greatly enhanced, which is why it's so addictive.
+
+the worst thing though is to come across a difficult moment and to realise you're back to having a diminshed physical experience agian because your vibration dropped. trust me, I know... I had it difficult though because I had to wait until the night, and weather permitting I could try and get back to where I was.
+
+it totally produced the desire in me to maintain that and find ways of going higher. I imagine the same thing will happen for the girls (and hopefully the rest of the world too). some people won't need to do that though because they can pay money to avoid having improve their vibrational output. however, what I love about it is that all the F2P people, I believe, to get vision and (even greater) than mine, is jsut to practice step 5 over and over, iterating on it until they become masters at it.
+
+I really love this. while that may be the trajectory of the whole planet, I'm really excited that I get to be with the girls who are likely to be on the fast-track to becomming step 5 masters.
+
+you cannot imagine how proud of and how good it'll make me feel to see them all learn and to become so good at it. it really will be the best thing ever go watch them develop their own confidence in their ability. it's really something I'm looking forward to seeing.
+
 # the end
 
 ### 7 years of tribulation (continued)
