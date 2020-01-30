@@ -12339,6 +12339,40 @@ I feel the same way about this. don't attribute this design to me. I don't want 
 
 [1]: they do this all the time, to try and prevent me from becomming conscious in the dream state. I understand their motive, but they're undermining the person paying fow the design by doing it that way.
 
+### 2020-01-30 09:06 - disturbance in force
+
+last night was paricularly difficult to achieve vision upgrades in comparison to the last week. addiionally, I had an experience where tey cut out my consciousness, and I returned back ... wait, before that I had an impression from amber's daughter and I began to think about it. anyway, when I came back to consciousness I was very disoriented (this is quite normal because they drain my energy while I'm gone and when I come back I tend to have a much more resistant feeling, probbly from the people inside of my head while I'm out). I felt like I was forced to respond to something and I said (I can't remember exactly now because I was so disoriented) something to the effect of "sure" (in reference to amber's daughter), and then I said, "I hope that's the straw that breaks the camel's back" -- which I thought was really weird.
+
+I was extremely unfocused and I was making no progress with the star, so I began to focus very intently again and as my mental state began to feel better, I realised that there was this whole bad feeling surrounding the whole thing. you see, earlier that night and right before I left, I was thinking about what riann said when she asked me if I got the right timeline out of my acid trip. I was thinking abou how even if everything falls through, it's still stronger desire, and knowing what I know now[^1], that's a really good thing, so worst physical manifestation case, I will have an unbelievable amount of increase in desire (making it te best vibrational manifestation case). and in the best physical manifestation case, it's going to be ridiculous. so really, either way is really good, so I am indeed sure that I made it out of the timeline well. however, I did give quite a bit of my attention to what it would be like and how strong the new evolution of desire would be if it all fell through.
+
+so, when I said the part about the straw breaking the camel's back, I was seeing how this could be an attempt to try and make too many be the straw that breakh the camel's back (and makes it all fall through).
+
+I was able to get back to focusing well, and got another vision upgdade. I'm now getting my senses back and I realised I just made a decision in a disoriented state, where I clearly was unfocused and didn't feel good, plus I had been giving my attention to things falling through, made the camel's back comment and it definitely felt like I was forced to say sure.
+
+I recoiled at my folly and reverted my decision saying that I'm not going to say it won't happen, but I don't feel good about it and I'm undoing the decision until I'm connected and I can correctly assess the situation with a clear head. I figured it had to be some form of manipulation.
+
+---
+
+I'm watching the sunrise now and the reactions (probably from their official statement in the news) is telling me that they weren't manipulating and it was a real inquiry... suree, I thought, I don't really believe that.
+
+I gave it some more thought when I got home, and it's probably a little bit of both. it wouldn't really surprise me, if they were.
+
+continuing on with the sunrise I realised that my decision to and hold off making a decision until I'm connceted conflicts with their plan. seems what they're trying to do is to not let me get connected until I'm with the girls, so they can use the girls to keep me occupied and use them to try and steer me.
+
+I'm not having anything to do with that. I'm going to continue on star watching and stuff until I'm connected and can fly. I plan on taking a little bit of time to get my head in fully working condition, practice feeling the feeling that I want to have when I'm around the girls and to actually explore my capacities for a little bit. I also want to fly to machu picchu and star watch, fly to gizah and star watch on top of the pyramids, etc.
+
+I really want to have some time to explore my capabilites and get accustomed to them before I enter into the non-stop action that I'm sure it'll be. I really want some time to do my last bits of personal development before launching off into action. feeling must always proceede action for me, because feeling is essentially the direction I'm heading, and if I were to just jump right from where I am now into the new experience, I'm going to drag all of the stuff I've got going on right along with me.
+
+---
+
+they obviously don't want that, because they want me in as diminished state as they can have me. I don't mind the challenge at all when it's just me by myself. I'm confident that there's nothing they can fling at me or no dimished state they can put me in, which I'm not able ot regain my direction.
+
+with the girls, things will be a lot different. I won't just be able to go watch stars for 5 hours when I'm unsure what to do (like I can now), and I'll have a lot of different people pulling me in a lot of different directions (not to mention all of nosebook's steering). I do not in any way feel confident in my ability to continually regain my direction. historically, any relationsips I've had, whether it's zaryn wanting me to go drink with him or whatever, I quickly spiral out of control. I abosolutely need to go and find some alone time in order to regain my own feeling and my sense of direction agsin. this is essential. there's a really good reason why jesus often time separated himself from people and went to be alone. I understand very very well why he did that.
+
+I don't need long. I wasn't planning on taking more than a 2-3 days anyway cause I really am quite looking forward to this whole thing and really want to get started.. when I can fly, it won't be much of a thing to fly over to gizah for the night or wherever I want to go (I'm pretty sure machu picchu (or other places in the andes) will be my favourite getaway location). heck just flying up to the top of mt. wilson (in LA) will be good enough because of how quiet, serene, and how good it feels. I'm definitely going to be doing some exploring, but a lot of that can easily be done with the girls (I will likely accuire the ability to levitate things too, so I could pretty easily fly a few of them right along with me).
+
+[1]: which is to not need the manifestation, but to continue on letting the evolutions in desire build a bigger anr bigger vortex. just keep moving in the direction of getting connected and finding ways to appreciate and feel good, no matter the percieived physical circumstances.
+
 # the end
 
 ### 7 years of tribulation (continued)
