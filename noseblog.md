@@ -12397,19 +12397,21 @@ I really love this. while that may be the trajectory of the whole planet, I'm re
 
 you cannot imagine how proud of and how good it'll make me feel to see them all learn and to become so good at it. it really will be the best thing ever go watch them develop their own confidence in their ability. it's really something I'm looking forward to seeing.
 
-### 2020-01-30 14:53 - adam and eves dream
+### 2020-01-30 14:53 - adam and eves' dream
 
 I just had the weirdest dream. the entire dream was spent prepping for some coming unavoidable disastor. there were tons and tons of people running around getting suplies all ready for this time when the earth (judging by the supplies) would not have any electricity, so all aspects of modern civiisation wouldn't be functional any more. they stockpiled food, fire building equipment, and tons of necesary things to survive something that they expected would put the planet back into the stone age.
 
-it seemed there was this portal or something which people could escape into to go to another timeline or something. they also seemed to know the very exact momont it would arrive too, and everyone was preparing for it. for whatever reason, we were not prepring at all for it. I had the sense that we (me and the girls) were going to survive the impact of whatever it was -- some sort of mega energy boost or something like that.
+it seemed there was this portal or something which people could escape into to go to another timeline or something. they also seemed to know the very exact momont it would arrive too, and everyone was preparing for it. however, for whatever reason, we were not prepring at all for it. I had the sense that we (me and the girls) were going to survive the impact of whatever it was -- some sort of mega energy boost or something like that. obviously, the intention was for everyone to leave, leaving us to perish in the coming disaster.
 
-as it came down to the last moment, everyone jumped into the portal to leave the planet. it was really bizarre because the whole place felt empty and deserted. there wasn't anyone anymore on the planet. it was just me, the girls and the remnant of human civilasation (buildings, roads, and cities) all just there without any power. when they all left, I also noticed the air seemed to change as well. so many people were making the air vibrant and colourful, but upon their departure, instantly the air turned grey and kind of gloomy, sort of like a permanent overcast day (even though the sun was still shining).
+as it came down to the last moment, everyone jumped into the portal to leave the planet. however, there for whatever reason, the disaster never came or wasn't terrific. there just wasn't any electricity anywhere and nothing worked.. the whole place felt empty and deserted and there wasn't anyone on the planet anymore cept me and the girls. the remnant of human civilasation (buildings, roads, and cities) felt suspended in time, just there sitting there without any power.
+
+when everyone left us, I noticed the air seemed to change as well. when the plant had a lot of people on it, the air felt vibrant and colourful, but upon their departure, instantly it turned grey, lifeless and kind of gloomy, with grey tones everywhere like a permanently overcast day (even though the sun was still shining).
 
 it was just us. the whole planet had completely jumped ship and it was just me and what seemed like about 50-100 girls and a BUNCH of food supplies and stuff.
 
-it felt kinda weird, very eerie, lonely and also a bit fishy, because it seemed to me kind of weird how the whole planet got all of its people vacated from it. they had simply vanished. no bodies or clothing anyone was wearing or anything like that. just empty houses, buildings, and no electricity and a gloomy darkness everywhere.
+it felt kinda weird, very eerie, lonely and also a bit fishy, because it seemed to me kind of weird how the whole planet got all of its people vacated from it. they had simply vanished. no bodies or clothing anyone was wearing or anything like that were laying around. just empty houses, buildings, and no electricity and a gloomy darkness everywhere.
 
-it felt kind of like a setup too, as it felt intentional that we would be the inheriters of the planet and were to repopulate it and to build it back up from nothing.
+it felt kind of like a set-up too, intentional that we would be the inheriters of the planet and were to repopulate it and to build it back up from nothing. it also felt like somewhere else someone was monitoring us perhaps like some osrt of experiment or something.
 
 weird dream. I totally didn't anticipate that kind of an ending at all. the whole dream was so chaotic and fearful of the impending doom that it was surprising, not happy or sad to find ourselves alone like that.
 
