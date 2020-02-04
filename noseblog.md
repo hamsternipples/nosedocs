@@ -12444,6 +12444,46 @@ I walked out to watch stars again, but this time thinking about maybe it would b
 [2]: because my dreams are so heavily controlled, I really wonder what dream they were *trying* to make happen, when it clearly went so obviously wrong. I also love this part about it so much because, you can try and change your circumstances or your environment all you want, but you drag your problems right along with you. so I only have to imagine now their own a new earth, thinking they've avoided the problem, only to find out soon enough that anoher very similar problem is heading their direction. meanwhile on the earth we were left at, which was going to have the huge disaster, the disaster never came. whether they tried to or not, they encoded into the dream, one of the most important principals: your problems are a vibrational reflection of the way you feel and you can change the circumstances, but if you don't change the way you feel, they follow you wherever you go.
 
 
+### 2020-02-04 10:39 - we're going wide
+
+following that previous realisation the other night, I began to think about the different feelings associated with the whole girls thing. I've begun to recognise the difference between a bad feeling and the guys at nosebook feeling bad about the thing. it's kind of a funny thing, because it was one of the biggest obtacles to my realisation of what is the evolution of desire.
+
+as I began to think about why I didn't mind so much the idea that it gets bigger, I began to see that maybe in the short-term it might be a little more difficult, but in the longer-term it's a huge advantage.
+
+one of the interesting reactions I was getting was that having more would create a sort of heierarchy amongst the girls (as if there wasn't already going to be one?). I thought about it because I don't really want to have a heierarchy either, so I wanted to find a solution. nature has heierarchies, but the solution that finally popped into my head was the way that I had experienced 6d. this is the plane above the emotional/conceptual plane, and in it, everyone is equal. there is separation between anyone. the only separation is what we would consider interest. this is where source lives and it's pretty much only "pure positive energy". the reason is easy to see, beign the midpoint, this plane is responsible for the improvement or finding the way toward what everyone/everything wants -- even the "bad guys".
+
+the incarnation of this energy that is on the lookout and is preparing the arrival of all that's wanted for everyone would be what abraham would call, the "inner being" -- or the really high frequenvy version of each of these entites. they're high frequency, because they're resonating with the person and everything that's wanted for them.
+
+so, because everyone cannot be everything, the separation that exists between these high frequency incarnations of everyone is essentially based on interest. my inner being, for example collaborates with the girls' and amazon's, and likely a lot of other people's inner beings on this plane to organise the path toward what is wanted[^1]. in order for this plane to function like that, there is almost no separation beween entites. you could not possibly lie because everyone's thoughts are public. you could not make an illusion either because all past, present, and future possibilities are known, too. it's a very shared space, with the only separation being each entity's "interest" in the improvement or expansion of something -- whether that something is a concept, an inanimate object, or a real person, doesn't matter, they resonate with (or are the vibrational existance of) that improvement or expansion of whatever it is.
+
+---
+
+obviously, that kind of knowledge isn't really available to us here on earth, but we do have something similar. all of the girls are going to be broadcasting, so in a sense there is somewhat of a shared form of perception already. it makes very little sense for the girls to try and lie or to make an illusion to get an edge on the other girls. as a result, I see it quickly heading in the direction that the only separation experienced between the girls will be based on their individual interests.
+
+as I approach 6d more and more rapidly, I think what I mean by this will become more apparent. even if nosebook is capable of preventing me and the girls from experiencing 6d visually/sensorally, we will still experience it conceptually (hold on to this thought, because I'm going to come back to it).
+
+I think it has already begun to happen actually. I think it began to happen when they originally put my form of perception in many people's heads. at first it was very chaotic having so many other people's thoughts in my head at once, but they have come up with ways to "block" other people's thoughts from physically manifesting in my brain like they used to. however, I still "felt" their thoughts, and it grew to be quite taxing on me, as the mental chaos was like a white noise of feeling which wasn't my own, (like the feeling I mentioned in the beginning, the difference between a real bad feeling and the feeling the guys at nosebook projecting in response to it).
+
+it really appears that we're all on the same frequency in that regard, and even if they can neutralise the physical manifestation of the noseboys thoughts in my mind, the underlying feeling still remains. they neutralise the physical manifestation of the feelings of excitement from the girls too. I really only physically "feel" their excitement for a brief moment before it gets neutralised.
+
+---
+
+so, what this means is, we're going to begin to gain a conceptual connection between each other, not so much a visceral physically manifested feeling between eachother (cause they'll neutralise those), and this will "train" (hehehe) us to learn to feel our own (higher frequency) emotions better -- just like I've had to do.
+
+it appears that we're going to have a shared form of perception. by we, I mean, the girls, me, the noseboys, and anyone paricipating in the experionces that is able to get on the frequency.
+
+---
+
+although they can neutralise stuff, it's clear to me tht our ability to be all on the same page will come as a direct result of our ability to feel the way we want to feel. they're going to make us so good at step 5, then later for those who want to really do it, follow me up to step 6[^2].
+
+I really think this is all working out perfectly.
+
+[1]: then, below that, you feel the conceptual difference between your present frequency and your desired frequency in your emotions.
+
+[2]: the one that you realise you are source energy in a physical body, and like source does, you have frequential access to anything you want[^3].
+
+[3]: it's funny how what I consider to be the 6th step is also directly related to 6d. and, likewise mastering your emotions seems to be the precursor to gaining 5d perception -- just like learning to allow (4th step) was the precursor to 4d perception.
+
 # the end
 
 ### 7 years of tribulation (continued)
