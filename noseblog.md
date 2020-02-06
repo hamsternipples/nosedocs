@@ -12484,6 +12484,38 @@ I really think this is all working out perfectly.
 
 [3]: it's funny how what I consider to be the 6th step is also directly related to 6d. and, likewise mastering your emotions seems to be the precursor to gaining 5d perception -- just like learning to allow (4th step) was the precursor to 4d perception.
 
+### 2020-02-05 20:59 - we're going wide (followup)
+
+I realise that some of the things I said in the previous entry were incomplete thoughts. I'll polish them up and get them out a little better soon. however, I wanted to mention some things in relation to some reactions I felt today.
+
+I had a general sense that a lot of people were kinda pissed at me for some reason. I don't really know what's up. I felt two things in the simple probing that I did, and they seem to be in relation to me making progress on the affinaties idea over the trucklord idea -- and also perhaps in response to my perception that this whole thing could possibly take years for them to finally get all of the things they need to try and control it all.
+
+first, I'm going as fast as I possibly can. there's a reason why they have to blow a snowstorm through with such tremendous fowce -- because I had gained so much momentum with my star watching that they were simply unable to nuetralise the energy levels during the daytime, and needed me to take a few days break so they could get things back to completely unenergetic levels. the evidence of this was substantial because I was even beginning to have images and lucid dream sequences just sitting outside in the nice sunlight the day before the snowstorm hit. they had to get pueblo back to a state of energetic stagnation again.
+
+I imagine that after watching my performance tonight, that they're going to have a really difficult time trying to maintain that kind of energy stagnation because I was able to get back to it relatively easily. this method of blowing a snowstorm will only last a few more months max (anyone ready for late april or early may snowstorms?), and from then on I think they'll let it go hot and try to keep me from star watching with the mosquito technique.
+
+still though, I don't think it'll be of much use because I'll continue to gain levels, and coming out of summer, we'll get to the fall equinox. I've noticed the spring/fall equinox is when energy is moving the fastest, and I seem to get my most substantial progress with vision upgrades around the equinoxes. so, we'll see then.
+
+following the fall equinox at the end of october, around the time of halloween there are some pretty incredible planetary alignments, and I've noticed those seem to have a pretty strong effect on my vision upgrading as well. so, they have a lot to be concerned about...
+
+in regards to my perception that things could take years has to do, not with my star watching performance. they have impressed upon me multiple times that they are capable of holding me indefinitely away from getting connected -- meaning, they just need to keep increasing the amount of energy, and that is apparently pretty much unlimited, so I look at it like I'm milking as much contrast juice out of the situation as I can. never again will I have such a time like this where my expansion and rate of improvement is so rapid. I really cannot explain how much I appreciate my circumstances now. I don't, at all, perceive my predicament as something bad, but as a kind of (train)ing (hehe) or like a workout exercise or something. I want to get as much as I can out of it and get as strong as I possibly can. I won't ever get this opportunity again.
+
+so, when I say "years" I am referring to the amount of time that I believe they need to meet their goals to try and get everything under control. I'm fine with them taking as long as they need, because it means more time in the dojo for me.
+
+---
+
+next, the whole thing about the affinaties vs. trucklord. I was trying to do the trucklord one, but I couldn't hook into the desire for its creation. there was no real actual desire for it, but it is something that I want to do. when I was working on the idea, I was really noticing its similarity to the old rondevu idea I was working on with zaryn, so it's possible that I switch from affinaties to rondevu next. however, right now, affinaties is really flowing for me and it's easy for me to line up with that desire (my own) to make this website.
+
+I want to mention that these sorts of things kinda come and go, and I flit about between ideas naturally working little bits on a whole lot of different things (they're sort of like how I experience concepts when I come back to revisit them and notice they've changed, evolved, and transformed into something much more than I understood it when I left it). ideas transform and evolve and I love working on a whole bunch of them at a time. so, instead of seeing it like I've abandoned something, instead recognise that there's always an ebb and flow to my creative output; it's never constant.
+
+next, I want to mention that this is really just practice for me sensing energy and lining up with it to experience its creation. I can't possibly imagine that I'm going to dictate to the girls all the different things that they should be doing. again, we're modeling this after 6d (the plane where source resides) and there everyone has shared perception, so to cut down on all of the chaos, cause it would be mega-information-everload otherwise, there, you only give your attention to the things that *interest you* -- and the girls will be the same way. there's going to be a whole lot of them and they'll all have their own interests in the things that's interesting to them. I do not want to direct them, instead, what I want to do is to detect their desire (what interests them), cause I'm really good at that already and line up with it, just like I'm learning to do with these different projects.
+
+then, you can easily transfer this into real physical reality easily if you perceive it sexually. the man is more like the plug (receiver of the energy) than the plug outlet. (it goes both ways though) so, I line up with the energy her interest (desire), and then the non-physical energy passes through her toward me. all I have to be is receptive to what she desires, and in the process, she also receives the same energy. it's the human counterpart to tesla's magnifying transmitter.
+
+all I'm doing is getting good at that, and the vision upgrades happening in the meantime while they're dragging their feet trying to control the uncontrollable, just mean my capacity to receive is getting expanded greatly. I'll expand more with the girls, but it'll have a limit to it because I'll be limitited by their expectations. right now I'm completely unlimited so I'm taking full advantage of my cirmcumstanmes to attain the most expansion -- which means later, it's just a whole lot more energy :)
+
+this is what I'm here for and what I'm really good at: being a reality magician
+
 # the end
 
 ### 7 years of tribulation (continued)
