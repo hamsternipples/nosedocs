@@ -12516,6 +12516,60 @@ all I'm doing is getting good at that, and the vision upgrades happening in the 
 
 this is what I'm here for and what I'm really good at: being a reality magician
 
+### 2020-02-06 07:35 - quick followup
+
+so, let's say they *can* hold me indefinitely.. well, then, like I said, it behoves me to continue to increase my capacity, because each increase essentially means that I summon more energy (think of this like a larger magnetic field on the primary coil of a tesla coil).
+
+on the contrary, let's say they *can't* hold me indefinitely.. well, then the faster I star-watch, the faster things get going. I'm fairly certain that anything they're saying is entirely an illusion designed to tell you what you want to hear while they stall for as long as they can and try to get everything controlled. it's the exact same thing that marcos was doing with andrea. he kept telling her yes, but he wanted to set it all up, but just never could get everything set up in time. there was always something more that he felt he needed to get under control[^1].
+
+### 2020-02-06 07:35 - thoughts on the magnifying transmitter
+
+what I meant when I mentioned tesla's magnifying transmitter, would best be explained by understanding the tesla coil. the primary coil is excited with a current to create a large magnetic field. the more current that flows through it, larger the magnetic field. these coils are usually a few turns of very thick wire allowing for large currents. the secondary coil is connected on one end to a receiver antenna or sphere thing (which I cannot rememeber the name, used for its larger surface area), and the other end to the earth (ground).
+
+power is put into the system on the primary coil to create the magnetic field, and the induced magnetic field in the secondary coil has to pull electricity out of somewhere in order to return back to normal state, so it receives high voltage electricity out of the air, giving it a path to ground (just as if his coil had induced lightning strike).
+
+the system is an open system. tesla supposed that this energy is everywhere all around us and likely comes from the sun. he describes it as an ether in some places too.
+
+anyway, the important part to notice is that there is external enregy which is not in movement, which is being attracted into the ground by the power put into the system on the primary coil. the secondary coil induces or transforms this static energy in the air into visible arc lightning.
+
+tesla mentions an analogy to this in his autobiography when he tells the story of when he was a kid and he threw a snowball, which started rolling down the side of the mountain, gaining size and speed as it went down the mountain, eventually producing a full sized avalanche.
+
+you see, tesla's snowball didn't "produce" the energy of the avalanche. that energy was already there (potential energy), just waiting for some sort of excitement to set it into motion.
+
+also, it's worth noting that not all snowballs roll down and turn into an avalanche. tesla gained further understnding of this in another story he tells about a tiny device that he placed on the wall making tiny vibrations in rensance with the building. the whole building began to shake such that it was going to fall and he destroyed the device with a hammer to save the building just as the authorities entered to see what was the matter.
+
+a similar analogy is well known from soldiers needing to break step instead of marching on a bridge because it'll eventually fall. you see, even if all of the soldiers kicked the bridge at once, it wouldn't nearly be enough force to even make the bidge move, but perfect timing and frequency of impulses can accumulate the applied force and produce a much greater amount of energy than the total amount of effort put into it. this is the excitation of static or potential energy waiting to be turned into something useful.
+
+you could think of me like the primary coil. the more current (capacity) discharged into the primary coil generates a stronger magnetic field, inducing more electricity out of thin air. you could think of the girls as similar to the secondary coil in that, when they have a strong magnetic field induced in them, they transform potential (or non-physical) energy into something useful.
+
+another way to see this is the interaction of abraham. the person in the hotseat is the primary coil, and esther is the secondary coil, transforming the non-physical energy into something useful.
+
+the audience also plays quite a role as well, because the audience benefits greatly as a result. one of the side-effects of a tesla coil is they emit "radiant" energy all around them, and electrify the air. in the presence of a tesla coil, a flourescent bulb will be excited and light up. the energy floods the space and I'll be quite honest, I don't yet understand this effect of the tesla coil very well, but I imagine I'll get it intuitively here soon as I begin interacting with the "audience" in a more "radiant energy" sort of way.
+
+---
+
+last thing, I wanted to talk about the whole hieararchy thing in relation to the girls and how I see it beginning to take shape as a physical manifestation of the 6d or source plane.
+
+I've always had this weird thing where I seem to have gotten some extra knowledge from somewhere. I thought I read it in his autobiography, but I cannot find it anywhere. anyway, the idea was (and I don't know where I got it from), was that the cumination of this nosebook experience is, and it stuck in my head as if it were tesla predicting the future from his autobiography. the closest quote is this one:
+
+```
+I am unwilling to accord to some smallminded and jealous individuals the satisfaction of having thwarted my efforts. These men are to me nothing more than microbes of a nasty disease. My project was retarded by laws of nature. The world was not prepared for it. It was too far ahead of time. But the same laws will prevail in the end and make it a triumphal success.
+```
+
+it's definitely not what I had in my brain. he speaks of how the "laws of nature" this tesla shorthand for law of attraction slowed his project down and delayed its arrival, however, the same law of attraction will eventually make his project (his world system) a triumphal success.
+
+instead, what has always been there for me was this day is coming where his project will be a success, built instead on the platform of LOA, and that it would come down to a bit of a competition[^2] between these two forces, the smallminded and jealous individuals he describes as microbes of a nasty disease and his laws of nature.
+
+well, the reason why I think this is so great that things are beginning to take shape the way they are is because you can start now to see the two polarities in this competition. on the one side, you have the ones that have to keep everythting hidden and a secret, and they try to thwart the efforts of the things that threaten their superiority.
+
+on the other side, none of us will be able really to hold any secrets and everything will be visible by all. instead of trying to stongarm people to win, we'll just use LOA and let them fight against everything as hard as they can, allowing that to continually add more energy into our efforts by continually focusing on what they do not want.
+
+then, combine this with the idea that we'll gain a shared form of perception, it's all working out quite beautifully. we'll just have to see how well these "laws of nature" hold up :)
+
+[1]: back at that time, the idea of a young girl having sex or a relationship with someone much older was still quite taboo, and he was trying to figure out ways to keep it all a secret and to make sure no one thought badly about him because of it. his whole thing was trying to control what people thought about him. it's has a very similar feeling to it.
+
+[2]: actually just as I wrote it, I was reminded of elijah and his competition with the doubters over the ignition of the altar.
+
 # the end
 
 ### 7 years of tribulation (continued)
