@@ -1,12 +1,29 @@
 # my failures
 ## autobiograpgy of kenneth bentley
+
+
+
+
+    "we don't make mistakes, just happy little accidents" - bob ross
+
+
+
+
+dedicated to heather, because one day we talked about how she had felt something really amazing for herself. I told her I too had also had some crazy experiences that made me feel something similar. I encouraged her telling her that it *is* a real thing, and becasuse she felt it so strongly, universe wants to prove that feeling as she felt it to be, if she'll let it (something like that... revisit!).
+
+also, I want to additionally achnoledge riann for prompting me to make an autobiography. withoug that, I would have never written such a thing -- and also for bringing such intuitive and inspiring content to the various brain injury group meetings.
+
 ### forward
 
-I promised riann that I would write my autobiography, and that I would do it from the perspective of my other hemisphere. however, after some thought, I decided against this format because I would have to make up a whole lot. I simply do not have access to my other hemisphere anymore. I imagine that there are a lot of people who interact with that hemmisphere, and could much more accurately tell what that personality is like.
+when I promised riann that I would write an autobiography, I told her I would do it from the perspective of hemisphere that had the brain injury (the right one). however, after some thought, I decided against this format because I would have to make up a whole lot. I simply do not have access to my other hemisphere anymore. I am certain that that there are a lot of people who interact with that hemmisphere, and could much more accurately tell what that personality is like...
 
-so, because I don't really know what my other personality is like, I have instead decided to write it more from a perspective of discovery of what that personality is really like. I still have yet to really know, so it'll be interesting. usually, an autobiography is written at the end of someone's life, to kind of summarise the experience that person has gained during their life. I consider this a fun idea, because I will consider this to be what is in fact happening, and to some extent it will summarise the discoveries I have made in the process of all of this from kenny's perspective kind of like an end-of-life sort of look in the mirror.
+so, because I don't really know what my other personality is like, I have instead decided to write the autobiogragraphy more from a perspective of discovery of what that personality is really like. I still have yet to really know, so it'll be interesting.
 
-I feel I am going to eventually become conscious in this other personality, and it'll probably overtake the one I'm currently conscious in. however, I don't really know what to expect, and neither do I really want to put too many expectations either, so instead of risking sounding like I'm making this entire thing up, I have decided instaed to write this from the perspective from which I am conscious right now (kenny's) as if I am discovering this new personality that has been embedded inside of me.
+usually, an autobiography is written near the end of someone's life, to kind of summarise the experience that person has gained; I consider this a fun idea, because I somewhat intuitively believe this kinda similar to what is in fact happening -- and so, to some extent, it will summarise the discoveries I have made in the process of all of this from kenny's perspective kind of like an end-of-life sort of reflection on it all.
+
+I feel as if I am going to eventually become conscious in this other personality; how soon, I don't know, but I do feel as if I am approaching the end of my consciousness through the perspective of kenny. it'll probably overtake the one I'm currently conscious in and because it'll be so much more different than the road I took to get there, I believe all of these sorts of past things that I'm going to talk about will no longer be relevant to me in an experiential sense, and their memory will become something of such a distant thing, kinda like childhood memories.
+
+however, I don't really know what to expect either, because the guy you guy conscious in my dream state may be completely different than I am. I just don't really know -- and neither do I really want to put too many expectations. so, I have decided it would be the best "mistake" to write this from the most nitty gritty perspective from which I am still conscious right now, as if I am retelling the journey I took to discovering this new personality that is beginning to take over.
 
 not all of the information will be factual, because I simply cannot be hassled anymore to try and work out what really happened exactly -- and I'm not concerned very much with the details, either; because, in the end, the only thing that matters is, the concept that remains in your mind from the experience -- that is, how you feel about the whole thing. that feeling can (and should) be modified pretty easily by redefining what things mean in the memory to change how it feels (or rather the concept associated with it).
 
