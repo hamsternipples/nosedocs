@@ -12570,6 +12570,34 @@ then, combine this with the idea that we'll gain a shared form of perception, it
 
 [2]: actually just as I wrote it, I was reminded of elijah and his competition with the doubters over the ignition of the altar.
 
+### 2020-02-10 23:34 - dream about losing land
+
+I woke up from a dream just now which I think illustrates a lot of important interactions.
+
+in the dream, there was a ruler of a very energetic land that valued the land very higly and was very scared of losing it -- like let's say the pharoahs being scared of losing the great pyramid. it wasn't exactly that. I don't know what real land it was.
+
+anyway, his ruler that was scared of losing his really energetic land kept attracting, because of his fear of losing the land, a number of different invaders trying to take his land from him. he figured out how to militarily keep the invaders away, but his fear of losing the land persisted. one day, a meteor came out of the sky and took his land away from him. it caused quite a bit of destruction.
+
+there whole earth was affected, obviously. others around the earth could look at the present situation and take on the victim mentality saying, "we shouldn't have to pay for that ruler's sloppy thinking" -- or, they could, like job in the bible, when calamity strikes him to maintain a steady vibration about his abundance, and watch everything that had perished in the calamity be returned to him twofold (or more).
+
+---
+
+let's put this into real terms, because I think this dream was important. the obvious parallel is nosebook being scared of losing its power, physically controlling things to maintain that power, then when their fear accumulates to a geater vibration than people's desire to have electricity, a massive solar flare will occur, or some comet or asteroid -- or whatever, something completely outside of their control.
+
+the other not so obvious parallel would be what is happening right now. it feels to me that there is a feeling that there are "too many" girls now. I don't really know where it comes from, but it doesn't matter. seems there are a lot of people affected (paying the price?) by nosebook's sloppy thinking (or wherever the "blame" should be placed, it doesn't matter).. what matters is, to maintain a steady vibration about what is wanted no matter the circumstances..
+
+I think it's just fine actually. I don't think "too many" at all. it's just going to be a bit different from what was previously expected.
+
+---
+
+another great example that I can speak about now with hindsight is the tuenti event. zawyn would constantly be worried about facebook translating and coming to take over the spanish market. they did, and today, no one really knows about tuenti anymore..
+
+you could say that I paid for zaryn's sloppy thinking in that regard. I did in fact, greatly because for a long time I thought that tuenti was my one big opportunity and because of lots of difficulties I missed my opportunitity. I drank a lot of alcohol trying to figure that out as a result. not the best solution.
+
+instead, if I had of, like job, maintained my own vibration of ever expanding expression of my creativity, they I would have come out quite quite a bit more fortunate from the whole experience, and would have had a greater increase in my creative expression -- but you guys wouldn't know me, and I wouldn't be writing this now.
+
+so, even if calamity strikes and you (like I did), take the victim mentality for a while, it's still not a problem because it's just increasing the amount of energy into the equation. all you have to do is (like I did) to get your focus off of being the victim to someone's whatever (sloppy thinking, intentional harm, or whatever) and refocus toward things that feel good, reducing the number of angery moments, feelings of depression, and stuff like that, it starts to clear up. once you can steer the way you feel, no external circumstance can ever make you different than the way you want to.
+
 # the end
 
 ### 7 years of tribulation (continued)
