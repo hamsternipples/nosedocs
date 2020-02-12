@@ -12610,7 +12610,7 @@ you can and should let that emotion transform, especially as time goes on, becau
 
 once you've got it, just hold that and let reality prove that feeling as reality to you. don't worry about the physics or anything else like that because in the end, the whole thing was about you wanting to feel like that in the first place.
 
-if you can accomplish that feeling, you got it what you were looking for. 
+if you can accomplish that feeling, and can get there whenever you want to, you definitily got what you were looking for. 
 
 [1]: I know this to be true, but just now as I was writing it, I was thinking about how it's common in a love relationship for that not to be the case. the creative projects that I'm really interested in seem to gain conceptual and emotional momentum though. I think the secret here is to not look at the physical, and instead keep the frequency held on what's wanted. often times in relationships, the good feeling part is in the beginning before all of the physical excuses to feel bad about it come. instead of perceiving the physical reality and letting those be an excuse to lose that initial feeling, just hold on to it strong, no matter the physical reality. after all, it's you that feels that great still, no matter what the other person feels like.
 
