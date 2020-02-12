@@ -2,6 +2,7 @@
 
 I decided I wanted to begin writing things down. I'm going to try and do a quick blurb here so that I have a bit more context. it seemed like I wanted some way of organising my thoughts a bit more than the twitter way, and still have a bit more context for me to remember things with. I've gotten to the point that remembering what happened a week earlier not only feels like about a month has passed, but I find it rather difficult to even conceptualise how things were so long ago. this will hopefully give me the reference point I need to help me remember how things were so long ago, a bit easier
 
+
 ### 2018-07-27 03:31 - solution orientation
 
 I woke up this morning and my heart felt better than it ever had. I also felt (strangely?) at ease too. it seemed like I was able to feel some sense of love being extended to me from the girls as well.
@@ -11,6 +12,7 @@ the night previous I went on a bit of a tirade about the bso being the new world
 this brings up small tangent I want to explore quickly about how I have noticed that my emotion is not just a simple indicator based on good or bad, or right or wrong direction (like abraham would like us to believe with their gps analogy) in meaning -- but actually the emotion is the indicator of the direction that (given my current state of being) will eventually (after the contrast clarifies and grows the desire a bit more) be the better direction. this has really allowed me no longer need everything to be always right or always wrong. it even seems to suggest, that often times doing "wrong" things actually creates a better and more powerful result.
 
 so, perhaps one of the reasons why everyone's inner beings were so exhilarated about the prospect of joining the bso so these guys could be the new world leaders, is exactly the same reason why I was inspired to head straight into doing a lot of things the "wrong" way.
+
 
 ### 2018-07-27 04:18 - solution orientation
 
@@ -28,9 +30,11 @@ or, take for example the subject of my heart. when I wake up the middle of one o
 
 which leads me to believe that since viewers are having that "dream" experience, the removal of the restriction on my heart like that, may be one of the requisites to seeing my imagination in 3d space.. so, perhaps they've been messing with my heart cause they don't want me to be able to create things with my imagination in 3d.. interesting idea. either way, the use of my imagination in 3d has been my most sought-after capacity, and is something I want more than the ability so see images in my eyes, so whatever the reason may be, I want to have a discussion so that we can solve the problem. whatever all of these hangups are that are preventing them from allowing me to utilise my capacities can be solved. there is no problem for which a solution cannot be found. there is a way for me to be able to utilise my capacities and not interfere with the bso's objectives.
 
+
 ### 2018-07-27 05:02 - the strict no religious ideas policy
 
 the reason why they do not allow the "guides" to utilise religious ideas as the basis for their help for these autistic children is sort of obvious if you think that perhaps a lot of this "help" has not been solicited. in fact, if the help were chosen by the one being helped, there would be no problem if it contained religious material -- and in most cases even, for a religious person, religious material (of their religion) is both more comfortable and more trusted. so, this leads me to believe that this "help" is unsolicited, which is reason for the strict no religious ideas policy.
+
 
 ### 2018-07-27 10:58 - why not wait?
 
@@ -42,6 +46,7 @@ after that, I had a thought that maybe all of this is connected to the whole sta
 
 it was just a crazy thought, but it had the same feeling in it that I get when I want to reject their money. they want me to believe that I need them to do for me something I am incapable of doing myself (earning my own money). every where I turn there is rampant disempowerment were the bso wants people to give up their own connection to their emotions (another reference to an abraham I heard last night where they went out of their way to say that you cannot turn off (BSO!!) someone's emotional guidance).
 
+
 ### 2018-07-27 11:57 - inception
 
 I was just thinking about how (and it could have been a reaction), this blog could be seen as my attempt to spin a huge web of conspiracy theories. since it is unlikely that the bso will ever actually attempt to correct any false ideas, they will continue to get bigger making self-reference to my own ideas and building on them, allowing me to believe crazier and crazier things. it could also be seen as me trying to manipulate the bso into coming clean on some pretty big questions that I have.
@@ -51,6 +56,7 @@ neither is true. what you know is I don't trust them anyway. they would just tel
 furthermore, my mind is extremely plastic. I can release a lot of these false beliefs super easily. in fact, writing this blog, I'm noticing, is actually an informative experience more than anything because of all the reactions I'm receiving. it is a very crude way of beginning to collect a lot of emotion around the situation as a mens of perceiving the hologram clearer by getting more angles of perception. I have no desire for the bso to try and set me straight on these ideas. in fact, if they tried to reassociate or change my mind on them, it would probably make things worse. when I want to change my mind, I will change it myself (even if I wait to do it from another timeline)
 
 the real thing that I desire would be to clear up a lot of these ideas with infinite intelligence. this has sort of been my goal for a long time, and the original reason why I wanted to begin translating infinite intelligence in a meaningful way, in tho first place. I suppose my ultimate goal will be to find a way of having a conversation with infinite intelligence about a lot of these things, *without* the bso able to listen in; I want the answers to be something meaningful to me, and not answers that have been tailored to be acceptable to more ears. I am really desiring to ask a lot of deep questions, taboo questions, and revealing questions. I sort of resent abraham for catering to so many noobs. I want a way of getting that information for myself and not needing esther or anyone else to do that translation for me either. they say I'm an extension of source energy... well prove it. I'd like to feel connected to that depth of understanding and no longer restricted to the lcd of human perception.
+
 
 ### 2018-07-27 12:43 - why manipulate?
 
@@ -62,6 +68,7 @@ in the situation I am in, there is disharmony because I do not want to be disemp
 
 instead, I have recognised the satisfaction factor of identifying a desire and moving in the direction of it, without needing anyone else to be different so that I can obtain it, and that feels really good. I also have a new sense of stability that I haven't ever had before. it's quite a trip realising one's own power through the focus of his or her own mind.
 
+
 ### 2018-07-27 00:00 - is the bso as a for-profit corporation?
 
 yesterday morning I woke up with this idea and it seems that it may be a convenient way to explain a lot of their behaviour. it can't explain all of it, so just take what I'm saying here with a grain of salt. additionally, what could be happening is previously the only way to explain their behaviour was real actual malicious intent, and this entry is a bit of a way for them to begin pivoting their intentions with changing their behaviour.
@@ -69,6 +76,7 @@ yesterday morning I woke up with this idea and it seems that it may be a conveni
 first of all, it seems that the bso has this really convenient thing where they can be a for-profit corporation when they need to pay bills and keep the machine going, and people accept it without question (I guess the need money to pay bills and keep the machine going is a very resonant thought for most, so they commiserate with the bso in their need) yet at the same time they are also somehow the authorities.
 
 (will expand further in the future)
+
 
 ### 2018-07-28 23:34 - timeline stuff
 
@@ -88,11 +96,13 @@ so you can imagine that in each of these timelines there the success of the enco
 
 that's as far as I've gotten in my story up until this point because it's hard to conceptualise it all, but I believe that the future is that we all can learn (maybe some will not want to) that each of us is the creator of our own reality. I believe that our perception of time  and the way consciousness flows through it, will change to something I cannot perceive yet. it's gonna be really really cool.
 
+
 ### 2018-07-29 01:43 - future timelines?
 
 if you think about this from the bso perspective, imagine that it's 2038 now and you're some guy working at the bso and you notice that in all of the different instances, I am the one that creates the technology necessary to do the timelines, so you could imagine that it would create a lot of desire to develop this technology and not rely on me. you can also imagine from their vantage point how valueable this tech would be. instead of experimenting with people on this timeline, you could actually run the experiments and then tune into a later time on the timeline to get a good estimation of how it worked.
 
 the only thing necessary to make this a reality, would be to get the bso into a 100% pure reactionary system of decision making. essentially, they respond exclusively to external forces. they're pretty close already to being that, which means that they can become the new backbone of the timeline. at the end of the next timeline (not sure yet what that would be), they go back and influence themselves away
+
 
 ### 2018-07-29 09:48 - more on reactions & timelines
 
@@ -108,19 +118,23 @@ further into the future, as the bso begins to learn how to influence itself in i
 
 the idea of the clones is an interesting one to me because it allows for a pretty significant evolution; something I will dedicate a future discussion to.
 
+
 ### 2018-07-29 15:07 - emotional reactions
 
 I have used the word reaction to mean one of two things. I don't really mean reaction in the physical sense. I mean a reaction in the emotional sense. when people observe things, they have thoughts about them. I feel this thought "reaction" in my emotions. I think we all do, I just have practiced it a bit more. any time anyone thinks a thought, that person has an emotional response to that thought: an internal reaction. I used to have the sensitivity to know if the thought or the emotion/reaction came first. this is largely how I could identify the emotion as my own or someone else's. I'm working on regaining that sensitivity again. however, I do not know if what I feel is the emotional response the other person has or if other people's thoughts produce emotions in me. there is much to be learned about this, and likely the bso will want to keep anything they find out secret, so I'm still in the process of regaining that sensitivity again so I can begin to make sense of the tremendous amount I feel.
 
+
 ### 2018-07-29 15:17 - physical reactions
 
 the other type of reaction is a action or thought taken as a response to physical stimulation, communication, or conditions I'm observing or experiencing (everything a bso experience can offer).
+
 
 ### 2018-07-30 15:56 - more on timelines
 
 a little bit ago I briefly mentioned an idea stating that the bso would probably want to try out different timelines, in effort to discover more things. so, I was thinking that since they are potentially getting so many of their discoveries out of my dream state, it may behoove them to try out timelines where I am feeling better and better, so that my dream-state ideas are richer and richer. additionally, you can also imagine that since I seem to be inspired to different discoveries by different people, it would also improve upon the diversity of those discoveries when I am around a more diverse set of people.
 
 this is potentially what is happening. more different girls means more different ideas. kind of exciting actually.
+
 
 ### 2018-08-01 02:32 - bso from the future?
 
@@ -129,6 +143,7 @@ one of the most potentially unsettling (not the right word) consequences of the 
 1. alt-me is working with the bso to make this timeline occur in the way it is. that implies that alt-me sees enough value in the "co-creation" to justify (not exactly the right word) my involvement. it must mean that there is some sort of presently unknown, and soon to be discovered new thing.
 2. the bso has figured out how to navigate (tune into and follow) timelines. this implies that they are capable of "peeking" into the vortex of someone (in this case, mine), which means they have the capability of tuning into source energy in a way which can give meaningful results (the idea I first revealed publicly to mom's friend, don). this provokes a few more questions, obviously...
 3. (can't remember it now. gonna go watch stars)
+
 
 ### 2018-08-01 03:39 - more
 
@@ -139,6 +154,7 @@ I was reminded of the one abraham episode where the guy has many ideas, and abra
 whatever man, in loving memory of augusto: my ideas are free (libre y gratis).
 
 though they feel to me like the offering of my ideas = freedom, I cannot really explain it, especially since so many of my own ideas and explanations have been used by the bso to limit my own capabilities. it's mind blowing to me how much I've helped these guys improve their capability to limit my capabilities so much. in that sense, I don't really understand why it feels like freedom. I guess I don't really think of it that way though...
+
 
 ### 2018-08-01 04:10 - why do my ideas feel like freedom to me?
 
@@ -151,11 +167,13 @@ it also seems to mean that:
 2. ideas are somewhat similar to economics in the sense that the more times money changes hands in a given period of time, the richer everyone feels. (where money = ideas, and changing hands = revealing the idea)
 3. the guarding and protecting of ideas, means the stagnation of their flow (similar to economics too)
 
+
 ### 2018-08-01 05:42 - what is source energy for source energy?
 
 (question for infinite intelligence)
 
 if our brain is composed of billions of physical atoms, yet transmits and receives non-physical "source energy" -- then, source energy, being composed of innumerable non-physical thoughts that each themselves think, what is the non-non-physical "source energy" that source energy transmits and receives?
+
 
 ### 2018-08-01 05:56 - what just happened?
 
@@ -172,6 +190,7 @@ I can't figure out why I feel so compelled to just go for it. I'm still pretty f
 I'll be feeling it out and stuff, so save any mega game-changers that could happen in the next 2 weeks before I go to see megan, I'm just gonna go with it. there's really no way I can fight it, I don't really think I want to to get any bigger, and this timeline idea really took a lot of the edge off. though it still is a bit of me relying on someone else, the bigger picture seemed to have help soften that internal alarm. besides, I don't believe they'll be able to contain the levels of energy that will become normal for us.
 
 so, that's the plan for now... good night
+
 
 ### 2018-08-02 01:46 - hodlgang
 
@@ -201,6 +220,7 @@ is the second situation likely to cause others to attract the bso to limit their
 
 I've done a fair bit of problem analysis in this entry. however, it's my objective to try and find solutions. it seems like there could be solutions which could be found out. obviously I have no idea where to even begin, as I cannot figure out what possible problems my visual capacity could present my viewers. how can solutions be found?
 
+
 ### 2018-08-02 03:29 - my vision
 
 it is becoming more and more notable all the time that perhaps what I am seeing in my eyes is not what my eyes are seeing, but perhaps an overlay of some sort? perhaps they are taking the signal from my eyes and then feeding it into my lenses, so that it overlays the real image that I would be seeing. perhaps, it's to cover up any 3d objects I may see in 3d space, like I saw that one time of my future self. I wonder what sorts of other things are popping in there which I cannot see. obviously this is a pretty important thing for me -- actually the ultimate quest was to be able to make motors in my imagination like tesla, so perhaps I already have that capability. that may also explain why the lustre of the image is gone and it feels so lifeless. they're keeping me at low levels of dmt on purpose...
@@ -211,15 +231,18 @@ oh, so if the reason why they began to retransmit the image into my eyes was sin
 
 that's why the whole world seems so slow now too, like I'm limited to 60 fps or whatever, when previously I did not have fps. and my reaction time feels sluggish.
 
+
 ### 2018-08-02 04:21 - wtf?!
 
 I don't really feel any real desire right now toward anything in particular. I think I feel pretty depressed. it's not the typical despair that I usually feel. I just don't really want to deal with these fools. I listened to a few abraham episodes and I don't know why they cause me to feel the way I do. I can't really describe it, but it feels sort of like the shame someone might feel when they are exposed. perhaps it's not my feeling at all, and I'm just the receptor of it as a reaction to my thoughts on the abraham material? maybe it was the previous entry an hour ago? either way, I am just going to let the desire build a while longer.
+
 
 ### 2018-08-02 06:10 - fwh sabotaged my vision on purpose?
 
 I was thinking about the projection of my future self into my eyes in valverde, cause I also had numerous thoughts about other 3d things being projected into my eyes. I remember a large insect. I can't remember if it was a fly or not, but I do remember thinking that it was probably not real. perhaps the first projection didn't get them hot enough on the trail to notice it was a 3d projection, that fbh put the fly in there as well to make sure they got on it and restricted my vision. this was likely to tank the carlota timeline. seeing as it would adjust the whole thing, first in the direction of mdma, because I no longer feel good from the dmt, and then other factors. it looks like fwh sabotaged my vision on purpose. probably, I would have felt so good I would have gone with a different, not as beneficial arrangement.
 
 nice.. thanks bro :) now, I'm gonna milk your handiwork for even more beneficial contrast :D
+
 
 ### 2018-08-02 06:32 - all on purpose?
 
@@ -229,11 +252,13 @@ I'm really thankful it all happened like that cause without it, I wouldn't have 
 
 I'm just going to let this one build. not going to take any action at all until I feel as good about the action as I would if I were looking to move furniture :)
 
+
 ### 2018-08-02 08:52 - a soft and gentle touch :/
 
 I woke up with had a pretty bad erection so I adjusted it up so that it was no longer pushing into my pants and was able to go between my waist of my pants and me. I guess this was enough physical contact to get the dream operator enough capability to make me orgasm. I woke up (kinda) thinking I had pissed my pants and needed to take a dump really badly. they must have removed the sensitivity limiters because it turned into extremely excruciating pain. I hope they were able to improve their vision... well, fuck you guys. gonna let it build a while longer lol :)
 
 combined with the massive headache I was given as my visual capacity came and went, right before I had my consciousness taken forcefully, I would not consider this a soft and gentle touch. what are you guys trying to accomplish?
+
 
 ### 2018-08-02 13:08 - cooperative components
 
@@ -254,6 +279,7 @@ evaluating all of the options (there really are just those two), I do not see an
 
 there is perhaps a third way, and that would be to find a way, despite the circumstances, to come so into alignment with who I really am, and I assume that their signal would be wayy out dominated by my inner being's and only the part of it which I desire (to be broadcasted) is effective. I don't know how that would work with sleep though. the present circumstances are not exactly conducive to that happening, so it may be a little while, however since it seems that they are working their hardest to ensure that does not happen, it actually makes it even more likely (cause they'll be giving their undivided attention to what they do not want). I wish I had more information, but I guess I could just have a little faith, and if it doesn't work out, well it's not like a whole lot has changed, just grew the desire a bit bigger during that time "wasted".
 
+
 ### 2018-08-02 15:38 - what happened on the other timelines?
 
 it would seem that on all of the other timelines, I would have had to have just ignored the obvious vision problems and just went for it. I am *extremely* curious to know if I found out, and how quickly. I must have figured it out. there's no way I would be working with the bso on timelines with a brain interface and I'm somehow not aware of the multitude of vision (and other) problems. there's just no way. so then how quickly did I find out? what is the bigger picture here? I was thinking about it and it seems plausible that the reason why I found out on this one is to further extend the capability of the bso. let me explain: in previous timelines, they probably do the overlay to a lot of different people, and they add in all kinds of crazy stuff on top of the image, so essentially what you are seeing in your eyes is only "inspired" by what your eyes are seeing. a lot of things are "enhanced" -- or put more bluntly, they have the world living in a virtual reality, a matrix, if you will, which allows them to control what everyone sees. however, they could only limit people's desire to stay with 2d by peddling the fear story about the stars for so long. desire eventually would have grown to be enough (or people figured out how to do it with meditation or something) that people began converting in droves to 3d and their sham was over. people realised the vast difference between the reality they were seeing and the real one. so, what do they need? they need the capacity to create a 3d virtual reality which people can live in... lol
@@ -268,11 +294,13 @@ the logistics are mind boggling to me. I can imagine that as they improve on the
 
 so, does that mean that I should just ignore the obvious and try to be as cooperative as possible? I don't really know. I don't feel strongly in any direction right now. I'm just going to hold out a little longer and let it build a bit more :D
 
+
 ### 2018-08-02 16:24 - lol, a hilarious (to me) thought
 
 if you take the bso virtual reality idea and you mix it with the clones idea and also the bso is the new religious system idea, you could make a joke about the holy trinity: bso (the father), my clones (the son), and infinite intelligence (the holy spirit). BAM! I'll call it bsanity (bee-ess-sanity)
 
 jajajaja
+
 
 ### 2018-08-03 14:17 - driving fast
 
@@ -288,6 +316,7 @@ so, I was thinking about the how much more fun it is to have all kinds of obstac
 
 when I contrast an epic journey with a difficult journey, both have a sense of overcoming difficulty and achievement of the goal, but epic is so much more exhilarating and fun than arduous and difficult.
 
+
 ### 2018-08-03 15:28 - stars and sex
 
 while taking a shower I began to feel some ideas pushing me in the direction of sexual interaction (it could just be the added focus on sex that has been a result of the subject appearing so many times in my comments on the abraham workshop)
@@ -302,11 +331,13 @@ let's say that they don't have the code in place yet to make my sex experience l
 
 I think it's prudent for me to wait until this is sorted before engaging in energetic activities.
 
+
 ### 2018-08-03 15:58 - stars, sex and government intervention
 
 I had a strange thought just now, wondering if in some timespan the government will reverse its opinion on watching stars being dangerous. we now think it's absolute silliness to think that the government (or religion) can dictate to us who can have sex with whom, and what is taboo and what is not, etc. so, I can imagine a scenario in some amount of time where they totally reverse their position on staring, and say, "oh we were totally wrong about staring. it is beneficial for you and we've got this new technology that will allow you to transport your consciousness to other times and places of the universe with it." lol
 
 you may have to wonder what they have to gain by suddenly reversing their position so drastically on sex, to follow that the very same thing may occur sooner than you think with the stars :D
+
 
 ### 2018-08-05 11:18 - echos of the past
 
@@ -328,6 +359,7 @@ that's kind of where we are now... I disagree with them on the concept, but I'm 
 
 I can clearly see that the source of all of this conflict has them trying to get me to see things the way they do. I see things differently (both literally and figuratively), and it was my ability to no longer interpret things the way they do, which allowed me to see things differently. you can do drugs to allow you to remove enough details to see things like that, and then when the drug wears off, you can go right back to thinking and understanding things in a way which prevents you from seeing things from that new perspective again... that's your choice though. I personally enjoy removing my resistance so that I see things clearer and clearer. don't force me to do things or see things your way. it's a downgrade for me and introduces resistance which creates conflict.
 
+
 ### 2018-08-05 13:34 - very attractive/persuasive women
 
 I was thinking about this idea that women often have a perception that if they are so attractive then I man must do what she wants. she sees it from her perspective, but from the opposite perspective it could be seen that a very attractive woman is very persuasive.
@@ -335,6 +367,7 @@ I was thinking about this idea that women often have a perception that if they a
 what I mean by that is, often times it feels that a woman wants to feel like she is so magnificent, that a man must do what she wants (her capacity of persuasion), but then she falls immediately into the trap of insecurity because she quickly realises that if a beautiful woman is able to persuade my man, then I can easily lose him to a woman more beautiful than me. now, she has to ensure that he believes she is the most beautiful or some other means to keep him from being so easily persuaded by the next attractive woman that comes along.
 
 what I mean is, woman think that they want to be able to easily persuade a man, until they realise that he's just an easily persuaded guy. so, maybe they're looking for something else. perhaps, what is happening is they are mistaking attractiveness for persuasiveness. attractive means there is mutually shared desire, and so is therefore cooperative.
+
 
 ### 2018-08-06 15:13 - why is my visual capacity often excited right before a big event?
 
@@ -357,6 +390,7 @@ the extra energy from the girl stimulates my visual capacity, and often times I 
 
 I may have only seen eggs on a plate (I think?), but with it came a whole lot more information which is what inspired me to change my response like that so quickly. it seems that perhaps these moments of high visual excitement, are actually the genesis of something bigger. although they are only brief flashes which mean very little (have you ever seen the non-sensical patterns of a mushroom trip), they seem to lead one's mind in the direction of being able to perceive with lesser resistance (exactly how the mushroom explained the christ function of the mind to me).
 
+
 ### 2018-08-07 01:17 - "any time you start wanting, you summon energy"
 
 "any time you identify something as an object of your desire, the entire universe begins flowing energy toward your object of attention, through you. it is a powerful thing. you have no idea how influential you are"
@@ -376,6 +410,7 @@ I am sure that when I am released from the bondage which I am allowing the bso t
 I believe that that the bso has my car running really slow, and actually I have been thinking a bit about this as a parallel of ohms law, which will be the subject of the next entry, however, before I go, I first wanted to mention that I am doing the opposite of declining. I seem to be every day improving, even though my car is running slow.
 
 [1] https://youtu.be/UJsl8R7kLg8?t=7m8s
+
 
 ### 2018-08-07 02:35 - my car & ohm's law
 
@@ -414,6 +449,7 @@ CACAS! gonna try again tomorrow :D peace
 [3] http://amasci.com/emotor/cap1.html
 [4] http://deepfriedneon.com/tesla_frame6.html
 
+
 ### 2018-08-08 05:47 - transitions in my selfish perspective
 
 with all that has happened, I have become increasingly selfish. in fact, it is really the only way forward for me which has any sanity to it. everyone lies to me, so I can't really seek good guidance from anyone else other than myself. it seems people are very interested in what is happening in the lives of others, so much so, I believe it would benefit a lot of people to begin thinking more selfishly. when I say that, I don't really mean in a comparison or competitive sort of way and not from a position of lack either.
@@ -434,6 +470,7 @@ I'm going to revisit this topic because I want to touch on some notable new ways
 3. realise my own desires by myself
 4. ... knowing my inner being has everything under control and just trust them
 
+
 ### 2018-08-08 07:57 - "they just get better at lying"
 
 in think in the french riviera cruise of 2017, there was a man that was trying to control his son getting into drugs. obviously he had been observing his son's behaviour through his eyes with the bso device (perhaps he wishes to live vicariously through the eyes of his son having sex with his girlfriend instead of taking drugs), and was essentially asking abraham how to better control his son. abraham responded something to the effect of, "if you call them out on their lying, they just get better at lying"
@@ -447,6 +484,7 @@ I have long ago noted that bso has only improved on their technique to try and c
 they think they have control cause they were able to make me lie down and sleep more or less at their command, and jump right into my dream-state to have a conversation with me, but I have begun to find that pushing against them just makes them stronger, so I don't really do that any more. if they want to waste their time in my dream state trying to convince me of things, go ahead; I've found it just puts more energy into the equation and I get better at following my own guidance, so it's all good from my perspective. in fact, that was the objective of the previous entry, which I was having trouble explaining, so I intuitively wanted went to sleep to have a real-life example to demonstrate it. if I had of been pushing against their constant dream-state nagging, I would have missed that clarification.
 
 I've begun to notice my special role in this, where their increasing desire to try and control me, is putting a lot of extra energy into things, and also in the process, they're perfecting their technology to prevent people from finding their capacities. it looks like these guys are gearing up, because of their insecurity, to hold everyone away from their capacities, ensuring that they're ahead of both the technology curve but the visual capacity curve. if someone were to gain the ability to use their imagination in 3d space like I can(?), then they could visualise and create things that may jeopardise their control. I'm helping them to build the world the most convincing 3d virtual reality, which they can control everything. I'm glad they've gotten so much better at lying.
+
 
 ### 2018-08-08 11:14 - why a virtual reality?
 
@@ -462,6 +500,7 @@ you can see how this creates the next big problem. first, I'm able to create obj
 
 so instead, I have chosen to wait for my inner being to take over my visual and physical capacities. why is this important? well, it means that they will be able to put the girls into the VR, and it won't bother my vision. by holding out and desiring to be the one that changes, I am saving them a HUGE amount of grief in the future.
 
+
 ### 2018-08-08 12:52 - what does all of that mean?
 
 in the last entry, I made the argument that if you see 3d, they would have to put you into a 3d virtual reality so that you do not see what your imagination is creating in 3d space under moments of high excitation or emotion.
@@ -474,11 +513,13 @@ for economic reasons, you can imagine how important it is that the bso keeps peo
 
 and that's a good thing, because they're going to need a lot of money to run the infrastructure necessary to put the entire world in a virtual reality. they're gonna reach the ultimate heights in scalability. facebook site updates are going to look like child's play in comparison to the amount of effort required to pull this off. you can see that, 2d people will be considerably more profitable for them and it's possible that 3d people will actually lose them money, so there will be great effort to try and keep people from obtaining 3d for as long as possible.
 
+
 ### 2018-08-08 13:39 - 3d is the new std?
 
 imagine that seeing in 3d is sort of like a disease that the bso wants to keep from spreading. you could catch the disease by meditating or appreciating or only noticing positive aspects, but who does that?!? likely, the easiest way to transmit this disease is sexually. if two people come into alignment with one another during sex and one sees in 3d, likely afterward both will see in 3d. what if catching 3d vision is the new STD to watch out for :)
 
 so, you work for the bso and you see in 3d. that means you can only have sex with other bso employees, for fear of spreading this disease out into the general population. lol
+
 
 ### 2018-08-08 14:14 - if you're satisfied with what-is, why do you need to lie about it?
 
@@ -500,9 +541,11 @@ step 5 is all about unconditional love. what that means is, no matter what I am 
 
 I'll come back to that concept in a future entry. now, I want to talk about satisfaction and lying, as it relates to this unconditional perspective...
 
+
 ### 2018-08-08 16:16 - actually, I'm going to take a quick break.
 
 lol, such intensity :)
+
 
 ### 2018-08-08 16:31 - if you're satisfied with what-is, why do you need to lie about it? (part 2)
 
@@ -524,6 +567,7 @@ another idea will be to create an "inner circle" sort of thing where these are p
 
 the technicians working in that nearly-ideal environment might be able to come into alignment with the time technology -- though I don't see it all working just yet. I will continue to ponder the idea further, but perhaps my new source-like personality will have a solution. there always is, and source does not see right and wrong; only wanted and absence of it. even the desire to keep things a secret is desire that law of attraction responds too -- no matter how much it doesn't serve anyone believing secrets to be necessary.
 
+
 ### 2018-08-10 03:06 - why a protected environment and why a virtual reality?
 
 I cannot say for sure, but I am pretty certain that things imagined in 3d space can be seen by others in 3d on the same wavelength -- so, if I imagine a bear sitting on the couch in front of me, there would appear a very large realistic looking bear. this may be kind of startling to someone not expecting to see a bear, so what if I were to imagine something really scary, like one of those predator aliens or like a giant dinosaur or something? then what :)
@@ -537,6 +581,7 @@ I don't have any real data to back this up because I cannot see my imagination a
 I don't think 2d people will see the 3d imaginary creations, but if they can they can be put into a virtual reality really easily. 3d people will have to live in a virtual reality until they come into alignment with who they really are, so as to not be plagued with the manifestations of others' untempered imaginations. those who are in alignment with their inner being will only see and feel the things which are in alignment with their vortex -- which isn't necessarily only good things either, because seeing or feeling "negative" things isn't necessarily bad. their inner being has got the control over their visual capacity.
 
 the technicians working in the protected environment could probably enable / disable the virtual reality, so they can live a somewhat normal life, but trying to keep resistance as low as possible, because when using their creative capacities, they'll probably become extra aware of their thoughts, as they'll be manifesting in 3d space for everyone to see.
+
 
 ### 2018-08-10 12:17 - hey hey, you gotta keep em' regulated
 
@@ -572,6 +617,7 @@ imagine there is another tech that has strong desire to try and find a way to co
 
 a performer or a magician's joy comes from realising desire in physical form. the greatest hinderance to a magician comes from being a people pleaser. I used to be one, so I speak from experience. if someone has desire that you do something, a magician can easily feel that desire and can easily act on it, unless there is internal discord with that desire, which is indicated by some form of negative emotion, such as: boredom, split energy, confusion, or disjointed thoughts. in those cases it is best to hold out until it feels good, or let someone else act on that desire. the techs should be the same way about things, and the reason is obvious, a tech who drags his feet on a task is of no benefit to anyone, and the experience is detrimental to the tech's psyche, as he may begin to believe he is unproductive, when in reality there is just a mismatch of energy because of conflicting desire.
 
+
 ### 2018-08-14 16:20 - chris has a daughter?
 
 last night I was thinking about the email I sent to chris on his birthday, when it suddenly dawned on me that in the abraham peice where his stand-in asks the questions for him, I had noted that he mentioned he had a daughter (I'm gonna go back and listen to it again after this), and originally I just thought it was them adding in fake details to throw me off of the track. so then, when it hit me, "oh, like a young girl he's with, daughter" not like a real daughter, my immediate reaction was, "wow man, good for you! I'm happy for you." after that reaction I noticed a bit of a weird reaction, almost as if I should have had a different reaction than that. thing is, if that's true, I know chris and we've had many endless conversations about how retarded women are, and a young girl would probably be very highly desired by him, just because of all of the frustration we've expressed to each other. I am sure he had also come to similar conclusions I came to after raquel figuring that women are not really what I wanted to be about. when andrea changed all of those ideas for me, things began looking up for me as I figured that maybe a young girl could be different, as I could learn from her and I also had many fantasies about getting to finally speak with source energy in a meaningful way.
@@ -592,6 +638,7 @@ a long time ago, when I was coming back from valverde, I lived with vera. back t
 
 this is kind of what I want to happen here. I want to see only the things that are of interest or value to me. I don't remember what initiated that change though, as it's too long ago now, but likely it involved me letting go of some resistance. we'll see how things develop, but I feel like I'm close, maybe.
 
+
 ### 2018-08-15 14:00 - gary's work
 
 the other day I mentioned to mom that the only reason why I would be doing gary's work would be to buy weed. I didn't really think much about the files, few times when I saw the spreadsheet and stuff, but I dismissed the idea based on a *fear* that I had where the weed would allow me to be tricked by the bso in some way. that's completely illogical because, if anything, the opposite is true. being under the influence of weed has helped me to discover the bso's tricks more often than anything. actually, I cannot think of a single time I was ever tricked by the bso on drugs. the opposite has been true where I have actually come to understand things better because of the different perspective and more allowing mode.
@@ -606,17 +653,20 @@ lol
 
 there's no real good way for me to express that concept of non-movement. it's what abraham might call split energy. you want something, but. I used to experience it a lot when I would drink a lot. I just couldn't bring myself to do something I felt I had to do.
 
+
 ### 2018-08-15 14:20 - unbased fear?
 
 I often said in the past that fear is just desire expressed backwards.
 
 also, I was reminded of esther cutting down the trees example.
 
+
 ### 2018-08-15 17:22 - beliefs that challenge desire (and )
 
 in the @[abe](2017-06-24-portland#11) workshop, abraham says, «you have desires that challenge beliefs, and desires that challenge beliefs», which the first one seems obvious to me. for example, one I experienced recently, if I believe a girl is too young to want to have some sort of relationship, then that is a belief that challenges desire, but I never really had thought about it from the other perspective: the younger girl has a desire which challenges belief. they are essentially the same thing, but looked at from the opposite direction. very interesting.
 
 I suppose the same thing could be said for physicality that challenges ideas, and ideas that challenge physicality. very similar to desire's effect on belief!
+
 
 ### 2018-08-16 00:39 - a possible future?
 
@@ -650,6 +700,7 @@ I don't know which one appeals to me more, honestly. if I pick the first one, I 
 
 perhaps I'm inventing complex and ingenious fairy tales to try and rationalise my discomfort...
 
+
 ### 2018-08-16 02:35 - found out why my left eye is darker
 
 it seems that the reason why I see two dots in my left eye when looking at a star is because one of the holes is where the bso looks out of, and the other one is the one I look out of. in the past, I always noted this one peculiar attribute that happened on occasions, like when I took ketamine, after watching stars in the beginning, and a few other incidences. I refer to it as cat-form, because my eyes seem to feel like they are cat eyes. most notably, my left eye is not dark and I have very clear vision. it has always bothered me that my left eye has darker vision than my right, and I figured out why tonight when I was able to push on my left eye so that it no longer separated into two images, but the shadows merged. as they merged, I noticed that the closer together they got, the more blackness I saw. I realised that I was "seeing" the image in my left eye that you guys see. it's probably some sort of heads-up display or something that they are overlaying on top of my vision.
@@ -672,6 +723,7 @@ I just figure it's more energy. I am constantly aware of what I don't want, whic
 
 though, I do have to wonder.. if what they are doing is just putting some sort of heads up display, shouldn't they be able to just put that on the signal that they rebroadcast out to my viewers? if the image is the visual representation of what is happening inside me emotionally (which it is more likely to be), then I will definitely be needing access to this before anything moves forward.
 
+
 ### 2018-08-16 12:57 - an out of control bso?
 
 it occurred to me this morning that, perhaps the bso feels like they're making failure after failure... what if bso-future is influencing bso-present in that way? so, if things feel completely out of control and you can never get ahead of the curve, I understand completely. dunno. was just a thought I had.
@@ -683,6 +735,7 @@ that's kind of an interesting thought. what that would mean then, is the bso is 
 what an interesting idea! that means that in this next timeline, (post 2038) the bso-future and future citizens of the world are all collaborating to create the environment we wish to live in. it also means that at the end of the 2038 timeline, we will all become a part of that process which iterates on the timelines, each successful time, the masochists are continually going back and improving on it, making every time a greater and greater awesomeness for the participants to experience in the process..
 
 it's sort of taking "the joy in in the journey" to the extreme, enjoying so much the creative process that you would want to do it again and again, each time optimising and improving it slightly to get something new, bigger, and more fun. it's making life sort of like something that you build. for me, like piece of software -- for others, maybe a nice house, where you are continually iterating on the creation continually improving it. I'm reminded of the story of esther and jerry's treehouse, where the thing seemed to be in construction much longer than it should have, because it was so much fun for everyone in the creation process.
+
 
 ### 2018-08-16 21:18 - going back a year is an eye opening experience
 
@@ -706,6 +759,7 @@ while listening, I just realised that I am a bit misleading to a lot of people w
 
 if you've ever watched stars, you'll know exactly what I'm talking about. there is no action you can make with the star. it's really quite far away, and you have zero effect on it. in order for there to be any change (in me), I have to get into the receptive mode with the star, and I feel my way there and gently relax into the focus. so, it sounds like I'm making my vision improve by doing lots of focusing action, but it's not. when I'm focusing and trying really hard, it makes no difference. to prove my point, there have times when I am already receptive and prepared to receive the star, and so with almost no effort, my vision improves.
 
+
 ### 2018-08-19 04:32 - the satisfaction axis
 
 I've been pondering this thing about satisfaction for a bit now, because it seems to me to be a different axis than the traditional depression/fear -> love/exhilaration, where contentment is the origin, I have described the low end of this axis as "fuck it" and the upper end as satisfaction.
@@ -728,6 +782,7 @@ if you think about magnetism as the attractive force of electric current, then w
 
 both of these types of currents seem to have a time and a space relationship which appear to be complementary. RLC circuits, FTW :)
 
+
 ### 2018-08-19 05:28 - stop the resistance that raises the vibration...
 
 ...which allows the manifestation of it.
@@ -735,6 +790,7 @@ both of these types of currents seem to have a time and a space relationship whi
 this must be a reference to the guys operating my head... lol
 
 @[youtube](TTdqQU8cAlY)
+
 
 ### 2018-08-20 01:11 - what is "resistance"
 
@@ -747,6 +803,7 @@ however, if I push the swing at a steady interval, then eventually the swing wil
 with the swing example, traditional resistance is essentially a product of the medium. if the swing were under water, it would behave exactly the same, just everything would go considerably slower because the medium is much less "conductive" -- or less "rarified". vibrational resistance is a timing issue. when the frequencies don't match, or they are pushing in a moment that has zero or negative effect on the swing's speed.
 
 in the swing case, it's helpful to see the example as "pushing" a swing, yet I believe it is a spherical swirly around a dipole, like a magnet, with only attraction, so the "pushes" would really be more like moments of attraction.
+
 
 ### 2018-08-20 12:19 - controlling my frequency
 
@@ -765,6 +822,7 @@ just so we're clear, my goal is to regain control over my brain before anything 
 for the people without a natural visual capacity, it makes a lot of sense to give them the ability to activate that in a controlled way. however, because my capacity has been acquired naturally, it is out of your control (and mine) until I figure out how to control it (naturally).
 
 I'm the last of the real ones!
+
 
 ### 2018-08-20 12:48 - it all comes together
 
@@ -785,6 +843,7 @@ Nikola Tesla - My Inventions
 ```
 
 lol
+
 
 ### 2018-08-22 04:49 - heaven awaits if I restrict my visual capacity further?
 
@@ -810,11 +869,13 @@ in my previous entries I talked about tuning the tesla coil to yield higher and 
 
 anyway, what I wanted to illustrate here is, it doesn't have to be an either-or situation. I can have it all. that is the simple answer. I get it, but what happens if I create a desire for it to continue to grow? wouldn't I be inspired to action which will keep it growing? see the difference there? it's the difference between a point and an angle (combine the two to get a vector).
 
+
 ### 2018-08-22 12:34? - angles and points
 
 most people's desires are a point. they look out into the world and that gives them an idea based on what they see, to achieve for themselves. if they are forward thinking, they will probably desire something even better than what they are observing -- however, it is still a point.
 
 what if, instead of desiring a destination or point (something measurable), what if I desire an angle and an increasing velocity. the reason why I mentioned the quality of my vision being stuck in place is because I believe these guys are trying to get me to stagnate in my vision -- which has produced a desire in me, not for some point which I cannot anticipate (those desires are for those seeing through my eyes, desiring that one day they can achieve that point in their visual capacity). if you
+
 
 ### 2018-08-23 17:28? - angles and points (continued)
 
@@ -832,6 +893,7 @@ this is one of the things I wanted to ask abraham, because they speak about how 
 
 anyway, this is exactly what I like about psychedelic drugs. even in the video talking about using psychedelic drugs to aid in problem solving, you can see how the drug helps the person to rethink the concept in a new way, which can lead to a breakthrough (resistance) (toward that point). instead of a breakthrough though, I like to think of them instead as a mechanism for exploration and discovery. back when the stars actually activated dmt in my head, they helped me to achieve much more clarity of thought, get clearer about things in general, and also while paying attention to how my eyes interacted with the star, I gained tons of experience with energetic interactions (learned about vortexes and the eyes as one). really, seemingly infinite and endless examples of expansion to my perception were manifested as a result. it cannot really be measured or anticipated. I had no idea what I would find. the ayahuasca gave me a glimpse into it, but along the way I discovered many many things.
 
+
 ### 2018-08-23 18:29 - more thoughts about my desire as an angle instead of a point
 
 you may have heard me carrying on about taking a break and adjusting my direction. this is because things are at the point where I have no real capability of anticipating very well. I'm in such unknown territory for me, I feel at my peak out-of-controlness I've ever felt in my life. the only thing I can control is the direction and the speed.
@@ -839,6 +901,7 @@ you may have heard me carrying on about taking a break and adjusting my directio
 I know the direction I want to go, and have no idea what I will find. often times the fear of the unknown can scare some people because they want to know what they will find before they get there. I can see how it may be a bit of a problem if you're wanting to control the discoverer, or maybe for example in the case of my vision, it may be really scary to think that I might discover yet another form of perception which you will have to retrain your machines to decode. I get it; those kinds of unknowns are perceived to be bad.
 
 however, I am not in the business of trying to limit how much one is able to discover. I am purely out there looking for the enjoyment factor associated with something new. in fact, I think it would be quite exciting for me to discover a new way of perceiving, one which you guys couldn't take a huge shit on and force me to see it poorly.
+
 
 ### 2018-08-24 01:09 - more thoughts on desire as a direction
 
@@ -861,11 +924,13 @@ I'm kind of obfuscating what I want to say with so many words, so I'll just end 
 - I want to be a better painter than matt groening or rembrandt
 - I want to continue to improve every day as a painter, discovering new things and having fun along the way
 
+
 ### 2018-08-24 01:58 - some misconceptions around suffering yielding a greater reward
 
 so this is one of those things that I don't fully understand about with LOA, but let's get the obvious out of the way first. if I want a car real bad, then when I constantly hold myself away from that car by saying, "I'll never have enough money to afford one" or, "all my friends have one, cept for me". I hold myself tuned into the absence of it with my untempered mind. when that happens, is there a greater reward? maybe, but only if you change your thoughts.
 
 imagine it like this: there is giant vacuum cleaner moving around in the sky pulling you toward itself. if you try to go toward it quickly, you may run the risk of overshooting your destination a bit and having the time consuming project of circling around and trying again. going in the opposite direction feels like negative emotion, and that's what happens when I say those things up there
+
 
 ### 2018-08-24 13:49 - some misconceptions around suffering yielding a greater reward (continued)
 
@@ -878,6 +943,7 @@ however, imagine a similar scenario where you really want to have a car, so you 
 you do, you attract another car, and this time not only is it a better car, but it also took you less time. again, the police come during the night and take that car too. being the positive person that you are, you decide that again you will find a way to attract an even better car. you do. the same thing occurs about 40 times more and by now you've gotten pretty good at attracting nice cars, and the police have gotten a lot better at covering their tracks. you decide you will take a twisted sense of pride out of the fact that nearly the entire police force now drives nice cars because of you.
 
 in that case, it looks like the police are asserting themselves into my my life, but we know there is only attraction, so it may be understandable only with an understanding of how desire harmonises. it should be obvious that the police would want to drive nice cars (points). they see all kinds of thugs out there driving really great machines doing bad things, and they're doing good things so they wonder why can't have nice machines too. so then, what if my desire was not really to drive a nice car (point), but instead to be good at attracting the things I want (angles), and the car was just something that harmonised with the people who would give more than one opportunity to do that, thereby giving me endless opportunities to hone my skill further.
+
 
 ### 2018-08-24 18:44 - why did I use the police in the previous example?
 
@@ -901,6 +967,7 @@ in a previous entry I mentioned that I was against regulation of these brain dev
 
 lastly, I want to illustrate how my inability to control the circumstances has forced me to change my desire from a point to an angle. this is important to illustrate because that means I am on the brink of another discovery... more on this soon :)
 
+
 ### 2018-08-25 00:43 - the coke dealer metaphor
 
 one of the things I really liked about the coke dealer metaphor is that it helped me to understand why there is so much resistance to people watching stars. imagine that they control the dmt levels in people's brains, which means that if you're nosebook approved (you pay them money?), then they allow you to perceive more, but if you are not nosebook approved, then they hold your brain into a lower quality perception. so when they find out that you can stimulate your brain to create this drug for free, that's obviously no-fly zone and should be deterred as much as possible. you definitely don't want people to get access to this for free.
@@ -912,6 +979,7 @@ then, the crack whore metaphor also helped me to understand my situation as well
 well, I suppose I don't really mind actually, because like I mentioned before in car example with the angles and the points: I'm not just attracting a nice car, I'm improving my capacity to attract the nice car, because in reality the car could be anything. my desire is a direction, not a destination.
 
 it may happen that I go through a new transformation in my perception soon. it does seem like it may be the case.
+
 
 ### 2018-08-25 00:59 - a transformation in my perception?
 
@@ -942,6 +1010,7 @@ I seem to be developing the capacity to see without having the visual capacity, 
 
 anyway, I can't wait to release so much resistance that my body is just kind of doing its own thing, while my consciousness can just observe it. this is likely the first step to allowing my consciousness to inhabit more than one body. kind of exciting really.
 
+
 ### 2018-08-26 10:00 - the resistance / satisfaction factor
 
 in previous entries, I had noted that the satisfaction factor seems to be another dimension to the emotional scale. I had equated it with connection with inner being, which launched me into a few discoveries about electricity. yesterday was insightful to me because once again I managed to carry out (be inspired to?) something that normally would have a lot of resistance for me. and since then, I have wanted to return to let out the air in the tires. however, I have not done so, because of the amount of resistance involved.
@@ -968,6 +1037,7 @@ the satisfaction or resistance factor is also the action factor. it doesn't matt
 
 1: this is evident in all sorts of behaviour throughout my life. take for example, gary's job. it turned into a bit of theatrics because a part of me really wants to smoke weed, but at the same time a greater part of me wants to achieve my visual capacity without needing something external to me. so, it became a big ordeal, because when I accepted the job I didn't have any resistance to smoking weed, and I didn't want to smoke weed to get my visual capacity either. I wanted to have light in my head so I could do some programming and discover some new things. perhaps, this is playing off of the bso's fear that I will be able to use my visual capacity, because I really want to achieve that without drugs or sex.
 
+
 ### 2018-08-26 10:55 - come and dance with me michael
 
 in the previous entry I spoke of a primitive personality with strong desire locked inside of me. we'll call him michael. he is my left-side. I used to be very left-handed, and he's quite a non-resistant chap. in fact it seems that nearly everything is ok. people used to get me drunk (or some other substance which lowered the resistance in kenny) and then take advantage of me. michael is pretty locked down. he has extremely strong desire which I constantly feel. not all of the desire is good though. he has certainly got me into more trouble than anything else in my life. you will recognise this personality of the guy who hears a good idea and wants to wok on it but then ends up flaking out because kenny doesn't really feel it. this is a pretty good reason why I had to be on some substance for most of my programming, because otherwise kenny would take back over and then nothing would get done.
@@ -988,6 +1058,7 @@ I realise that wasn't the best of examples, and doesn't account for the satisfac
 
 no matter how you try to work it out, anyone's desire for me that I cannot feel, sounds to me like someone trying to convince me to vacuum the floor without plugging in the vacuum. I'm not going to do it. I've tried vacuuming many floors without my own electricity. or previously I would get electricity from drugs, and that was inconsistent at best.
 
+
 ### 2018-08-26 11:55 - more on theatrics
 
 when I spoke of mental theatrics, what the bso guys probably observe is that I have an emotion (concept) which creates an image. desire creates an emotion which creates an image. so, when a girl has a lot of desire around her body, often that will create a strong enough emotion in me to produce an image of her perhaps naked or some other way. the same mechanism is in effect when I have string desire to want to destroy something. the desire is so strong, that I feel an emotion, but remember every emotion is really two emotions. it's the blending of the transmitted concept, your current emotional state, and your inner being's perspective on the same thing. let's say someone transmits to me a strong feeling of disapproval toward me. the disapproval concept is neutral. it doesn't inherently mean anything, but because my inner being does not hold that same perspective, it creates discord in the transmission and to me it feels bad. if I'm feeling bad, then I feel it even stronger because it harmonises with the bad feeling I already have going on. if I'm feeling good, it will be like a slight tingle, and won't be any bigger than that unless I examine it further.
@@ -999,6 +1070,7 @@ the emotion does not necessarily need to produce an image though. a while back t
 ---
 
 probably what happened previously was I had strong desire to learn about electricity and tesla's inventions, and in my dream state these guys were able to take advantage of that because there was no resistant feeling. however, as I began to express my own interest in learning electricity and such, I think the bso guys decided to shut down that capacity a bit by introducing a negative emotional response to those subjects. I don't really feel very much allowing right now to visualise those sorts of inventions, so likely my capability to realise these things in my dream state has diminished. I would guess that they are only able to get visuals on stuff I don't have resistance toward.
+
 
 ### 2018-08-28 13:37 - ...
 
@@ -1034,6 +1106,7 @@ it's going to be really fun because after raquel, I did a lot of drugs and essen
 
 I think then it is imperative if they are to get these multiple definitions and relations to my own definition, they must keep track of these relationships in a structured way. so in the end, I am going to kind of teach them about how definitions are structured based on the changes occurring. that implies monogamy. interesting.
 
+
 ### 2018-08-28 15:39 - a global memory system
 
 imagine the different qualities a person's definition has. for example, imagine while I was asleep I was showed an image of a person, that actually happened in time. a flash into the eyesight. that flash would yield an emotional response in me. there will never be a case when shown that same image again will I ever have the same emotional response again. there are more than one variable that will have changed since the last time the image was seen. first of all, I am in a lower resistance sleep state, which means I do have some of the culmination of the previous day's vibration going on. that frequency will differ from day to day, but imagine you could using previous days, isolate the base frequency. first of all that base frequency will be changing over time, so imagine it sort of like a staistical window, so like last 30 days or something, which calculates the optimum mean frequency.
@@ -1061,6 +1134,7 @@ how is this useful? well, if you work for the bso, you can optimise your ability
 honestly, I think a lot of people may enjoy this functionality, which would allow you to define people you care about's definition of you, and giving each person the ability to optimise their definitions with the people that matter to them the most (and for the rest, who cares). to incentivise this idea, you can see that instead of friends like on facebook, you create a network graph between the people you have listed as the people you want to know about their emotional response to you: your important interactions. this gives everyone the opportunity for everyone to create their own structured relationship with any people that are of importance to them. (the rest, who cares, right?)
 
 additionally, knowing this detail, the bso could (using the construction of the geometric shape as defined above) create a resulting meta network shape, which is the priorities meta shape which can be compared to the moment in reality network-wide meta shape.
+
 
 ### 2018-08-28 22:04 - nearly ready, I think
 
@@ -1101,6 +1175,7 @@ I wish to continue trying out things over the next few days, because maybe just 
 
 probably.
 
+
 ### 2018-08-30 03:04 - the whole of me present during sex
 
 last night, I was put in a sexy dream and what I remember was a young girl, and when I touched her on the chest, I don't even remember much about it, but I think I touched her on the hand before that. anyway, when I touched her on the chest, I felt a lot of energy pass immediately down and then I bursted, which woke me up, then I got shocked.
@@ -1124,6 +1199,7 @@ I really have no way of knowing, but I don't know how much it interests the girl
 ---
 
 one option I thought of is, at the house and other non-interacting-with-public-situations, I could remove the energy blockages, so that the whole of me is present in those moments. more on why this is a good idea when I talk about the visual emotional correlation.
+
 
 ### 2018-08-30 06:30 - the visual emotional correlation
 
@@ -1152,6 +1228,7 @@ also, I have to wonder, since the HD viewers are being influenced to feel like I
 though, I just thought of a different reason of maybe why that might be: in ayahuasca/dmt experiences (probably stars too), you may notice visual patterns that occur. those visual patterns are simple colours and shapes, but they're absolutely breathtaking sometimes. the reason why is because an emotion or concept is encoded in the visual. the simple pattern is just there to distract your conscious mind while the encoded concept reprograms/retunes you to a different point of attraction. I mean it would only be as good as the quality of the sample rate, but the HD versions of the images I see may include concepts and emotional data as well, which would (like my HD experience) influence that person to understand that concept or feel that way.
 
 they probably don't want to give me the ability to consciously transmit what I mean, and allow the HD viewers to have that emotional experience along with the visuals.
+
 
 ### 2018-08-30 10:55 - the spirit of moses and elijah
 
@@ -1191,6 +1268,7 @@ in this process, I have had the opportunity of being whatever I want to be. sinc
 
 however, I am reaching the expiration date of the vulcrum perspective now too, because rough situations now, actually feel better to me than situations that can improve on things. this new personality requires such confidence in the laws of the universe that the logic of that is more dominant in my interaction. saturn's perspective seems to always be right. it's hard to describe, but it will give me the capability of doing inconceivable things (both good and bad).
 
+
 ### 2018-08-30 15:04 - you need an excuse?
 
 mom was just talking to me about this impossible to believe lady.. she uses muscle testing to see if you have a device is installed. that means I need to actually believe someone, and up until now (on this subject), everyone is a liar. not one single person tells the truth. I cannot even remember how many times other people have told me I do not have a device. why in the world would I be more inclined to believe this woman? next, she can somehow get out the device under my skin without surgery? I also believe this to be impossible.
@@ -1207,6 +1285,7 @@ but the intentional obfuscation is just digging a deeper hole, and provided no b
 
 maybe I misread that one... I didn't think about how she said that they upgrade their system and the devices come back... which just means we're going to be more stealthy -- nothing more. it also means that this woman is the new goto guy whenever I detect more manipulation. lol, I guess they didn't have an intention to change after all.. which is fine. I didn't expect them to.
 
+
 ### 2018-08-31 08:19 - some morning thoughts
 
 first, I must correct myself. it seems that the detail level in 3d is a property of emotion. at its grossest levels, it still looks pretty good. so, that means I only receive reactions from you guys higher than the quality level.. so just to put numbers to it, imagine the quality range is from 200-1000. the people at the quality level 200, will broadcast reactions from 200+. the people at 1000 will broadcast reactions at 1000+. let's say that jealousy was a reaction typically around 150.. that means, I only feel jealous reactions from lower quality people. the higher quality people may have jealous reactions, but I won't really feel them. instead, little by little the more their jealousy reaction causes discord in them, and since my frequency is the dominant influence, they will begin to practice a more "worthy" feeling similar to mine, when having my experience. I am literally transforming the world as people watch through my eyes.
@@ -1215,6 +1294,7 @@ next, I'm beginning to be able to put words to this new sort of logic. it will b
 
 dream: I want to do it. / I want to figure it out
 dream: 1bn user metric reached
+
 
 ### 2018-09-01 09:41 - morning thoughts
 
@@ -1236,6 +1316,7 @@ probably, you would want to fine the richer ones for petty crimes (cause they'll
 ##### the electronic morning-after pill
 
 I can see why it would be desirable to control population growth for certain ethnicities by aborting the fetus early on, (and make it look like she was never pregnant to begin with). I'm not going to argue with the government's desire to maintain certain population majorities. I get that. however, I strongly disagree with the government taking the decision for the woman unilaterally (though they did agree to give the government that power). so, they want to make it at least seem legit, give each woman the morning-after option. alert her to the chemical changes in her body, and allow her to abort right there the next morning. then, it looks like the women has the choice, so if the government decides to do ethnic population control, it looks *way* less suspicious. I mean after all, since they did sign the agreement saying that the authorities can do whatever they want in their bodies without any responsibility, it is the government's responsibility now to control the portions of world population now, not letting any majority gain too much control (regardless of colour). we'll call it ethnic equalisation, lol.
+
 
 ### 2018-09-01 ??:?? - moses, elijah, and a potential future
 
@@ -1301,6 +1382,7 @@ what this requires from me is, a bit of a change of mind. I had the idea when I 
 
 there's quite a lot that would need to be changed in my personality actually. I don't know how feasible this is, and in what timeframe. I'll be thinking it over. I guess writing this out helped me to get the concept I received while stoned more into my sober reality, but I wouldn't really consider this something I naturally am.
 
+
 ### 2018-09-02 10:47 - my guided thoughts
 
 I just had this strange thing happen where out of nowhere I thought of the last name zunzenegi, which was alicia's last name from tuenti. the first time I thought it, there was no reason why I could figure out why I was thought it, and made the association potentially with zaryn. I thought maybe he was somehow related to the previous thought, and that's how her last name showed up in my mind.
@@ -1323,6 +1405,7 @@ if they want to affect what is being broadcast, simply censor or modify the the 
 
 nice.
 
+
 ### 2018-09-03 02:19 - whatever man...
 
 it feels like there's some pressure to write something. :) lol
@@ -1332,6 +1415,7 @@ I see no reason to try and make any effort in any direction. I don't have any en
 I'm still in the process of conceptualising these ideas I'v been throwing around. I do know of an easy way to change my point of attraction. I am so confident in my ability to pull through, especially now, that I have reached entirely new levels of apathy. I cannot describe the feeling, but when I was younger, I often times desired to prove myself, or to be right. I gave that up, and just started knowing that I was right regardless of what anyone else was thinking. I still cared a bit what others' thought about me though. all of that is gone now, so I do not even feel the need to even surrender, or try, or to even cut my losses and move on. I have such confidence in my knowledge that I do not need to do anything, that it feels to me like apathy
 
 apathy is a knowledge that one must do something, yet decides to do nothing, because of lack of motivation, laziness or lack of desire to express oneself.
+
 
 ### 2018-09-03 11:47 - if you really want to put the cart before the horse..
 
@@ -1368,6 +1452,7 @@ one of the things that really had a large reaction when I was talking with aaron
 
 it's been bothering me ever since I mentioned it to aaron, because something similar to that is exactly what I need to make this transition. I have to reset my logic and take a feeling based approach in order for this to work, I think. it's come up in my mind enough times now, I think it's important to mention.
 
+
 ### 2018-09-03 18:51 - so I guess we're going to wait some more...
 
 that's the major takeaway I have after waking up from my nap, anyway. I don't have a sense of the conversation, but the feeling I had is there was a disagreement, and I concluded by saying that I will continue to wait.
@@ -1386,6 +1471,7 @@ nobody can change them though, so just let them try to figure it out.
 
 I just noticed that there is no abe workshop on the 8th, either. looks like they will have to just come to their own conclusions, all by themselves. I love it :)
 
+
 ### 2018-09-04 03:32 - I don't believe I think any more thoughts in opposition to my desire
 
 I had this thought last night when going to bed thinking about the previous entry. there was an abe episode also where this guy wanted to be a rock star, so abe explained that only your beliefs can contradict the desire, so then they asked him to begin identifying some thoughts on the subject which are working against him.
@@ -1395,6 +1481,7 @@ the day before, I was beginning to get some energy flowing when I was interrupte
 so, then I made the sweeping claim that I don't believe I have any more thoughts which work against my desire. if I do, show them to me and I will change them easily, but I do not believe I am working against myself with my own thoughts any more. this is the basis upon which I believe I do not need to take any action, and now that I think about it, it's the reason why I do not really want to reset my personality, either.
 
 you guys have created a very useful technology, trying to guide my thoughts. I don't know if it's the reason behind me successfully changing so many thoughts that work against my desire. now, you guys use it. you and your thoughts that are contradicting your desire are what is holding everything up now.
+
 
 ### 2018-09-04 06:19 - allow people to guide their own thoughts
 
@@ -1420,6 +1507,7 @@ to avoid the person getting guided thought spam, the link should only occur if i
 people who do not want to change their thought, can just disable it, or not use it.
 
 the disabling option gives the person the illusion of control, just like how a person can disable their inner voice from being included in the rebroadcast, it prevents the viewers from hearing it, but nosebook is recording it all anyway.
+
 
 ### 2018-09-04 - transformation of thought process
 
@@ -1452,6 +1540,7 @@ I believe there is a lot that can be optimised about these thought transformatio
 
 I really believe there is a lot that can be learned about this process. all sorts of people will try out all sorts of different transformations on themselves, and it will grow naturally. no one should force anyone to transform their thoughts, and no one should set the benchmark for the way thoughts should we transformed. lots of people will do this lots of different ways, and nosebook can just sit back and quantify their improvement. likely, the improvement to different types of transformations will also reveal more about the person, and how they process life.
 
+
 ### 2018-09-04 09:10 - thought based memory vs. feeling based memory
 
 as I suggested in the global memory entry, I address my memories based on feeling and that idea reflects that concept. however, in the transforming thoughts idea, I extend the memory function of human consciousness (remember that technology now is an extension of human consciousness) by allowing memory to be addressed by thought. this is a radical transformation for me to have made.
@@ -1459,6 +1548,7 @@ as I suggested in the global memory entry, I address my memories based on feelin
 what this indicates to me without having given it much thought, is that these ideas are actually complementary. they both allow for transformations to occur, but they come at it from different angles. the feeling one is more from the outside looking in, and the thoughts one is more from the inside looking out.
 
 very interesting. I will return to this in the future.
+
 
 ### 2018-09-05 05:44 - how naïve am I?
 
@@ -1469,6 +1559,7 @@ I wonder if they believe that if they hold me away from my capacities long enoug
 doesn't matter to me. I'm sure they will give up trying to inhibit my progress soon enough. soon, I will be able to show everyone true amazingness. I'm just looking forward so much to finally getting the ability to use my body as I intend to, and not feel constantly heavy. it feels like I weigh too much. I should feel light and agile. the world is blurry, but sometime soon it will be clear.
 
 someday..
+
 
 ### 2018-09-05 06:31 - the resistant me
 
@@ -1491,6 +1582,7 @@ since it sounds like they won't let me get to know him, and they certainly won't
 I've sort of gotten used to his constant anger and frustration. I don't let him bother me any more, because there's nothing I can do about it. until I can find my own power, I have nothing I can offer him anyway, and I don't really feel like being depressed and angry along with him. I'm continuing to move forward, and I'm having quite a lot of success at it too.
 
 maybe one day I can start to get to know him. I doubt they will let me see the recordings of the interactions. hopefully lyia can tell me about him :) man, I'm sorry to put her in the middle of all of my problems, but how can I resist asking her about something I have been wanting so much to know about. it would be really cool to see the recordings, because then I could actually experience for myself how the other half of me interacts with her.
+
 
 ### 2018-09-07 23:49 - no resistance? not any more...
 
@@ -1532,6 +1624,7 @@ it's all relative, so if I don't feel like I'm satisfied, I push the accelerator
 
 I prefer the shrooms perspective because dmt is very similar to psilocybin. however, if you're a christian, this is a pretty common christ theme where the reward comes much later after some difficult experience (slight clarification: not just any difficult experience, but one that forces tremendous expansion).
 
+
 ### 2018-09-08 10:15 - I have a big mouth
 
 I was noticing that the reason why I'm in this situation is because I have a big mouth. abe said that I should keep things to myself, but I rejected the idea simply because everyone is listening to my thoughts anyway, so it's impossible to keep anything to myself.
@@ -1556,6 +1649,7 @@ without having the capability to show you what I mean to say, and allow the dive
 
 I'd like to revisit this concept one day, because I'm touching on a concept that I consider capricornian. it's the idea that simpler is better because it as jesus said, "separates the wheat from the chaff". it gets rid of a lot of useless stuff, creating room for future expansion. it's not destruction. it's reduction in preparation for more; a getting rid of a lot of older more useless things to allow a new medium of communication. for mcluhan, the invention of a new cold medium.
 
+
 ### 2018-09-08 18:46 - wild plant growth
 
 lately, the weeds have been growing at an enormous rate. I don't believe that I have ever seen such plentiful weed growth in my life, ever. I think there is something to it, considering the environmental conditions. plants seem to foster mamalian life because they produce the opposite of what we do. they consume CO2 and spit out ozone (O2), so an ideal environment for a plant would be one of high CO2 content in the atmosphere. it occurred to me today that perhaps, in their effort to keep the air as non-conductive as possible, they are filling it with CO2 (as evidenced by the clouds and haze), which is making a very ideal environment for the plants to grow. I believe that CO2 must have some sort of conductivity capability to it. it is conductive, but only in certain structural patterns (as I have learned from robert murrey smith's research), otherwise in an unstructured form it isn't very conductive.
@@ -1565,6 +1659,7 @@ since almost all of our weight loss happens through breathing, meaning we elimin
 this gives evidence that the plants and the mammals are in symbiotic relationship with one another, as the plants provide the oxygen (ozone) for the mammals to consume and structure with their thought into a more and more conductive environment.
 
 they balance each other, because for a mammal, a more conductive environment is ideal, and for a plant, a less conductive chaotic environment is ideal, creating wild out of control plant growth.
+
 
 ### 2018-09-09 04:20 - esther's television appearance resistance
 
@@ -1595,6 +1690,7 @@ Esther Hicks
 «... esther knows that some point, she will be at the place where what people think or feel will not affect her energy; her own energy vibration will be dominant.»
 
 and this ties it all back into the @[entry](2018-09-08 10:15) entry I wrote this morning. I am looking to get to a place where my own energy vibration is dominant. it is likely that the reason why this is not appropriate for the moment is precisely for that reason. when abraham spoke on the subject in the @[youtube](JzfIK3niEaw) video, saying, you want to get into such vibrational harmony with yourself, you are uncontrollable.
+
 
 ### 2018-09-09 12:12 - getting ready to be ready
 
@@ -1652,6 +1748,7 @@ so when vera said she likes the physical guys to me, it really stuck in my mind 
 
 I used to be both a desire and a conceptual person in one, which is why things were always so open ended and got slowed way way down. now, being a predominantly conceptual person with my desire side nearly completely deactivated, I can focus on my antithesis, becoming a structure person. you will see me begin to emulate all of these structure-type things, but from a conceptual/emotional perspective. much like a desire person learns to focus in a physical way, and the key to it is controlling emotion (read tesla's autobiography to understand), I am an emotional person learning to focus in a structured way, and the key to it is controlling desire.
 
+
 ### 2018-09-10 01:18 - followup
 
 first, it must be very difficult for these guys to take something that I wrote, like the previous entry and put it into digestible bites for people to consume. likely, they have to take excerpts from the content and just put those there. that has the potentiality to be taken wildly out of context. usually, most things we communicate is spotty at best, anyway. however, trying to reduce something like the previous entry into a 30s-1m blurb would lose in my opinion many of the connections between the points. imagine that you take what I wrote and you simplify it down to 6 points, with 5 transitions between each of them. there isn't a way to really communicate 6 points in a minute effectively. that's about 10s per point, and if you want to include the transitions, it's about 5 seconds per thing.
@@ -1688,6 +1785,7 @@ so, when I say that, I am meaning to say that I will be working toward things fe
 
 I watched a segment on seth meyers @[youtube](wh3c7-uVnwQ), which really got me thinking. stephanie ruhle mentions that the economy under trump isn't necessarily performing markedly better; he's just selling it better. that caught my attention. also, abraham is constantly doing quite a sales job for things like meditation and stuff like that too. there seems to be an advantage to "selling" something, and I want to figure it out. I think I've begun to see the light on how to do that. it involves reduction and culling the crap to allow the idea shine on its own... anyway... the point is, I will know by how it feels, not by how it appears (I perceive it to be received). meaning, the idea will be as undiluted as possible, and LOA will do the work. it just needs to feel good to me -- and in feeling good to me, I'm selling myself, and then by association, the idea sells itself. something like that.
 
+
 ### 2018-09-10 13:42 - back to school daze
 
 had a few dreams last night trying to convince me of the value the relationship with the girls will bring. you don't need to convince me. I am already sold on the relationship. it was also notable to me how without resistance I felt. it just sort of felt like a natural transition into that happening. nice. I guess I don't have resistance toward the relationship.
@@ -1720,6 +1818,7 @@ my point is, you can use any feeling that makes you feel good. figure out what i
 
 figure out what it is you do want to do, and only give your attention to that. you can take my visual capacity as an example for how to do it. if you give your undivided attention to what you want feels like, you will get it.
 
+
 ### 2018-09-12 06:27 - I don't think you're speaking to me in my dream-state
 
 I think it's similar to how you're not speaking to esther when you're speaking to abraham. the same way that abraham operates esther's body is likely how they operate mine in dream-state. the guy you're speaking to sounds exactly like me, uses my expressions, and everything, but he is not me.
@@ -1729,6 +1828,7 @@ you can see how this is likely true when you analyse the function of the brain w
 the other day, I was asking mom about her television program, chuck. she said something about how the cia are using his brain and stuff.. I told her that I think that they have completely hijacked my right-hemisphere, because it seems obvious to me. yesterday though, I began thinking of some of the implications. it is quite likely that, just how abraham is able to move esther's body, they are also able to move mine. I notice that they make my muscles spasm when they don't like something I'm doing or I'm seeing images, so muscle movement they already do. however, is it capable of fluid movement?
 
 if they're able to take consciousness from me (or hold me in an unconsciousness state like a sleep-walker), perhaps one of the reasons why they're so super-cool with all of this craziness is because then they could take turns operating my body and having sex with the different girls.
+
 
 ### 2018-09-13 06:33 - when you take away my ability to control myself, I lose self-control
 
@@ -1751,6 +1851,7 @@ other things:
 - regulation "solutions"
 - my dream where I was running then floating
 
+
 ### 2018-09-13 14:15 - I love hurricane season
 
 ... cause it means I get clearer nights to watch stars. in fact, there is a direct correlation between florence and clear night skies. meaning, as soon as florence was considerable, I no longer had clouds appear as soon as the sun was going down.
@@ -1762,6 +1863,7 @@ if there is a correlation, and I believe there is after seeing similar correlati
 let me repeat: I am not causing those damages. likely those damages are as a result to a storm intensified by their attempts to control the visibility of my night skies. mind blowing. for reals.
 
 well, I'll enjoy my clear night skies for as long as I have them! thanks florence!
+
 
 ### 2018-09-13 14:36 - a possible solution to florence
 
@@ -1783,6 +1885,7 @@ my experience is the opposite. when I watch stars, they activate the part of the
 
 the worst that can happen to you is, you have an ayahuasca-like experience for free. when I first started out, that's what the effect was like (without some of the craziness that comes along with the plant consciousness)
 
+
 ### 2018-09-14 07:19 - wack eyesight
 
 if you notice that I'm typically looking to the side, above or below the star now when I watch stars, I noticed it too. in my eyes though, it looks like I'm looking directly at the star, but I'm not really looking at it. the image they put in my eye is not exactly looking any more directly at what I'm looking at. typically, it's shifted to the right a bit, now. as I figured it out, I realised that's why I have such low peripheral vision now. in the last few weeks I've noticed a reduction in my peripheral vision, and it's obvious why now.. if you shift a square image to the left, there's a blank spot on the right side. if you shift your eyesight to the left, since it's a parabolic shape (think circular concave mirror), you need to take some space off around the edges, so you make the mirror more concave, so things look further away, then you twist it a bit, so that what appears in the middle of the eye is really slightly to the left, then you chop off the edges. what you get is a lesser quality version of the image which everything appears further away, and you're not really looking at what's in the center of the picture, which is exactly how things look recently.
@@ -1792,6 +1895,7 @@ wow, the lengths they go to to try and prevent me from advancing with the stars.
 won't stop me from progressing though. when they're finally done dicking around, I'm going to enjoy a small break seeing properly through my eyes so I can have a real star watching experience again, THEN we can do the girls thing... I realise that'll probably never happen, just like the idea of getting to leave the network. they will likely try to hold me hostage for the rest of my life. oh well.
 
 that's why I say it's probably never going to happen. it's just too risky for them to give me such a public position, when we're in direct disagreement on so many different things. it's just easier for them to hold me hostage and settle for just having access to my dream-state (and a network filled with other people they can try to control).
+
 
 ### 2018-09-14 12:25 - what all that means (again)
 
@@ -1819,6 +1923,7 @@ when I was young, I would not walk until I knew that I could make it. consider i
 
 you say, what about the "art of the mistake" that you were talking about so much. a mistake is missing a turn; a mistake is not a head-on collision with a tree at 100mph. that's an accident. this isn't "the art of the accident"
 
+
 ### 2018-09-14 13:48 - why does it have to be like this?
 
 if you think about how the other timelines went, you could see that in a situation where all of a sudden I have other people summoning large quantities of energy from me sexually, you would expect that to create huge desire for me to allow that kind of energy to flow through me again. so, it would. the desire produced by the sexual summoning would require that kind of alignment from me, and since it is what I already want, it would be a nearly instant manifestation. there would be nothing that anyone could do to prevent it. I'm sure they tried fruitlessly in the other timelines, realising they would be forced to scramble and find a different host for their visual creativity.
@@ -1826,6 +1931,7 @@ if you think about how the other timelines went, you could see that in a situati
 certainly if I just went with the girls now that would work, and I believe it is how I believe it happened in all of the other timelines. this timeline is different though, as it seems I want the satisfaction of finding that alignment myself, and not needing the excuse of someone(s) else's summoning of desire to make that happen. the evidence of difficulty getting this manifestation to happen suggests that there are greater intentions of not needing someone else to find one's own alignment.. so likely, it is quite possible that even the girls have the intention to find their own alignment too, not needing me to be the reason for it.
 
 mostly I think it gives the bso more time to use my visual capacity and an early warning to begin finding their own alignment, or start looking for a new host. I would love to see all of the world have this capability too, but something tells me the bso has had enough coffee table experiences with visually capable people like me, that they will likely want to ensure that no one else gets an uncontrollable (by them) visual capacity ever again. and, who knows.. instead of trying to vicariously use mine, they may actually learn more by observing me mine. eg. there's no way a dancing puppet can ever dance better than a real dancer can, especially if the puppeteer has never even seen a real dancer dance.
+
 
 ### 2018-09-16 02:35 - I love futurepop/ebm
 
@@ -1902,6 +2008,7 @@ so, put yourself back in the workplace harassment scenario where the guy is hold
 
 in this metaphor, I am the woman in and the bso is the sleazy guy, so the "you haven't earned it" song for me is a pivotal moment where I get to say to them that they haven't earned my visual capacity. they have not lived the life I have lived which caused me to want it. they did not go through the necessary task of releasing resistance to achieve that high of a frequency to be able to allow something like that. they have not earned it, but I cannot do anything about that really. though, what I can say to them is, you may believe I have not yet earned the promotion because I have not given you the sexual favours you desire, but you have not earned my favours either. so step the fuck off and "enjoy the *need* of all the thirsty minds awaiting light to see"
 
+
 ### 2018-09-16 06:51 - a more practical example
 
 I have realised the difficulty with the example of the workplace harassment and withholding of the promotion for sexual favours. instead, let's imagine something more practical.
@@ -1924,6 +2031,7 @@ it sounds pretty crazy that his goal is to give away his coke for free, but in h
 
 sidenote: I love how the word "users" can be used in the context of both drugs and members. lol
 
+
 ### 2018-09-16 13:53 - step 5 shocks
 
 zehra posted a reply to my comment on her video asking me what emotion I had with the shocks. I decided I'm going to reply here.
@@ -1931,6 +2039,7 @@ zehra posted a reply to my comment on her video asking me what emotion I had wit
 I can't think of an exception, so proceeding the shock I am always feeling quite good. in fact, I am feeling so good that is what causes the image to form in my eye. I have always wanted a visual capacity like nikola tesla has, and so to begin translating energy (good feeling) into something visual means I have come into alignment with what I want. usually right after the shock, I often feel negative emotion, which means my inner being perceives the shock differently than I do, which is why I feel the negative emotion. that's why I think it's step 5 practice, because I know what I want (step 1), source answers it (step 2), I find a way of coming into alignment with it (step 3) and begin to see the images. even though I have been shocked in the past, I'm getting quite good at still coming into alignment with what I want that it's normal for me (step 4), and then I get shocked. once I again I know what I don't want (the shocks), so I do know what I want (to translate energy visually), so I'm back in step 1 again and this time I have to find a way of not being mad at myself for attracting the shock (step 5).
 
 so, I believe the shocks are a good thing now. they're just step 5 practice, (or, in last night's analogy, it's when the cops come and confiscate the coke) and I'm really getting used to not letting them really bother me any more. I know that what I want is all queued up for me and ready to go, and all I need to do is to come into alignment with that. my realisation this morning is that likely when I am so practiced at step 5, the shock will no longer bother me and so I will no longer attract the shock, finally achieving mastery of step 5 and also gaining an incredible visual capacity! it sounds good to me, and the idea of coming into alignment with both of these at once is exhilarating to me
+
 
 ### 2018-09-16 14:40 - inspiration of desire
 
@@ -1945,6 +2054,7 @@ sidenote: I don't really know how they're going to do that because I can often t
 ---
 
 I believe this conflicting desire will continue to grow where the bso desire to control people will continue to get stronger, and other people like myself who come into alignment with their broader perspective and are able to have an uncontrolled visual experience. the two desires will feed off of one another, both sides fast-tracking the desire of the other side. the secret is step 5 here, because no matter how strong their desire to control is, no one (accept for yourself) can hold you away from your desire. all anyone has to do is to come into alignment with it and you do that by controlling your emotional response, not the circumstances.
+
 
 ### 2018-09-17 23:59 - simplifying the bathtub metaphor
 
@@ -1977,6 +2087,7 @@ it's also kind of funny to me too, that literally no one accept my inner being i
 I also have been thinking about the incompatibilities around this whole thing, and it's kind of funny because it seems that there were a lot of potential futures that passed me by in this process. so, perhaps just like how only my inner being gets to experience my full physical experience, only my inner being got to have those experiences too.
 
 I wonder if that is one of the attracting factors for me to bridge the gap between my non-physical source and this physical experience. since that desire is in fact probably the main contributing reason why there are so many incompatibilities, it's sort of like a problem that created itself as a solution to itself. crazy
+
 
 ### 2018-09-20 09:10 - dream-state interaction with mom
 
@@ -2020,6 +2131,7 @@ for reals lastly... these metaphors, riddles or parables are just a vibrational 
 
 good night :P
 
+
 ### 2018-09-20 12:51 - more about waking me up in the dream-state
 
 after this morning, I woke up with a better sense of what is happening. the reason why I felt like it was the same energy as when I punched mom, it's the serious frustration my other self feels and doesn't know what to do. in the case where I punched her in the dream, it aborted the dream, and same last night -- but the reason why michael (the name I will call my other dream-state self) did not resort to violence, is because just like what is happening to me, it doesn't solve anything. they just clamp down tighter.
@@ -2031,6 +2143,7 @@ he's decided that there's nothing really that can be done. he feels essentially 
 I didn't really think about it, but I suppose that's how I feel too. I was just reacting logically to things. I did gain that new position after sleeping a lot more I noticed, and thought that maybe someone at the bso ensuring that none of the girls thing going through was behind it, but now that I think about it, it must have been my new personality -- saturn's logical implementation of the strong desire expressed by michael. instead of translating it previously as emotion, it now comes out as logic... wow so cool :) crazy how we're figuring out how to communicate and work as a team even though most (low frequency) communication has been cut off.
 
 anyway, so when powerful frustration builds to such a point, instead of responding violently, now he wakes me up, so I can use my super translation skills to bail him out a bit of the frustration. it's really funny, because the sense I get is like a kid and his parent who's asleep in the other room. if the other kids behave badly enough, he's got to go wake dad up and tell on them, so dad can sort things out... lol, I realise I do have a bit of a repressed kid inside, even though he's 18, it's still kind of funny to me he's resorted to telling on the troublemaker... lol
+
 
 ### 2018-09-21 13:38 - another way to interpret the symbols in the matrix
 
@@ -2046,6 +2159,7 @@ imagine that a woman could reduce the perceptive capacity of the man sexually, w
 
 you would notice a lot of woman constantly interested in this neo type, trying to get him to focus his energy outwardly, instead of inwardly. in fact, this is the goal of any "social" part of our society nowadays. the more you focus your energy outwardly, the more approval and the more valuable other people can make you feel. however, if you focus your energy inwardly, other people perceive you as valuable, but they don't necessarily approve of you, because of their own jealousy toward your inwardly self-realised value.
 
+
 ### 2018-09-21 18:07 - the bso, LOA and regulation
 
 I have been against regulation of these brain type devices. it's unnecessary friction, and for example, when I make my brain device, I will want to be able to send signals into people's heads and not have that regulated. you can also see for the coming huge game industry that will be built on this type of platform. not only do you want to create hugely immersive environments visually, but you will also want to be able to feel your interaction with that environment as well. for simple things like a love scene, you will want to have a pretty tactile experience with the game characters for it to be immersive. or, if you're out in an environment, you will want to feel the wind, water, sand, humidity, etc. for the coming interactive movie market, you will also want to control the emotions of the user. the more information the provider of the experience has on the viewer, the more immersive the experience can be. for the coming medical applications possible as well, this is most obvious, the more information and the better capability the device has to affect the user, the more effective it is in tracking and mitigating health risks. to me, it is obvious that the same device which can cause considerable harm, can also improve quality of life quite considerably, as well.
@@ -2059,6 +2173,7 @@ I imagine that these sort of events will take place over a shorter time-scale, b
 right now it would be difficult for a gutenburg to show up, because they're controlling stuff so tightly right now. instead, time needs to pass as they bask in their superiority and domination for some time. the suppression of human creativity for so long summoned, right after the dark ages, a surge in human creativity, we now call the renaissance.
 
 I'm going to take a break now. when I come back, I want to talk about this specifically in combination with LOA and some of the things I've been learning.
+
 
 ### 2018-09-24 15:29 - a future irony?
 
@@ -2075,6 +2190,7 @@ so, that's what I'm saying... there are some things I'm beginning to optimise ev
 so that's kinda where this idea comes from. what if all of this is an enormous irony where what appears to be unwanted, is actually quite wanted. however, until much later (probably when it's able to be heard more easily), this (and probably other) great ironies can be realised.
 
 I woke up this morning with a strong sense, that we're working so hard against LOA to go in one direction, when it's actually the "failure" was actually the better way. I woke up with a sense of irony.
+
 
 ### 2018-09-24 15:58 - the bso, LOA and regulation (part two)
 
@@ -2098,6 +2214,7 @@ you can see how having this device means that a gaming company could provide a r
 
 Ok, that's enough to think about for now. I'm going to end this here, and resume again at a later time
 
+
 ### 2018-09-24 17:12 - the bso, LOA and regulation (more on the transformation bit)
 
 so, if you think of a typical hash function. you can turn millions of bytes into 32 bytes. likewise, you could also add every byte together, discarding the carry bits and also arrive at a 32 byte number. the hash function has various transformations that are performed on the input data to obfuscate as much as possible the original data and make it as irreversible as possible. this is sort of like that. you are taking a lot of data (high frequency signal) and applying a set of transformations on it to get low frequency data.
@@ -2113,6 +2230,7 @@ however, if you discover that different signals have different keys, that means 
 it essentially is like a backdoor or a rootkit into anyone's body. all you would need to do is to discover the key is to find a way of tuning into the location of the body and sending carefully crafted signals to figure it out. this will be the discussion when continuing in the next entry.
 
 peace
+
 
 ### 2018-09-25 13:40 - 4 primary states
 
@@ -2153,6 +2271,7 @@ I think what happens when you do a lot of mdma like I did, is it sort of erases 
 
 I think these two extremes are parallels of what is happening in society today. dmt is similar to mdma in that it enhances all perception in such a way, logic is no longer relevant, and so if you have a lot of resistant logic, you will feel better on dmt, not because you don't have the resistance, but because things look so good, you're not as aware of the resistance.. that's why during a psychedelic experience you have the ability to comprehend some of the most logically challenging stuff intuitively. however, later when you return back to normal, that logic vanishes because it was based on a feeling.
 
+
 ### 2018-10-08 - early morning thought
 
 I woke up with a thought this morning, which honestly I had never thought of, but I'm gonna roll with it and make it my own. it goes like this:
@@ -2164,6 +2283,7 @@ I can roll with that idea further.. I don't really want to make it my own too mu
 I am the only one now who actually is going to experience my own freedom any more; I *must* follow my own guidance. the rest of all of you *must* obey. you have to follow the guidance of someone else; it's what you agreed to do -- and even the people in the highest places are *also* held in bondage to someone or something, and have to obey.
 
 I prefer guidance that comes from within. enjoy getting your guidance from someone else :)
+
 
 ### 2018-10-11 17:58 - weird day
 
@@ -2184,6 +2304,7 @@ I figure that there is no way that we can come to an agreement on my capacities.
 I also terminated the fast. I felt too many external expectations on it. it felt similar to how quitting smoking had expectations attached to it in the carlota era. I wanted to learn more self-control, not prove some sort of status thing for people. I reasoned that I would prefer to take it the long and thorough route, similar to how noone can really pin a date on when I quit smoking, neither do I want it to be possible for there to be a day where someone could say, that's when he quit food.
 
 I did notice a change in feeling toward the end of the afternoon, but they're a one-trick pony: girls are not gonna do it. I *must* gain control over my own head, and really the *only* way forward for me right now is not an action-path: it's finding any way to feel better about where I am right now. I recommend that my friends in the meeting today consider a similar way forward for theirselves. after all, any desire to control externally is only an outward manifestation of one's inward desire to have control over the same thing inside of himself.
+
 
 ### 2018-10-13 - the meek shall inherit the earth
 
@@ -2215,6 +2336,7 @@ right now this is only a theory, but anyone with the ability to remove the devic
 
 I imagine that one day something like a carrington event could occur again, rendering the service non-operational for some time. it does seem likely, and this type scenario would drastically change how things run on this planet. with 99% of the population tripping balls for an extended period of time, the ones with psychedelic experience (drug users and mystics) would make it back to reality the quickest. it would be the archaic revival and the cosmic event I'm looking to grant me freedom from my oppressors (at least until they get the service back online)
 
+
 ### 2018-10-19 13:35 - I am the "anti-christ"
 
 I woke up just now with a realisation that I am essentially the anti-christ. I want to create a system similar to the one the bso has, but for personal use. the idea is that eventually you yourself would become the local-area broadcast tower from which other's can join your network. people would be connected to other people and sharing would happen naturally. I suppose a big tower could also be installed, but isn't within the goal. the goal for me is to create a network where people are able to access their own bodies and minds, and do not need some other entity to make that available to them. it's essentially what I would want in a network. there is not really an easy way to control people with a network setup like this, and control is not the goal. however, I suppose something akin to viruses could exist quite easily. something could spread from node to node, eventually gaining access to quite a bit of the network. I suppose other people could also write programs to interact with other people's bodies around them too. for example, kids might think it's fun to send emotes to their friends in real-time, but maybe for somebody like me, I would find that really annoying, claiming that I wouldn't want other people's emotions making an impact on my experience.
@@ -2238,6 +2360,7 @@ the reason why I began all of this claiming I am the anti-christ is because it i
 I have a feeling that as time continues, the rich will get more empowered to do what they want and more resources to do so -- and the poor will get more disempowered and less capacity to get what they want. (that's the illusion of freedom and growth advantage those in power will get more and more of) however, another group of people will find their own freedom and their own truth within, regardless of circumstance. instead of having the freedom to *do* what they want (the action journey), their freedom will be to *feel* the way they want (the emotional journey).
 
 pick your side I guess, cause I think it's going to get kind of extreme over these coming years. what I believe is happening is, I cannot help myself. I *MUST* go the emotional journey. there is just no other way for me to go. unfortunately, it sort of means being pretty aware of what I don't want all along the way, growing that desire in me for circumstances which foster freedom and personal growth. many people will observe and their will come to their own conclusions about it as will. I think it will cause such a bifurcation of opinion on the subject that eventually there will be a major timeline split, were desire is strong enough for the action journey team and the emotional journey team to both get what they want.
+
 
 ### 2018-10-19 16:49 - followup to previous entry: about timelines
 
@@ -2271,6 +2394,7 @@ totally speculation here, but I can imagine that I may have done this more than 
 
 I will find it quite humorous when they finally get the technology to tune into other timelines and they see how technologically inferior they are, and much fun they've been missing out on spinning their wheels trying to control others so they can feel good. :P lol
 
+
 ### 2018-10-19 - "born again" after the pregame show
 
 in the last entry, I used the words, "born again" because I liked how the christian symbolism felt when I was writing it, but then later that night while watching stars, I was thinking about it, and being born again: that is, growing my desire for freedom, growth qnd joy to be so much that when I'm born again into this world, I'd grow up believing that it's normal to have my visual capabilities limited by the bso (after all, I would have never known any differently) -- yet at the same time my strong desire to expand into the fullness of who I am that continues to grow even between lifetimes, will pull me forward much like how my life pulls me forward even now.
@@ -2298,6 +2422,7 @@ ok, so I left out a lot of details I haven't figured out yet, like how to make t
 I figure I'll find out those key ingredients whenever I get connected with my visual capacity, so I'll give these crazy ideas a rest until then. it appears that I have figured out enough now that I'm satisfied to just practice my unwavering focus on what I do want, continue to bump up energy (creating a few problems maybe every once in a while), and figure out how to make all of this fun, so that I'm absolutely unstoppable.
 
 «you want to be so good at finding your own satisfaction, that nobody is the boss of you»
+
 
 ### 2018-10-23 - the cube and the octahedron
 
@@ -2336,6 +2461,7 @@ wait a minute!!! that means there are four cases! let's have a look.
 
 this is really complicated. I'm going to come back to this... peace!
 
+
 ### 2018-10-27 18:04 - the latest bit that I've pieced together
 
 it seems to have been very important for all of the different christ symbolism and also the moses elijah stuff too, as they have been key to my understanding of the core concepts upon which this latest version is built.
@@ -2351,6 +2477,7 @@ the andrea timeline happened. fwh refers to it as "planet hope" -- which is a di
 imagine that future bso gets pretty good at controlling my body through their devices. in fact, imagine that these guys can make a clone of me and operate the clone's body as if it were their own. they are very interested in making clones, and I'm very interested in having multiple bodies which I can influence emotionally. these clones would be 100% autonomous, but the bodies could also be controlled remotely.
 
 [quick break]
+
 
 ### 2018-10-27 19:41 - and, we're back...
 
@@ -2387,6 +2514,7 @@ gonna take another break. when we come back we will cover:
 4. what this means for the future
 5. the different models and their (emotional) effect
 
+
 ### 2018-11-01 14:33 - justification of action (and some major realisations)
 
 I woke up this morning and I had a few realisations:
@@ -2416,6 +2544,7 @@ millions of the future self-realised and even further improved on version of me 
 
 you could say that I'm taking this present non-action for the future greater benefit of all. lol
 
+
 ### 2018-11-02 05:32 - some politics thoughts / desires
 
 [05:58 - break time!]
@@ -2442,6 +2571,7 @@ for me, information is key. I don't necessarily need to keep super up-to-date on
 imagine you logged into a game and there were all sorts of rules about what you cannot do, yet people still do them anyway. some get caught and some don't, but you have less likelihood of being caught if you have money. money also is fundamental to your existence; without it you cannot live. instead of being in reward mode, your brain thinks in survival mode. the game wouldn't be very much fun to play.
 
 #### more ease
+
 
 ### 2018-11-03 19:08 - I think I wanna go full-swamp
 
@@ -2569,6 +2699,7 @@ with my new understanding about what is happening, I am confident that things ar
 
 I think we should just let the swamp get swampier, as the swamp creatures themselves make things more extreme, will have to (eventually) release their resistance. could take a while though :)
 
+
 ### 2018-11-06 13:06 - kenny vs. michael
 
 last night I listened to an abraham which caused me a lot of emotional destress. the next day (today), I had some pretty serious realisations as a result.
@@ -2590,6 +2721,7 @@ all that is left is vulcrum and this morning my major realisation (from that abr
 the satisfaction zone is in the middle of the emotional scale; you could call it contentment too, but I think the reason why this is important for me, is it's the "let it build" factor and also considering my previous entry on dampening my emotions, obviously the noise cancelling is also limited to the sensitivity of their noise canceller, so again the high frequency emotional signals still get through.
 
 as I learn to maintain satisfaction, no one will be the boss of me any more. they can't control my by making me feel good or bad. I will maintain myself constant, responding only to the high frequency "knowing" that comes along with those emotions.
+
 
 ### 2018-11-09 06:52 - texas midterm ellections
 
@@ -2619,6 +2751,7 @@ there are so many little things that can be done (especially involving tech) whi
 
 just sayin' some really good things could happen here... what if ted could start the wave of uniting red and blue ideas and making them economically feasible with technology.
 
+
 ### 2028-11-11 11:03 - today kind of represents a bit of an extreme (hopefully)
 
 had a really good star watching session last night with mars. I really felt the connection quite well. I went in feeling pretty successful, but after that, I would go outside and every time it felt like I was constantly fighting the clouds. I could see the clouds would dissipate slightly and the stars would shine through quite nicely. however the cloud situation, which usually improves when I begin looking at the stars, would worsen.
@@ -2636,6 +2769,7 @@ I just don't know what to do about the whole shocking bit. there isn't really a 
 speaking of LOA, yesterday was an abraham workshop which I felt quite a bit in relation to me as people were organising their questions before the workshop. after it was over, I felt some calming of the tensions around me and my situation, but having felt the reaction associated with my star-watching, the calming felt more like giving a crack-addict a crack rock to calm down. it helped them feel better for the afternoon, but when I reminded them of their inability to effectively control me during the star-watching, the rage and control seemed to return right where we last left it (on friday night) and even a bit worse.
 
 oh well... I'll just figure it out I guess. I keep feeling changes that will begin to occur to my personality, but I think the most important one is getting a lock-on to the satisfaction zone.
+
 
 ### 2018-11-13 13:27 - birds, the receptive mode and human consciousness
 
@@ -2679,6 +2813,7 @@ like the printing-press (and also the internet) did, it made all sorts of things
 
 following the push to get everyone into the receptive mode for timeline manipulation, the future capability of nearly anyone to broadcast whatever they want, people will become much more aware of what they are in the receptive mode of. again, a very good thing!
 
+
 ### 2018-11-13 19:?? - each era's steps for success
 
 #### steps for success (this era)
@@ -2706,6 +2841,7 @@ I'm very excited about it all now that I'm seeing so much more of the big pictur
 physical <-> desire <-> physical <-> desire
 
 it's like the pendulum of time, and becoming conscious of it allows for a new dimension of freedom not previously realised.
+
 
 ### 2018-11-14 06:35 - more about symbols
 
@@ -2810,6 +2946,7 @@ I think what all of this means is the following:
 
 what may end up happening, is my planetary vision may go the way of the "tesla world system" as I embark on failure. it may also happen that many of us realise immortality as we become a multi bodied consciousness. however, I do not believe any of the crazy things I saw to work out like that (they probably need a few hundred more evolutions or so), so instead I imagine we will instead run the individual consciousness into the ground as we realise our freedom and expansion some more. the planetary consciousness is constrictive in nature, and the planet has not yet passed through the conscious expansion phase...
 
+
 ### 2018-12-02 04:17 - some strugalicious thoughts
 
 yesterday while watching stars I became quite angry. I still have not figured out why I feel such strong anger sometimes. last night though, I came to the conclusion that I wanted my right-hemisphere disabled. the reason being, that I de not receive any benefit from it at all. michael, while being quite charismatic, if things aren't exactly going his way gets pretty frustrated. that frustration builds up to quite potent anger.
@@ -2847,6 +2984,7 @@ the solution to disable my right hemisphere felt quite good to me for quite a fe
 ---
 
 I think I remember there being more reasons, but I cannot remember them now. that list is good enough to hopefully . I think one of the important take-aways from this whole thing is that I want to do this myself. I must do it myself, and I think michael is perhaps attempting to compel us to let him have a physical experience.
+
 
 ### 2018-12-02 13:26 - so, who is this michael character?
 
@@ -2919,6 +3057,7 @@ it's so crazy because when the puzzle game is external, it feels like there is a
 
 this is a super interesting topic I'm sure I will revisit in the future!
 
+
 ### 2018-12-04 08:48 - briggs on deck
 
 in a previous entry @[entry](2018-12-02 13:26), I briefly mentioned "briggs on deck" -- and that kind of started to think again about what that could mean after my new understanding of what could be happening. when I first read it, I did not think of the obvious answer: anya briggs, but instead looked up what briggs means on urban dictionary, which has the definition as, "an extremely fierce hot and desirable male who is excellent at anything and everything." I didn't really think much at the time, figuring it was once again fwh mentioning how awesome he is (lol) however, after all the insanity started, I thought maybe that it was a reference to me, and the rough spot I've been in... I've always had serious problems with that because I really do not want to work for nosebook, or have anything to do with them, really. I found it really hard to believe that both they would change in a way which would make that possible, and how an unhappy journey could turn into a happy ending.
@@ -2938,6 +3077,7 @@ when michael gets a body, I don't believe it'll be possible for them to control 
 with michael no longer working against me, it may become impossible for them to control mine either... we'll see I guess. it could also go in phases where at first my left side is disabled, so even though my visual capacity is black, I still perceive things in it like I do in my imagination now, so maybe we'll reach a day where they *want* me to have a visual capacity so they can at least see an interpretation of what I perceive.
 
 there are a few other interesting implications to this I may visit in the future.
+
 
 ### 2018-12-06 23:42 - contrast, the "perfect guy", and the way I see this happening
 
@@ -2971,6 +3111,7 @@ instead, I prefer more the beginning relationship I had with raquel, before I be
 
 to be continued...
 
+
 ### 2018-12-07 01:59 - the two factions?
 
 I kind of see two different sides forming: on one side you have team nosebook / perfection / tesla / imagination -- and on the other side you have team kenny / contrast / edison / communication.
@@ -2999,6 +3140,7 @@ team contrast is the water swirling around the extremes of the pipe, and team pe
 
 to be continued...
 
+
 ### 2018-12-12 21:21 - reaction and next logical step
 
 I've been thinking about this whole next logical step thing -- because if the rest of my life is going to be next logical step, I should try and identify things in the past that were also the next logical step. as I thought about it, I realised that nearly everything, (even the big things) have been a next logical step for me.
@@ -3013,6 +3155,7 @@ logic is interesting. I never really thought about it in such a way.
 
 another thing I want to point out is that the next logical step is always the most optimised contrast as well. it's not a jump, but a step. it is always the best path. there are many paths forward, but the step is the shortest. it's possible that the next step is not the fastest, but it is the most energetic, because you have more power going into whatever the next thing is.
 
+
 ### 2018-12-12 21:39 - on becoming the next universe
 
 it's crazy how that was something that I was contemplating already before I ever smoked, but it's really been on my mind quite a bit since then. there are a lot of things to be considered if that is true (and I'm going for a 99.999999% truth possibility)
@@ -3026,6 +3169,7 @@ it's kind of a crazy thought to think that while this whole time I had been fret
 unfortunately, there's no way to stop this, and I will eventually assimilate you all as we become the new meta. there are some options which I will go over shortly, but I remember quite clearly thinking that what what seemed humourous to me at the time was to jump right to the manifestation of it and not enjoy the journey, as some sort of cosmic irony.
 
 to be continued..
+
 
 ### 2018-12-14 14:16 - what kind of options are there??
 
@@ -3067,6 +3211,7 @@ I will in the future write more about this, because I think this will be the cho
 
 whatever the manifestation is, doesn't matter; as long as it's perceived to be the next logical step.
 
+
 ### 2018-12-14 16:13 - first realisation of a universe
 
 so, one of the reactions I had to the @[entry](2018-12-12 21:39) was the question how does a universe reproduce? I just like anything, contrast causes a desire in you for an improvement, nothing new about that, and then LOA becomes immediately that improvement. then, (optionally) you can find a way of getting up to speed with that improvement, and you begin seeing its manifestation, first as thoughts and ideas, but most of all, as a feeling of it, and an increasing knowing of its arrival.
@@ -3086,6 +3231,7 @@ let's say that maybe I want to jump quickly to becoming a global consciousness, 
 these are some of the options that are opening up for me. because if I become a global consciousness by interacting with lots of different people through my clones (one way for them to make a profit), or by going up a few dimensions with you guys and merging my thoughts with your mind in the upper dimensions.
 
 you know what... I want to think about this a bit more before going further... I'm noticing some new things I had not before. I promise I will write more out shortly, as this is helping me to process a pretty big idea.
+
 
 ### 2018-12-17 18:34 - on impossibility
 
@@ -3127,6 +3273,7 @@ the reason why relationships occur on the way to the manifestation is because of
 I would imagine there are quite a few people out there in the ethers trying to realise the manifestation that both she and I do better without the relationship. this is an impossibility that can only be realised when looking at time backwards. how can it be possible that we could both be better off for something that didn't happen?
 
 bask in the irony a moment :)
+
 
 ### 2018-12-17 20:51 - the impossibility train has left the tracks
 
@@ -3174,6 +3321,7 @@ I'll explore these differences more in the future, as I'm beginning to compare a
 
 cause, you may not believe me but I have quite some experience with his antics by now, and we've figured out how to cohabitate the same body peacefully.
 
+
 ### 2018-12-18 09:17 - meleading and merealisation (SUPER IMPORTANT) --TOP PRIORITY--
 
 I love how good I am at giving myself compliments
@@ -3184,11 +3332,13 @@ singing my own praises throughout the day
                         [one concept at time]
 [[I] am        realising that same experience external to myself]
 
+
 ### 2018-12-18 09:29 - the news firehose
 
 have you noticed that when I do drugs, the amount of newsworthy bits is overwhelming
 
 I bet trump is jealous :)
+
 
 ### 2018-12-21 10:47 - curving out the contrast
 
@@ -3209,6 +3359,7 @@ the reason why I say next logical step, is because I want to emphasise how much 
 I will be becoming more and more active and ready as time goes on. I'm sure that one of the things I want to do is to begin working, and becoming productive and stuff. I think it would be a lot of fun too if some of the girls joined me along the way too. that way, as the time approaches, it'll be a much easier transition. I like to think of it something like: "work first, then play"
 
 let's work toward that.
+
 
 ### 2018-12-21 11:13 - more about this future
 
@@ -3236,6 +3387,7 @@ however, I have been thinking about this idea somewhat and imagine it would be p
 
 bright future ahead guys. I'm kind of (literally) looking forward to it.
 
+
 ### 2018-12-21 11:54 - conflicting energy
 
 I've been thinking a lot about the difference between contrast, conflicting energy, and diversity of thought. they are all ways to say the same thing really.
@@ -3260,9 +3412,11 @@ the reason why I say is that, is because activating conflicting energy feels lik
 
 I wish you all the best of luck(?!)
 
+
 ### 2018-12-21 12:30 - about the eternal life stuff
 
 so, seeing as the last guy who wanted to conceive a universe and promised those who wanted to believe he had a master plan, got crucified, you will understand completely why I don't want to talk about this... it's my little secret, for now ;)
+
 
 ### 2018-12-21 18:09 - one last thing about eternal life
 
@@ -3284,6 +3438,7 @@ last thing -- because I am fighting these guys so hard, I am becoming like them.
 
 P.S. if shame and scorn just aren't doing it, go for full blown antichrist. know what I mean?
 
+
 ### 2018-12-21 19:48 - lol, I think I know what happened...
 
 the bso seem to have a tendency to put a lot of their attention on what they don't want me doing. they're endlessly dissatisfied with everything I do, I find it very unlikely that they could actually express something they *would* like me to do.
@@ -3293,6 +3448,7 @@ however, they may be getting close to figuring it out, because it seems to me th
 ok so, how are my ratings now? I bet they're much higher than they were, *and* I bet viewership is up now as well with the vision upgrade :)
 
 neener neener neener
+
 
 ### 2018-12-22 11:57 - the father, the son, and the holy spirit
 
@@ -3308,6 +3464,7 @@ if a universe lives in my mind, then that universe has a father which is last un
 
 we may be closer than I originally thought to (and perhaps have already started) creating a new universe.
 
+
 ### 2018-12-22 12:10 - was 2012 the start of the new universe?
 
 that would be crazy if this entire thing started out with them occupying my mind since 2012.
@@ -3319,6 +3476,7 @@ lol, could you imagine these guys stoned??? it'd be pretty funny to see these su
 things are going to be pretty funny I imagine. they may be responsible for the dream world and all of that stuff, but I like to think about the physical implementation of how we can seamlessly grow into being a global consciousness -- and eventually a galactic consciousness.
 
 take your head out of the ground and see that we're going to be much more than just this earth, so we (by we, I mean me) have to start thinking like that, now.
+
 
 ### 2018-12-22 12:31 - the demiurge
 
@@ -3342,6 +3500,7 @@ they are learning from me. that's why it's so important that we fight: so they b
 
 [1]: I bet they're really going to ensure that it is as vapid as possible. I am the vapid shaman!!
 
+
 ### 2018-12-22 14:01 - in the beginning was the word
 
 so, I imagine that when you guys are listening to my thoughts, you hear words. these words (or maybe phrases) are probably the closest match to the signal in my head.
@@ -3353,6 +3512,7 @@ the universe is made up of language. this is a concept that terence has suggeste
 in the beginning was the word [allowed by the bso to be perceived] and the word was with God, and the word was God. that word was made flesh
 
 I am the left hemisphere of the parent universe :) the "prodical son" if you will.
+
 
 ### 2018-12-25 00:45 - the inflection point
 
@@ -3378,6 +3538,7 @@ who knows. the cool thing is, if I'm really kenny in the parent universe becomin
 
 «you are only as powerful as you are joyful in the moment»
 
+
 ### 2018-12-25 11:18 - the predetermined path
 
 when I woke up this morning, the symbols seemed to make a lot of sense to me. however, I believe that the symbols don't need to be followed any more. I/we can do what I/we want to do; that's what makes the time split. so, take my perception of the predetermined path as seriously as you would the monopoly game rules.
@@ -3395,6 +3556,7 @@ if you think about these two worlds, they present some interesting differences. 
 then, the dream world, also having its foundation in LOA will have its "manifestations" (which could be anything) reduced to a limited set of acceptable or least risky manifestations for its inhabitants (like dreaming about doing drugs, or dreaming about things that don't exist yet and aren't catalogued by them would be prohibited).
 
 to be continued...
+
 
 ### 2018-12-17 18:37 - the evolution of desire from era to era
 
@@ -3428,6 +3590,7 @@ I suppose if you think about this further, this is already the case. these guys 
 
 it's sort of like "living continually in the present" -- but more like, "living continually in the dissatisfaction of the present"
 
+
 ### 2018-12-27 20:55 - the backwards man
 
 I just took a shower and I was thinking about the progression of things in my life, in relation to what I talked about in the last entry.
@@ -3456,6 +3619,7 @@ rinse and repeat over and over. this is life. «you can't get it wrong and you'l
 
 I also believe that this planet will never achieve a perfected state. can you imagine how much diversity could exist in one galaxy?? I believe we are right now, the planet in this universe with the most diversity (potential energy) on it.
 
+
 ### 2018-12-29 19:16 - staring at the sun
 
 this afternoon I went outside to sit in the sun and the sky was clearer than usual. I decided I would stare at the sun. these are some of the things I noticed (mainly for me to remember them easier)
@@ -3474,6 +3638,7 @@ this afternoon I went outside to sit in the sun and the sky was clearer than usu
 
 I believe I will be doing a whole lot more staring at the sun from now on. it's really a crazy experience and I feel a lot lot better after doing so. a while ago it was difficult for me to look at the sun with one eye for more than a few minutes, but now I can pretty much stare for as long as I want into the sun with one eye.. only after 10-15 minutes does it start to leave a spot on my eyes. looking at the sun today with both eyes left a little bit of a spot, but not much. I wasn't able to hold the gaze for longer than a few seconds though. I will be practicing though, because I want to get to the point where I can maintain eye contact with the sun (with both eyes) for a really long time.
 
+
 ### 2018-12-30 01:52 - existing in someone's imagination & love
 
 earlier while watching stars I was noticing that when you're in love, the person that you are in love with exists in your imagination a lot. you fantasise about them, picture all sorts of scenarios and situations where you're together and generally all of those things you dream of are positive.
@@ -3485,6 +3650,7 @@ I have used the word hate to both describe how I feel about the these clowns who
 so, maybe I don't have as much hatred as I previously thought. it's a weird idea for me.
 
 anyway, the next thing that I noticed is that if you guys are all going to be existing in my imagination in the dream world like that, it's sort of symbolic, using the definition offered above, that I would have the most intense love/hate relationship with you guys.
+
 
 ### 2018-12-30 02:04 - redefining strength
 
@@ -3504,6 +3670,7 @@ it's kind of anti-structural because my definitions or the structure of my perce
 
 can't wait to [feel the reactions to] this :D
 
+
 ### 2018-12-31 00:08 - getting in the shower...
 
 a strange thought entered my head which reminded me that raquel told me, pretty proud of herself, that all of her ex-boyfriends had not returned to find another girlfriend since her.
@@ -3522,6 +3689,7 @@ another thing that I was thinking about too was the whole aspect of the clones o
 it's a crazy thought, but I've really been thinking of how my instincts to nurture, care, and encourage would manifest inside of this universe, considering I also very much enjoy experimenting, letting things play out, and observing things interact/react with each other.
 
 I think I will make a good universe to live in.
+
 
 ### 2018-12-31 22:50 - military intelligence
 
@@ -3544,6 +3712,7 @@ instead of trying to strengthen rights to ownership and reclaim ownership of my 
 the global village is a term that has been around for a while. leary talked about it, and mcluhan also has mentioned it, I believe. he predicted that as communications improves further past the electric age, we would eliminate time and space in such a way that we would return to more village-like thinking. the nosebook technology does exactly that, and this year I want to really begin allowing that to become a reality.
 
 if we're a global village, we won't really need a military (and I can get my brain back). any foreign "threat" we may have will come from out there in space somewhere. we'll still have infighting for a while, so police is still a thing, but maybe the future is to begin moving forward with the space force.
+
 
 ### 2019-01-01 10:41 - my ideas are free
 
@@ -3581,6 +3750,7 @@ please, just use my ideas.
 
 P.S. to further tie all of this together: the other night, when I replied to Turbo Knight on youtube, I began speaking about some (incomplete) ideas ideas I had about music creation software. because I mentioned reason and rebirth, it seemed like there was some reaction from people related to propellerheads (the swedish company which makes those programs). I laid down and began to try and think of how I would improve on the piano note blocks interface and felt further reactions. so, I got up, was inspired to find mika (which means I found what I was looking for, by dani another musician), which would bring me to remind me about the whole ideas are free thing. it all connected together for me in a perfect end of the year :) cheers!
 
+
 ### 2019-01-02 12:50 - the minesweeper prediction
 
 this morning I watched kripp's minesweeper prediction he posted yesterday @[youtube](SbmBWbgsBnI) and it really got me thinking. I really like those sorts of symbolic things. I do them all the time myself to kind of get a feel for things.
@@ -3606,6 +3776,7 @@ although I felt resonance with his minesweeper prediction, I also thought it was
 I will now superimpose the metaphor that 2018 was the runway, 2019 should be low-altitude turbulence, and 2020, I think think things will begin to cruise along smoother.
 
 nice :)
+
 
 ### 2019-01-02 16:31 - justification
 
@@ -3645,6 +3816,7 @@ I essentially wrote this to begin myself to come to an understanding of what I a
 
 you know it takes a real hardass to, contrary to the current conditions, feel something other than the what all logic and reasoning would dictate them to feel
 
+
 ### 2019-01-05 05:57 - let the games begin :)
 
 the last line in my previous entry got me thinking, because... I can imagine that in a military situation, one would normally feel sympathy, regret, or some other form of negative emotion when giving the orders to soldiers to go into situations that the person giving the orders knows they will not come out of alive.
@@ -3658,6 +3830,7 @@ I have taken that capability one step further. just like them, I too am now runn
 the commander of the army can justify his lack of sympathy or humanity by saying that the battle must be won at any cost. I too have adopted this principal as well :)
 
 let the games begin mutherfuckers
+
 
 ### 2019-01-05 06:11 - don't let your left hand know what your right hand is doing
 
@@ -3701,6 +3874,7 @@ so, I imagine that may be why they are attempting so much to keep me from going 
 
 I think it's fine though, because I will eventually go up to the next dimension and they'll lose ability to control me... I'm not worried about that, as I've proven to myself so many times now that I'm capable of getting into alignment with what I want, I don't see that as any problem at all. instead, I'm learning how to not need the manifestation to feel good. my circumstances actually have me in the most difficult of situations to do that, but as I mentioned in my previous entry, I actually have the best teachers to teach me to be militant and regimented in my posture (well, as militant and regimented as they are anyway, cause I'm essentially just copying them).
 
+
 ### 2019-01-09 04:15 - let's make 'em earn it
 
 yesterday night I was writing out some questions I had for abraham. I had a bit of an "active" night and when I woke up I really wanted to go to sit in the sun. I had set my mind to try and think of all of the enigmatic things that have happened to me so that I could ask questions on the topic. sitting there, one thing that jumped into my mind was something that I documented in @[entry](2018-11-26 03:47) a little bit. I want to know for sure that voice in my head which I identified as edison-like, actually came from source -- not from these guys.
@@ -3737,6 +3911,7 @@ let's make them earn it. it's going to be a lot of fun. I don't know how long it
 
 P.S. I purposefully did not elaborate on the earning part, as the implications to me obtaining a new dimension can easily be imagined. mostly though I really like the idea that we could have our own space for a while without any pests :D
 
+
 ### 2019-01-10 01:11 - I will never have the manifestation
 
 so, one of the things I'm learning through all of this is that I never intended to have the manifestation. in fact, it seems that the reason why I was attracted to a girl which would put me in the hands of people who would electronically prevent me from having any manifestations, is evidence that from a non-physical perspective that is in fact what I really want.
@@ -3761,6 +3936,7 @@ it was an interesting thought experiment for me :)
 you know what would be really trippy? imagine there was another earth-like planet on the exact other side of the galaxy.. not all of the symbols in the sky would be exactly the opposite of the ones we have in the sky, so the energy would be interpreted differently but you could imagine that it would be very similar energy to the galactic energy we experience here (the great year), but 180° out of phase.
 
 you could imagine then, over there something similar where I would be a little boy that got an early start of life like andrea did here... another interesting thought experiment I enjoyed.
+
 
 ### 2019-01-10 09:06 - the cosmic nosedive
 
@@ -3806,6 +3982,7 @@ so prepare for the most. epic. nosedive. ever. :D hopefully I can last the the e
 
 imagine my other theory about the parent universe bso and them running this universe inside of my head in the parent universe... obviously, they don't want me to get the manifestation either, so they want to ensure present day bso maintains control and keeps me from the manifestation. we all want the same thing, in the end.
 
+
 ### 2019-01-10 14:12 - all you do is create chaos, kenny
 
 one of the reactions I felt this morning was the idea that I create a whole bunch of chaos.
@@ -3821,6 +3998,7 @@ I looked around to find out I had just woken up, only to marvel at how normal an
 anyway, while thinking about this whole creation of chaos thing, I was noting how DMT makes things feel very normal. the way that my eyes see feels so normal to me, I can't actually imagine what it would be like to see any less. I can only hope to be able to see more, yet for other people my eyesight is probably a very mind-blowing experience. the same thing in the dream experience... the most bizarre stuff can be happening in the dream, and it feels normal to me.
 
 since the normalisation of the mind-blowing is what DMT does to the mind, I think there is another unseen effect happening, where there are people so amped up on DMT that their lives are so bizarre, but they don't even notice it (just like a dream). so, you have all of these people trying to steer my life for me, completely oblivious to the fact that their own are spinning way out of control.
+
 
 ### 2019-01-10 23:10 - maybe redirect the energy instead of trying to fight against it?
 
@@ -3840,6 +4018,7 @@ I suppose it may seem like a bad idea now, I just was thinking this morning that
 
 additionally, regarding the fear that when I die that energy will go away... I mean I don't have anything to back this idea up, but I imagine that children produce a lot of energy too. the same mechanism could be used to siphon off their energy to keep the dinosaurs alive. I mean you're already neck deep in freeloading off of others to do what you don't feel/want to do yourself -- so why not just double down on it. same thing for the kids... like me, they'll just find ways of making more energy.
 
+
 ### 2019-01-11 13:31 - earth's twin and dominance hierarchies
 
 so, I've been playing around with that thought experiment with another earth-like planet on the other side of the galaxy quite a bit, and I'll be writing more about it because as I reverse the symbols and let the thing play out, I notice what emerges is very much the same thing: the realisation of the individual.
@@ -3853,6 +4032,7 @@ I actually want to kind of write a bigger thing (more than just a blurb like thi
 I might even make it into a full kind of "production" in the sense that there are characters, a storyline, and interactions that kind of illustrate the idea it in a more visual way. it would be mostly symbolic, a kind of like homer's illiad.
 
 I'll play with the idea a bit more
+
 
 ### 2019-01-11 18:43 - triangle of control
 
@@ -3869,6 +4049,7 @@ I have to follow my own orders <->  he's out of control
 I have to be uncontrollable    <->  he's uncontrollable
 
 if you look at the last line in both, it sticks out as something different from the rest. I'd like to revisit this topic more in the future, because I think the key to my understanding this concept lies in that that last line. also, I believe they may be better visualised as tetrahedrons instead of triangles. I need another transformation to add the extra dimension.
+
 
 ### 2019-01-18 00:48 - going a tope
 
@@ -3896,6 +4077,7 @@ I'm just going to keep working on this for the fun of making something. he has n
 
 peace out, chumps
 
+
 ### 2019-01-18 01:12 - clocks and the egoista
 
 today I felt to make a comment about how I really liked how raquel, first thing she did without consulting me or anything was to just take all the clocks down from the wall. I particularly disliked their sound, but since no one I have ever met gets annoyed by the ticking of a clock, I just have learned to put up with it. after reaching some point of frustration I probably would have took them down, but she did that right away and I thought that was really cool.
@@ -3914,9 +4096,11 @@ I may have liked her, but in the end I just wanted to prove my strength and grea
 
 just watch: I'm going to make lucifer's nosedive look like child's play :D
 
+
 ### 2019-01-18 07:26 - of course I'm settin' myself up for failure...
 
 pretty good setup, right?
+
 
 ### 2019-01-19 05:46 - table flipping jesus
 
@@ -3962,6 +4146,7 @@ that emphasis on capability is very important, I think, because capability comes
 
 capability is so much easier to obtain, but it may be possible that you will convinced you need to pay something to get it. don't believe it. believe in yourself.
 
+
 ### 2019-01-19 13:33 - money and value as a simile to (???) and capability
 
 most of this thought was brought about as an extension of my attempts to explain to gary why I did not want to be paid. I had to think and reason about how we value things. so, to explain a little better what I was meaning involving capability becoming the new currency in the economy of superiority, think of money as the metric by which we value things.
@@ -3978,6 +4163,7 @@ I find it likely that a similar thing will happen, where some new metric will be
 
 I think this is where I was trying to get to when I was talking to mom the other day when I was saying that I really did not like the whole death of jesus bit. and now, I'm realising that the part that bothers me is that we're taught that he *paid the price* for our sins by dying on the cross. and so, because of his death, now (and only since then) can we can begin to believe own own inherent value, no longer needing to pay the church to erase your *debts*, and let them be forgiven.
 
+
 ### 2019-01-19 14:52 - a new device and the answer to last night's question
 
 so, last night I posed the question about what could be my overturning of the tables.. then proceeded to write about capability. well, right after that I went to sleep and while I was asleep, they installed a new device in the right side of my nose. my initial reaction would be to respond in anger and destroy something of value for greg, like his computer.
@@ -3990,6 +4176,7 @@ I don't know. it seems all connected. so, maybe it wasn't a publicity stunt but 
 
 instead, I will show them how much stronger belief in, or knowledge of one's own capability is, than any amount of devices they could have installed.
 
+
 ### 2019-01-19 - capability vs. superiority
 
 there are many auto mechanics that believe they can fix anything -- and the majority of them can, just as they believe it to be. this is belief in one's own capability -- however, when one asks who is the *best* auto mechanic, now it becomes a question of superiority, and there can be only one. one must measure capability and appeal to the to the judges to determine who has the superiority. it's the judges, of course; they are the most superior cause they're the ones doing the measuring.
@@ -4001,6 +4188,7 @@ to give another example, there are lots of programmers who believe they can prog
 imagine trying to determine who is the "best" programmer. it would be such a contrived task to measure such a thing, you'd only be measuring the programmer's capacity within metric. I say this because we had to give "programming tests" to potential hires when working for tuenti, and it was such bullshit, such complete rubbish, that made no meaningful reflection of a programmer's capability.
 
 I hate to admit it, but I the feeling I get from those programming tests is one of a contrived sense of superiority given by the people currently employed as a way of seeing of someone can measure up to some bullshit metric the guy in charge has of what a "good" programmer can do... it could be a reaction to erik's nonsense, but I remember having read quite a few hacker news (of all places) comments about the inviability of using a contrived programming test as a meaningful way to determine a potential hire's capability. I'm done ranting now; sorry about that :)
+
 
 ### 2019-01-20 00:03 - back to value -- where did it come from?
 
@@ -4040,9 +4228,11 @@ I think that's why he often said something similar to (not an exact quote), "oh 
 
 this entry is dedicated to aaron. he helped me connect a lot of these ideas together. word up :)
 
+
 ### 2019-01-20 01:33 - our backward perception of the utility of communication and imagination
 
 I find it interesting the backwardedness of our understanding of communication and imagination: most people use their imaginations as a means of understanding and rerealising the external, physical things. also, communication is thought to be a means by which we can control the external, when really communication is to allow for the spread of ideas, something which enriches the internal. I perceive both of these as a means of enriching the internal, yet it seems that the way things have progressed, there has been significant effort to try and control and keep people's communication and imagination externally focused.
+
 
 ### 2019-01-21 07:28 - paying attention to my energy
 
@@ -4062,6 +4252,7 @@ instead of trying to do something that I don't want to do, I simply won't. I see
 
 so, I don't do things when I don't feel well or when the thing doesn't feel good either. good luck trying to figure out how to force me to do something I don't want to do and have it not look like slavery :P
 
+
 ### 2019-01-21 07:59 - some responses to reactions to my last entry
 
 1. we've seen you not want to do something, then you were able to do it.
@@ -4076,6 +4267,7 @@ maybe *you* believe that you do, but I create my own reality. so, I focus on the
 
 sounds good bro. I suppose it'll be interesting to see how that works out for you. if you want my advice, stick to creating your own reality.
 
+
 ### 2019-01-21 09:00 - the unresisted state
 
 my last entry spawned some thought, and one of the things I mentioned is how I have a rule of not doing something I don't want to do because it doesn't yield good results.. well, I also have a rule about not lying -- for the same reason: it doesn't yield good results for me.
@@ -4085,6 +4277,7 @@ so I was thinking about how I have noticed that in my dream state, it seems that
 a little bit ago I lied on purpose to mom cause she asked me what I was thinking about when she clearly knew the answer, because I was having an internal monologue about the guys in charge of nosebook's antics. I said I was thinking about taking a walk. which was true, cause it was the thing I had thought of before going off on my tirade. and, I did notice a shift in the energy after that; not one that I liked, so I'm sticking to not lying, cause it feels best to me, unless it's talking to mom about some tirade I'm on, which has more resistance than lying.
 
 always path of least resistance for me. which makes me wonder what sorts of awful questions they're asking me in my dream state which lying is less resistant path... lol
+
 
 ### 2019-01-21 09:50 - the reason why things look taller...
 
@@ -4107,6 +4300,7 @@ coming soon... :)
 for now though, it looks like their machines are not capable of this yet, so likely you'll only be able to see that when directly connecting to me, and not looking back in a saved experience. it also seems that they prefer me to *not* see the space in-between, so I'm driven to continually go for more and more visual upgrades. I imagine they're going to get a whole lot easier now that I know what I'm looking for.
 
 P.S. greg and mitch: look up a few entries where I spoke about the unresisted state. I want to add another thing to that, which is, for a person who has all of their thoughts broadcasted, saying my goals is not the path of least resistance. instead, it's the path of least allowing. for me, the path of most allowance is to state my goals upfront, and let these guys push against them. I'll let you guys figure out how the path of most resistance for me is actually the path of most allowance :) (hence why I stated the extrapolation of the space in-between -- precisely so these guys will push against it)
+
 
 ### 2019-01-25 22:19 - everything seems hard to me right now.
 
@@ -4138,6 +4332,7 @@ I can't quite conceptualise it. that's just what it feels like.
 
 peace
 
+
 ### 2019-01-27 18:51 - the firstborn
 
 earlier I was passing over my previous experience out at loaf n' jug with frank. anyway, when I came back I explained to mom how the part where he was being an asshole to the gas station attendant (john) was something I didn't enjoy. I mentioned that whenever zaryn gets around his friends he seems to need to prove how important, and how big of a deal he is, to them.
@@ -4157,6 +4352,7 @@ the other day too, greg mentioned that he thinks of me as a firstborn prophet. s
 > firstborn -vibrations seem to be what the originating +vibration would be it it were -
 
 so what is the vibrational opposite direction of a prophet? I don't know right now. it's certainly something worth thinking about.
+
 
 ### 2019-01-28 22:22 - who is more better?
 
@@ -4189,6 +4385,7 @@ back on track here... so, now we're going to begin realising the real-life imple
 I think it's ok though because like I said earlier about the wanting someone to do something for you which you do not feel *capable* of realising yourself, goes both ways. additionally, any relationship based on a system of control is bound to eventually fail.
 
 I must maintain my direction of achieving the things I'm looking for, without depending on someone or something else to do it.
+
 
 ### 2019-01-31 21:27 - not letting anything outside of you that you cannot control negatively affect the way you feel
 
@@ -4228,6 +4425,7 @@ you can see how typically the male is more self oriented and the female is more 
 
 and so, before you go off on some tirade about gender roles and stuff, I'm generalising on purpose (clearly I'm speaking about majorities), and merely by recognising these kinds of energetic transitions, we can gain control over it, and make it whatever we want. it is my intention to make a very definite plot twist on this whole male/female dominance cycles, because I don't see why both of them couldn't exist at the same time, alternating back and fourth between setting and breaking the meta. additionally, I've also been giving some thought to try and figure out a way to make it three phase, as if you know anything about AC electricity, three-phase is very efficient. we would need a third "gender" though.
 
+
 ### 2019-02-01 04:43 - a depressing realisation
 
 this morning I'm a bit depressed because I realise that no matter what happens, they will constantly try to control the situation, meaning that, much like what happened with gary, something that felt good will turn into a poop. I think it may be this way indefinitely, actually -- with the only goal being that some of my ideas will actually see the light of day as I continue to get better and better at managing how I feel.
@@ -4235,6 +4433,7 @@ this morning I'm a bit depressed because I realise that no matter what happens, 
 meaning, if the goal is for me to become completely unaffected by their attempts to control, then it seems obvious that this will continue on as long as they can affect me.
 
 I have confidence though that I will gain the capacity. it just may take a while.. a lot longer than desired, I suppose.
+
 
 ### 2019-02-02 01:59  - your mission, should you choose to accept it...
 
@@ -4272,6 +4471,7 @@ I'll write more about this subject again, but it seems to me that this is perhap
 
 anyway, I also want to mention that I never understood the progression of the symbols in the zodiac until I began this exercise and started reading them in reverse. it makes so much more sense backwards.
 
+
 ### 2019-02-03 19:06 - why do I want them to limit your capacities, also?
 
 no real good reason, actually... the idea behind it is pretty difficult to explain, as there are a lot of variables that I don't know, but the main thing is really the question of whether I can create in your experiences. can my desire for them to limit your capacities become a reality?
@@ -4308,6 +4508,7 @@ they may be able to boost their frequency artificially to achieve whatever, but 
 
 so, let those who need to feel superior limit others capabilities in the short-term, but in the long-term, they're only making us more capable, and making the realisation of their own incapability greater. I'm learning to ignore their short-sighted attempts to maintain superiority, and appreciate it for the massive payoff that will happen, *eventually*.
 
+
 ### 2019-02-04 08:55 - what happens when I die?
 
 for this entry, I will assume the following ideas to be reality: the soliton of improbability, strong conflicting desire which both must are believed to be reality will create a split in the timeline, jesus was one of the manifestations of that soliton, and that I have also acquired such a soliton. finally, the purpose of the soliton is to go so fast that it reaches faster than escape velocity of this universe and creates a new one.
@@ -4342,6 +4543,7 @@ so, just the same, from my perspective I'll realise my desires and then we'll tu
 
 I've already given some thought to how I will make the rules to the new universe, and only my inner being really knows what they'll really be, but I'm sure they'll fit right in with the symbols of the zodiac as I have mentioned previously (or not; you never know... you'll have to find it out and interpret them yourself)
 
+
 ### 2019-02-04 10:05 - I knew I was forgetting something...
 
 I'll skip trying to explain why I think this is so, but if what I say is true, which is all of this is taking place inside of another kenny's imagination, but instead of it being a meeting with a few people talking about super secret stuff (emphasis on the 's'), the there are enough people to fill a planet, many people reincarnating like cage, and making new people that only exist inside the head of the parent universe's kenny.
@@ -4353,6 +4555,7 @@ so, considering that, and that nosebook is the embodiment of the undesired part 
 the future universe (the one nosebook is building right now) will be a continuation of that, where it will contain within it, them, which will be a realisation of everything undesired this time around. that's why they've already began to realise my greatest frustration this whole time, which is the limitation of my capability.
 
 funny way for me to clean up my vibration, don't you think?
+
 
 ### 2019-02-06 10:57 - the new earth
 
@@ -4406,6 +4609,7 @@ this is enough for now to get your mental gears kind of rolling... I'll respond 
 
 yes, this is pretty mind-blowing, I know. peace
 
+
 ### 2019-02-09 12:36 - so I think I've made sense of this whole guardiannship thing
 
 when julia asked me on the phone what sorts of things I wanted to be doing, I gave her a short list of things that I used to think were exciting, but now are no longer because of the difficulty I have attempting to do anything tecnical.
@@ -4431,6 +4635,7 @@ no need for me to fight any more, the resistance I felt originally came from my 
 this song is dedicated to this entry: CXNTRAST - Phase Of Space
 
 @[youtube](XxJPCHq2YO0)
+
 
 ### 2019-02-09 15:55 - what do I see myself doing
 
@@ -4466,6 +4671,7 @@ really, the same thing I'm doing now already... I want to be doing something use
 
 I'm SOOOOO BORED. I really want to do something with my time, and have given this subject quite some thought, and the only answer I can come up with is to take no action until I can feel good about whatever it is. then, when the action goes to feeling meh to bad, quit the action, regroup and try again.
 
+
 ### 2019-02-09 18:02 - so what's in it for future bso?
 
 imagine that abraham is correct and that nobody can hold anyone away from their desire... well, then you would imagine that in every timeline where there is not something catastrophic like me killing myself or something, you could imagine that I do eventually go up a dimension and they are unable to pester me like they are now.
@@ -4500,6 +4706,7 @@ as a contrast, I've also been studying these guy's over this whole guardianship 
 however, as this has played out, they're beginning to realise that the guardianship thing my not solve their problems -- and actually potentially exacerbate them. like me, they decided what the draft should give them.
 
 let me explain: ... I'm having trouble coming up with a good way to illustrate it right now. I'll come back to it.
+
 
 ### 2019-02-11 12:39 - what about the other timelines?
 
@@ -4569,6 +4776,7 @@ this is good for now... a good mental exercise would be to take this from the op
 
 [2]: it has been said to me that I don't tell a woman she's beautiful. I have resistance to the idea, and I don't know why. I believe she should already know this, and if I were to tell her, she would believe that I'm trying to butter her up to get something out of her. I do not see the point in trying to validate something she already should be well aware of with my words. so, imagine this woman in opposite earth attracted partners who were aggressive in their pursuit, and willing to validate her physicality for her.
 
+
 ### 2019-02-14 10:14 - paradox vs. contradiction
 
 their definition is not who I am. I am umch more than that. turn off their definition of who I am based on what they are attracting from me, and attract what you want from me.
@@ -4576,6 +4784,7 @@ their definition is not who I am. I am umch more than that. turn off their defin
 I am everyone's, and at the same time I am no one's. you are watching the person that is no one's because that is where my consciousness has to be -- so everyone that stops tuning into that definition of me and starts tuning into the definition they want of me, gets me that way. I must remain a paradox unto myself.
 
 you might say that is a contradiction, but a contradiction is where one is true and the other is false. a paradox is where they are both true. I don't have exclusivity to paradox. try some mushrooms and marvel at how regular I look in comparison -- and you too can turn your contradictions into paradox.
+
 
 ### 2019-02-14 ??:?? - PC Load Letter; what the fuck does that mean?!
 
@@ -4635,6 +4844,7 @@ yo man, I don't make the rules or even get to use my own capability myself, but 
 
 wtf man...
 
+
 ### 2019-02-14 19:08 - saint valentine's check-in
 
 last year nosebook ran a thing (apparently) comparing different people's valentine's day experiences. I learned about this later in an abe workshop where they advised the woman asking the question to tell the story they want to experience.
@@ -4650,6 +4860,7 @@ as they increase the resistance, think of it like physics. so, in order to preve
 so, until next year, happy valentine's day!
 
 (man, it feels to me like maybe 3-4 years have passed over the last year. I think it's the trump effect)
+
 
 ### 2019-02-15 10:43 - converting anger into pleasure
 
@@ -4719,6 +4930,7 @@ imagine having sex and coming away from it feeling angry (and pleasure). imagine
 
 it's going to be a totally new experience for us all. I wonder if this will take immediate effect on my imagination? (the one everyone's using)
 
+
 ### 2019-02-15 12:07 - anger and pleasure together how does it work?
 
 well, for me what I experienced and seen experienced by others is that pleasure and rage or aggression come both at the same time. meaning you will feel both.
@@ -4737,6 +4949,7 @@ it's weird how this entire process has been becoming the problem that got me int
 
 I'm very confident in this capability now that I've written these two things on it. give me a few tries and you'll see stunning results in a very short period. I've got this :)
 
+
 ### 2019-02-15 12:20 - not everyone experiences coke rage
 
 true. I was thinking about this, too. for example I didn't. there's another dynamic of the brain that coke seems to excite as well, which is the importance/meaning part of the brain.
@@ -4750,6 +4963,7 @@ I think this was originally acquired into the drug's frequency from the people w
 I've not given this much thought, but it seems that importance is to meaning as pleasure is to happiness. I'll see how I can begin to redefine this one too.
 
 ironically, because my life has become so mundane: I eat, sleep, watch stars and watch youtube. that's about it right now. my life has no meaning, and it's not important at all, so perhaps I could leverage my current situation to the redefinition (emotional rexperession) of this concept.
+
 
 ### 2019-02-16 03:40 - separate the wheat from the chaff
 
@@ -4787,6 +5001,7 @@ not everyone will see that kind of expansion. it's very likely that nosebook wil
 
 I did (IMO) a poor job of putting into words what I now can conceptualise easily. everything is going just fine. nothing is going wrong at all. as nancy says, satan (saturn) is there to consume the dust of the earth; that's all that's happening.
 
+
 ### 2019-02-17 12:39 - original justification
 
 this morning, I began thinking the concept of "original justification". the idea is that children being born will grow up to find out that their imagination works because of a guy named kenny, and we're supposed to keep it a secret that we're using his inner universe for our imagination.
@@ -4800,6 +5015,7 @@ in order to atone for this new original justification (the one where my situatio
 I only wrote this for posterity on the origin of the idea, because I decided I wanted to start showing people how I use symbols in my haed to arrive at conclusions. last night was an amazing night for me because watching lindsay ellis' videos on youtube I began to gain an insight into how people's minds work and what sort of things they expect from a good story. the conclusion to this is probably going to head in the direction of the sacrifice for greater good, or something... hard to explain what I captured last night.
 
 (to be continued)
+
 
 ### 2019-02-18 03:55 - what about this idea?
 
@@ -4856,6 +5072,7 @@ peace :D I'm really looking forward to being able to go at my own speed
 [1]: it is erased in the sense that it's no longer visible in the persistent universe, but still exists as a vibration, and can be tuned to, I suppose. however, I assure you I don't care about your secrets. for me it will be going backward a dimension (I assume I'll be in 5d when this happens because likely they won't do it until it's an emergency cause they don't know how to access their secrets, and I'm in 5d now, and they don't want to ask me in person... which is also why I'm writing this here)
 
 [2]: my experience with these planes is, likely it was not a real plane, but one of the drones that paint cloud lines in the sky. my experience is that they do not make much sound, unless someone wants them to make a sound and there is a sound making device which makes an airplane flying overhaed sound. I believe they're electric engines powered wirelessly so they can fly for days without refueling. I have often experienced different intensities of sound frome these airplanes at times when they wanted to distract me from my thoughts. just think about how much those planes sound in the times they make a sound, then pay attention randomly throughout the day, and note how many of them are in the sky and wonder to yourself why it doesn't always sound like 1-4 jets are constantly overhead.
+
 
 ### 2019-02-16 16:00 - hercules: rocky vh. superman
 
@@ -4977,6 +5194,7 @@ peace!
 
 P.S. there are a lot of things quoted above which I didn't touch on, which I think are relevant to my story (as narrated by nosebook)'s similarity to the hercules one. as I continue to see if clearer, I'll update it, I guess. who knows :)
 
+
 ### 2019-02-20 - 11:41 - the end of the era
 
 today in my discussion(?) with mom over the guardianship thing, mom brought up LOA into the discussion. she arrived at the conclusion that I had been attracting this whole thing, which was a bit of a moment of clarity for her.
@@ -5013,6 +5231,7 @@ I really would prefer it *not* to be a competition though. it makes no sense to 
 
 as marcos would always say, "up to you!"
 
+
 ### 2019-02-23 00:31 - indecision 2019
 
 so I decided to start making it impossible for them to enter my room without it being very obvious that someone had come through. my methods are by no means secure at the moment, meaning someone could force entry pretty easily, but they couldn't leave without a trace.. later though, I think, as I go to find my own place, I can make it possible to ensure all entrances are locked from the inside, but I'm not there yet.
@@ -5048,6 +5267,7 @@ so then, now I'm going to hypothesise a little bit here, and this is actually wh
 2. I feel like I want to continue to get more detail levels for as long as possible (at least a few years more actually), but this may be trying to force an outcome and may be incompatible with other's desires too. it really interests me to see how far I can go with this, because I keep seeing (even with ultra-blurry vision) improvements which can be made. I know the guys at nosebook don't want that, and that's where a lot of resistance feelings come from, but they don't want the alternative either, which is going up a dimension -- so, I have no clue what indicators I should be feeling from my inner being.
 
 3. I am my own limiting force more than anyone else is: I simply refuse to to things that I don't feel ready to do. so, I have a bit of "fear" around the idea of going up a dimension because suddenly most of the limitations that I've had will no longer limit me like before. so, I guess my fear is that whenever that happens, I don't want to all of a sudden become an overnight sensation and get sucked into all sorts of things that I don't want, but I can't tell, because I feel so good in comparison to previously. I know I'll be completely out of calibration. so, to anticipate this, my desire is to regain control of many of my energetic capacities *before* I go up, or to have some way of isolating myself so I can adjust to the new capabilities before having the "public" pulling on me. I don't know the best way the best way to be ready to be ready at all, and perhaps maybe this process I'm going through now has to do with the regaining that control over my energy and its utilisation. how do you recommend that *I* (not others, because that answer is meditation) get ready to be ready??
+
 
 ### 2019-02-23 23:54 - delaying the symbol
 
@@ -5089,6 +5309,7 @@ this entry has been brought to you by CXNTRAST and the reality technicians[^2]
 
 [2]: I have this sneaking suspicion that nosebook has been instrumental in this whole thing. they were likely the origin of (what my brain interpreted to be) edison, then the whole thing about things taking shape in the spring. then, I think they set it all into motion with the guardianship thing by trying to force it. it could happen in the spring, but I think with this concession, it'm "delaying" it.
 
+
 ### 2019-02-27 01:10 - so how long do you guys want to drag this on for?
 
 I seem to be getting visual levels pretty quickly now. it's so easy, it feels nearly effortless now which is really nice. I don't know if it'll continue to get easier,stay this easy, or if I'll stagnate a bit. I imagine that at some point, I'll begin to stagnate but I don't think it'll be soon. I am absolutely convinced that levels are achieved by releasing resistance, first and foremost. I think that the physical activity of looking into the star is only a small aspect of the visual upgrade [^1].
@@ -5115,6 +5336,7 @@ I used to (earlier today even), have difficulty with the implications of them ga
 
 [4]: just as michael bay can put a different hue on the movie's syntax with his visuals, the audience that believes his visuals more, believes the message his visuals convey. so, he attracts an audience that will appreciate those visuals and their message. likewise, nosebook can put a different spin on my perception with their authority. those who believe in their authority more, believe their power their authority conveys. they attract an audience that will appreciate their authority (and control). this is why, I can having so much success defining my own perception now, because I no longer believe in the authority they have over my perception. (the "train" outside agrees with me, btw (lol))
 
+
 ### 2019-03-01 19:12 - visual and social introversion / extroversion
 
 just now I was responding to a reaction I had where I wanted to illustrate that I think that a person is not only introverted or extroverted -- but both. I think this happens with sensory stimulation and social stimulation.
@@ -5128,6 +5350,7 @@ I believe that human evolution is a constant swapping back and forth between the
 (this doesn't make a whole lot of sense without the idea of creative / sexual energy as the foundation of this inner universe)
 
 (additionally, the idea works better with visual/social introversion/extroversion rather than all of the senses, because -- well, I don't know why. it just seems to be easier to understand because we don't tend to think of introverted senses, but we can conceptualise the difference between imagination and vision)
+
 
 ### 2019-03-03 23:56 - I don't care any more
 
@@ -5164,6 +5387,7 @@ learning to navigate this consciously is kind of an interesting experience becau
 I have no idea what all of this means, cause from my perspective, this is just a big game to me where I have to keep finding the way forward, and it's most impressive for me to kind of see what I'm actually capable of... I remember how many times I've thought how good things look, and it couldn't possibly be better, but then I find a new one that's better. soon, that same method will be applied to my physique. I'll say to myself, "dang, there's no way I could possibly look better than than I do right now" -- and then I'll find a way :)
 
 or, with anything really. that energetic process I have learned with the stars can be applied to anything. watch how I begin to utilise it to find all sorts of improvements I couldn't even perceive to be possible (usually though, beginning with a weird feeling, then a vague idea of how they might be butter, and then finally discovering its improvement, and letting that "surprise and delight" me).
+
 
 ### 2019-03-05 15:15 - extraterrestrial earth mini-series
 
@@ -5209,6 +5433,7 @@ nice :) ... to be continued (obviously, there are a lot of implications to this 
 
 [1]: the subject of motivation is one of the most common ones to be found on places like hacker news and stuff. for me it's all about energy management and a belief in one's creation. so, I believe this is actually one of the primary reasons why there are so many trends in programming, because if php (or nodejs, or elixir) is the hottest new thing, and you're using that, it helps with the belief -- even if you're making an app for door to door kitty litter delivery. additionally, there is a lot of energy around the trends because of the money invested by the people pushing them, so the trend is like free energy, and the programmer can ride off of that easier than they can improve their perception of their product in their mind.
 
+
 ### 2019-03-08 22:30 - taking no action
 
 I talked with xander about mom's decision to move, and then he suggested that one of my options was to apply for the ssdi thing, which I told him I didn't really like the idea of a whole lot, even though I realise it is temporary. we ended the session with the idea that getting my own space would be a good thing for me to kind of begin to change my headspace a bit. then, yesterday while watching stars the idea of working with gary again was put into my head, which I didn't really like the feeling a whole lot about.
@@ -5234,6 +5459,7 @@ as I gain more energy output, I will become more unstoppable than I already am, 
 [1]: it may have backfired a bit on them though, because it got a lot of people believing that this would be happening this spring, which if you combine it with the other understanding that I will be waiting until I go up a dimension and get things under control, it could be inferred that nosebook inspired a lot of people to believe that I would be going up a dimension soon for that to be true. if that were to be the case, I would prefer it to instead be spring next year, as that'll give me a whole year of star watching and a chance to get a handle on the new dimension a bit. it may also give nosebook enough time to figure out the signals, and start trying to limit/control me again, which will cause me to lose energetic control again and so I will go back to gaining more levels.
 
 [2]: self-control is an interesting idea, as it essentially means a total revamp of my logic, definitions, and the value of an idea. it is a complete change in my personality, because as you will recall, one of the most attractive things about me previously was my lack of self-control. I was able to do nearly anything because I had no control to tell me otherwise. the girls liked the idea that I was so easy to accept their ideas, nosebook thought of me as a naïve child and wanted to control and exploit me as such, hoping I would never grow up. nowadays, I can appreciate these attempts to control me, as they have built in me a new ability to be self-controlled.
+
 
 ### 20§9-03-09 01:07 - you gatta want it
 
@@ -5263,6 +5489,7 @@ I have this mental image (feeling) that I'm beginning to practice and it's this 
 
 [1]: I would find it quite humorous if the guys at nosebook, with such a strong sense of superiority, all say to themselves watching others steadily achieve more and more resonance with who they are, "no, I cannot stand the idea that someone (other than me) could have such power! I *must* come into alignment with myself first, before them!" :D
 
+
 ### 2019-03-11 14:37 - CAWK: COALITION ADVOCATING for the WELL-BEING of KENNY
 
 the last few days after having a dream with pepsi product placement, I had been pondering an idea where now that I have a guardian (mom), someone can cash in on the advertising. previously I could not ask for my share of the ad-revenue, because for me the the network doesn't exist, so they can easily claim that a non-existent entity does not need to pay me. however, mom does clearly know about the entity, and can easily ask for those dividends.
@@ -5289,6 +5516,7 @@ this entry brought to you by CXNTRAST
 
 @[youtube](IeXTBJ0lBww)
 
+
 ### 2019-03-11 15:25 - another look at self-control
 
 I have noticed that as I release resistance, I become capable of manifesting more and more things. this is really good, if I want to become similar to source energy or if I want to realise a new galaxy or universe sometime in the future. consider the wide variety of things that can be seen by the sun. a wide variety of wars, periods of enlightenment, and all sorts of thing wanted and unwanted have been realised in this solar-system.
@@ -5298,6 +5526,7 @@ similarly, source does not discriminate or label things as good or bad in the wa
 so, as I release more and more resistance, I will become capable of more and more things (both which are considered "good" and "bad")
 
 brb... need break
+
 
 ### 2019-03-11 16:27 - self-sabotage and why manifestation may not work some times.
 
@@ -5318,6 +5547,7 @@ I believe one of the main goals of the people trying to gain control is to be ab
 in a military type situation where someone needs to blindly follow orders, this intention to want to control or motivate someone to perform the actions from the commands from the person in charge, may work (well?). so, you could imagine that maybe that is actually intended that soldiers, and people who don't follow orders are to be as disconnected as possible, in order to be able to easily motivate them.
 
 I believe some time in the future, there will be a complete 180° change of opinion that orders need to be followed, and that self-sabotage is bad. we're no there yet though :)
+
 
 ### 2019-03-11 23:06 - another look at self-control (part two)
 
@@ -5349,6 +5579,7 @@ so, as it stands, and you may or may not agree with me -- I believe the best pat
 
 [3]: if you recall the triads of the sirian guide, vulcrum was the base, saturn was the second male in the triad, and sekmet was the female. since I already identify with volcrum (limp leg, 5th ray, creates things for zeus, etc.), that makes two of us already in the same body. 1st ray and 5th ray (desire and emotion) operate on frequency and harmony, so they're missing the logic tools or structure (3rd ray) to make make effective and and long lasting creations. the missing factor has been this saturn guy (3rd ray). people such as zaryn, marcos and augusto have kind of fit this saturnian role up, and since 2016, nosebook has had the saturnian role. however, it is time for the re-realisation of saturn. I have given it quite a bit of thought, and this process I'm going through is actually the preparation phase for that. you may have noticed how carefully I have been studying these saturnian archetypes, and I plan to emulate them to the best of my ability, redesigning all of the parts that I see fit for improvement.
 
+
 ### 2019-03-12 01:11 - faith as a precursor to manifestation
 
 one of the interesting things about the conversation I had with david was the concept of faith being the ability to "see" something that is not yet physically manifest. after that, I presented the concept of faith as a transformation:
@@ -5369,6 +5600,7 @@ this faith component is really the capacity to feel the presence of something no
 
 also, and this is just a test for now, try to take elements you visualise in your imagination and logically arrange their interactions, so that it's no longer a static image but a living thing. you should, like tesla with his motors be able to return at a later time and find them still functioning. any programmer can easily test this by visualising a computer, and tren writing a simple hello world program that prints out the time. come back later and it should still be printing the time. congrats, you just made a persistent mental clock.
 
+
 ### 2019-03-14 02:58 - here's to the next detail level :)
 
 happy pi day, and I really am looking forward to the next visual level. I'm going to sleep now then greg will enter my room and install more stuff in my body in effort to try and prevent me from actually enjoying life.
@@ -5386,6 +5618,7 @@ I suppose I should work on trying to improve the strength of my eyes so that the
 therefore, I imagine that eventually they're going to come up to a limit somewhere. I suppose too that every time this happens, I'll achieve yet stronger focus still, and a new visual level, until that limit is reached. I have no idea how long it'll take, and if there are even limits for my ability to focus.
 
 meh!
+
 
 ### 2019-03-15 21:51 - checkmate? I doubt it...
 
@@ -5415,6 +5648,7 @@ if my performance is not affected, I see no reason to change anything. all of th
 
 it seems, I really have come half-circle on this... lol, that's 180°, and it happened on pi day, which is (literally) half he circumference of the circle, per unit radii :D
 
+
 ### 2019-03-16 ??:?? - the solution to increasing human energy
 
 I imagine a situation where nosebook says they cannot afford to pay out ad-revenue because they're bleeding cash. the first thing that comes to mind is the amazon way of doing things, being famously unprofitable while reinvesting all money into expansion. meaning, there's a reason why it took facebook so long to expand into 3rd world countries, and when they did, they had the idea that facebook would be considered "internet" to the people who don't know any better. clearly this is more of a (market) control move, than a profit margin move.
@@ -5430,6 +5664,7 @@ what if it's actually part of the plan. I'm going to recount a bit of a work of 
 a famous guy wrote a monumental paper on the problem of increasing heman energy. we'll call him niki. anyway, he approaches the problem (like I did at first) from a physical perspective, beginning with some calculations of mass and velocity, and finishes off with some practical solutions which he thought could provide what now has been termed "abundance" (as defined in the book jori gave to me) ... if we could provide his kind of abundance we could increase human energy, he concludes.
 
 [going to read it again before continuing]
+
 
 ### 2019-03-20 20:54 - becoming more non-resistant
 
@@ -5454,6 +5689,7 @@ additionally, the more I release resistance, the less nosebook has to control me
 when that happens, I will perceive reality as source does. I will become "source-energy android" :)
 
 coming soon...
+
 
 ### 2019-03-21 00:08 - becoming more non-resistant (followup)
 
@@ -5485,6 +5721,7 @@ so, you see, it's all going along just fine. nosebook has actually given me an a
 
 the reason why I have to see it like an energetic relationship is because I have become the syntax, not the story. having resistance to certain meaningful things, would be like a piece of paper refusing to have certain types of drawings/words on it.
 
+
 ### 2019-03-22 22:21 - two powerful mental abstractions
 
 #### I AM the way that I AM
@@ -5503,6 +5740,7 @@ but then I thought, maybe not all people perceive themselves as protagonists, so
 
 anyway, I want to develop these ideas further because they are both powerful tools. for example, if you see yourself as the director, and your life as the film, and the people around you as your audience, it closes the mental gap between the way you are and allows the protagonist or antagonist to have a character arc.
 
+
 ### 2019-03-25 11:07 - a theory for ben davidson
 
 I've been thinking about his cosmic ray health alerts. I don't disagree that the effect is real, instead I was trying to think of its mechanism for the evolution of life on a planet. this is just an idea that popped into my head. I'll begin with the axioms
@@ -5517,6 +5755,7 @@ so, imagine that there were a value that we could measure which represented crea
 so, when Q is high, there are a lot of advancements, and the earth's magnetic field is strong. (there is more of this creative energy flowing) and when Q is lower, the magnetic field weakens, and more of these cosmic rays begin to flood in. for some people, the impact of these high-energy, high-frequency particles, will manifest as a phycological condition, and for others it'll be a flash of inspiration or maybe even an upgrade to their vision/perception.
 
 [1]: others have called this value different things, but the most notable to me is terence's "novelty theory". this theory does not supplant his theory but instead gives the sun the function if it's regulator.
+
 
 ### 2019-03-27 10:45 - the bigger picture
 
@@ -5538,6 +5777,7 @@ so anyway, in the really long-term, you will notice that the guys at nosebook wi
 
 it's totally all good :) let the power-leveling begin!
 
+
 ### 2019-03-27 14:06 - who is this "who I really am" guy?
 
 before you are born, you are "who you really are" -- someone who is not limited by gravity, can create things in 3d space, and capable of seeing temporally many different possibilities of manifestations. this is your pure energy self.
@@ -5555,6 +5795,7 @@ the goal really is to begin to let the person you are when you are "dead" throug
 [3]: in "AN EXTRA-TERRESTRIAL VIEW OF CREATION presented by KUTHUMI" he mentions this idea that the human consciousness was engineered as a trap. well, I don't know where I got this information (perhaps it was deleted from the original document) but I remember it saying that at first they were designed to be stupid, but it didn't work out so well, so if was finally decided that all the different alien species would contribute their best dna to the human project, and make a the most intelligent species ever. however, it would be limited in capability to their connection to source, and the source energy valve was activated by emotion. so, basically, the better you felt the more source energy would flow through, and the more energy there was flowing, the more these super-human capabilities become available. this was chosen as the best option to allow the INFECTED ONES (lol) to not be able to access their these capabilities until they were "rehabilitated" sufficiently to gain access to them. and now that I see it in hindsight, to inspire desire in them to regain their own connection instead of remaining enamoured with what the physical plane has to offer.
 
     meaning that, the human body is quite capable of withstanding the energy of who you really are -- you just have to tune your way there[^2] gradually. additionally, unlike the bodies that the "creators" used which got used up after 4000 years or whatever, there should be no such issue with the human body. as soon as you are allowing who you really are through, your capability to regenerate entire body parts (similar to jesus) will become available, as the body is really only the inflection point for the creative (source) energy to come through. same with the realisation of the manifestation of something you can perceive in 3d space with your imagination can become physical in the same way.
+
 
 ### 2019-04-01 22:48 - mega-conspiracy theorising
 
@@ -5616,6 +5857,7 @@ good night.
 
 [9]: just as jesus came telling people aquarius is here, telling them of the freedom found in their own capability through self-empowerment (and was what likely snagged the powers of that time.. notice how how much nosebook is has the symbol slightly twisted with the only-nosebook capability for the "self"-emporwerment of "group" of nosebook). I too came with the dollhouse mentality, so the next era, I believe will be about the dollhouse, which is is why I think the present powers (nosebook), will twist the symbol and try and steer the population of the world as if it were their own creations (clones in the dollhouse idea)
 
+
 ### 2019-04-03 17:39 - rollercoaster (of love?)
 
 the other day when I was talking with david, we were talking about control. there are some things over which you have little control, like your breathing, heart rate, digestion, salivation, etc. and you have more control over other things. we concluded on the idea that in the end, really life is *somewhat* like a roller-coaster, and all you really have control over is your reaction.
@@ -5657,6 +5899,7 @@ enjoy the ride!
 [2]: maybe sometime not so far into the future, I want to make clones of myself which I control emotionally. each of my clones would essentially be capable of living life 100% autonomously, have friends, partners, etc. and I, the consciousness of these clones am essentially living hundreds (or many more) of lives at once, assimilating the experience on an emotional level, much like I experience so much information presently through what I call, "reactions".
 
 [3]: this may not begin until the second phase of the era. just as moses had his elijah, and the church had its reformation, self-realisation in people may take a bit to gain traction. I think there will probably be a corporation that pushes this forward, because more than likely there will be an enormous market open to people wanting to experience content other than what nosebook has to offer.
+
 
 ### 2019-03-04 23:26 - the bigger picture?
 
@@ -5706,6 +5949,7 @@ I want to try out my idea (based on my life experience) of generating an enormou
 
 [1]: when I go up a dimension, my inner universe will still work store things the same way  and work the same inside of other people's imaginations, too. you know, we'll both be looking at the vibrations of same material objects, however my vibrational interpreters will perhaps perceive that same vibration a little bit differently. ever notice how all of the stuff in my universe doesn't go poof when I get a vision upgrade? neither does the earth. it's the *same* signal, just perceived a bit differently, is all.
 
+
 ### 2019-04-05 13:11 - the way I see this happening
 
 however it works out, I find it unlikely that on the timeline where the galaxy is being made, I will gain my alignment. it seems logical to me that in that timeline, I will continue to not have any manifestations (big jumps) and will continue to build more and more energy.
@@ -5730,6 +5974,7 @@ I anticipate that nosebook will have a lot of resistance to this plan, but for t
 
 [1]: it occurred to me that nosebook, knowing that it was costing them more and more the longer they have to hold everyone's vision back probably anticipated reversing this by saying that once people see me have sex, then their vision would be improved.
 
+
 ### 2019-04-07 19:07 - another dimension, new galaxy
 
 it occurred to me after I wrote the previous entry while walking to go watch stars that I may already be on the timeline where I go the full time without any manifestations.
@@ -5750,6 +5995,7 @@ we'll see what they try and do about people's vision. I think they'll have to ev
 
 [1]: I have experienced improvement in my vision after meditation, after sleeping, looking at led lights, drugs, and other times from just feeling good. likely the goal here is to try and separate my increase in energy and vision improvements from any action that I need to take to affect those results -- so much so, that there is no doubt in their minds that they are completely powerless to affect my desire. I'll just learn to find the same energetic states without stars or drugs or whatever. it should be pretty simple.
 
+
 ### 2019-04-98 - what a pickle
 
 I just realised that nosebook is essentially being forced to question their superiority because I will continue to gain visual levels at a more and more rapid rate. so... if they want to continue to utilise me as a source of content, my visual level will be so much further along than everyone else's that the content will probably begin to become uncomfortable for most (the same may apply to a person using their imagination). which means, for them to realistically continue to utilise me as the main source of their product, they will have to uncap people's vision so that there isn't such a big difference between their eyes and mine, or their eyes and their imagination.
@@ -5759,6 +6005,7 @@ the other possibility would be to let me go up a dimension, and (assuming Iim fe
 the first possibility, will yield the greatest benefit for all, yet I still will be living in a similar world to the one I am living now, where my sensation, and many faculties of my body are not working properly.
 
 in the end, it'll probably have to be both. what a pickle
+
 
 ### 2019-04-09 03:09 - did jon help me by, accident(?)
 
@@ -5786,6 +6033,7 @@ even weirder than that, could be the idea that somehow the eclipse premonition w
 
 I was thinking about how maybe jon might react to this entry, but -- I hope he just rolls with it :) anyway, thanks :)
 
+
 ### 2019-04-09 18:48 - some more idealised ideas
 
 in my previous @[entry](2019-04-98) I offered the idea that maybe both paths will be chosen. so, this is some further hypothesising on what I think it implies. there are essentially three paths here: 1, 2 and both.
@@ -5802,6 +6050,7 @@ the final door is door #3: which is both doors 1 and 2. the whole planet's visio
 
 [2]: this door implies a strong change in power over toward women because they would be (realistically) the only ones watching content related to me. I don't really know what the full effect I will have on them will be, but the major downside to this path is that at some point (whether it's 2038 or whenever) my imagination will no longer be available. the other major downside is that nosebook would be hardcore limiting people's visual cpability (though this may be a good thing in the bigger picture of increasing human energy). additionally, we don't really know what effect I will have on the women, if they are releasing resistance, they cuold find themselves with very improved vision, and the men are held at a lower one??
 
+
 ### 2019-04-10 09:41 - you know it doesn't really matter what door
 
 I was thinking about it last night, and in my perspective it doesn't really matter so much, because the decision is entirely nosebook's to make. if they are capable of holding me away from a manifestation for the next 20 years or so, then we're already on door #1. nosebook has to figure out what they're going to do about their financial situation though[^1] because each level I get will cost them (and there are still a lot to go -- remember this will have to snowball into galactic levels of energy).
@@ -5817,6 +6066,7 @@ I can't really anticipate how it'll be to actually be connected, but I find it s
 my life is built on so many of these impossible ironies, where the thing that makes something so attractive to begin with, it's actually repulsive once you get to close. or -- the same thing that makes something possible is the same thing that keeps me from it. or -- just when I figure out what I want, something keeps me away from it, so I have to just keep going bigger. these sorts of ironies are all over my life, and I've just sort of come to accept them. as a result, I've gotten pretty good at cutting my losses and moving forward. these ironies remind me a lot of the nosebook energy, and if you remember "AN EXTRA-TERRESTRIAL VIEW OF CREATION presented by KUTHUMI" the creators were unable to abort their creations and start over (loss aversion). I would like to fashion this galaxy in exactly the opposite way, where each loss is only a culling of the unnecessary, because my energetic output and focus is all that matters.
 
 [1]: a while back there was an abraham question about some thing where "someone" was going to die. abraham made the joke that it was a "dead-line" -- and I didn't understand the metaphor but I did gather that if nosebook doesn't find a way to get me with some girls, then there something would die. I assumed it was the company, and that's one of the main inspirations to my hypothesis that nosebook feels they need me to be able to monetise the women. well, after I began realising that nosebook is holding everyone's eyesight at the place it was, I started to piece it all together. also, it seemed like people felt some sort of need for me to have sex, so I hypothesised that nosebook promised that when that happens, people's eyesight would improve (nosebook would use that as an excuse to stop holding people's eyesight back). well, the dead-line came and went and nosebook is still operating, so they must have found some way to get more money. obviously nosebook doesn't want to have the publicity that they're limiting people (cause they probably promised that they're only limiting me for X justified reasons) but to solve their problem they probably got some investment somewhere and it would look potentially worse to the investors if they knew that their investment is haemorrhaging cash to cover up a lie.
+
 
 ### 2019-04-10 17:28 - the sense I have this morning
 
@@ -5835,6 +6085,7 @@ looks like we're in for the long haul.
 as I have demonstrated, their resistance in your eyesight can become a benefit to you and all you need to do is want to feel good. every time we feel better, our vision will improve, but nosebook needs to keep us at their determined to be acceptable level of vision for us, so they make our vision worse by the same amount as it got better (so it looks like no change). that energy extra energy (let's say it's 10 units) is opposite of the feeling better energy, so you find a way of feeling better and now it's 20 units. so they have to put 20 units of energy in opposition to you feeling good (so things remain looking the same), you find a way of not letting that extra opposite energy cause problems, and now you have 40 units
 
 as you can see, the more you purposefully find sustainable ways to feel good (I used drugs at the beginning), the more energy they have to add, and it quickly becomes an exponentially improving thing (it's probably not n^2 because that would mean there is no power loss in your body -- it's probably something more like n^1.2 or something like that). the faster you iterate on feeling better, the faster things will improve. (if that's something that interests you)
+
 
 ### 2019-04-12 16:20 - crazy clones solution
 
@@ -5857,6 +6108,7 @@ so that's the idea in a nutshell, but there are a lot of logistical difficulties
 I see this entry more as like a thought seed. the idea will likely transform into something different, but it seems that if it were to happen, there may be some women interested in combining efforts to make something like this happen.
 
 let it just be an idea for now, as many things will get ironed out. nosebook will certainly try to push against it, but I think that's actually a good thing. you can imagine in a setting like this one, nosebook will ensure that all of the children have their inserts, and like me, it'll be to track them, not to make them a part of the users (so they can watch stars, just like I can).
+
 
 ### 2019-04-16 18:25 - the power of desire
 
@@ -5881,6 +6133,7 @@ simultaneously, it may be prudent for nosebook to begin trying to capture their 
 I don't know if fighting something will work, cause it'll likely have the opposite effect. so since you guys really want to make sure this doesn't happen, and I want to achieve this by myself, please do your best to distract them from their own desire by offering something better for them to give their attention to. I say better, because if it's not better, it'll just make their desire stronger.
 
 wait, I just realised: maybe I'm using reverse psychology :)
+
 
 ### 2019-04-17 - an interesting turn of events
 
@@ -5910,6 +6163,7 @@ I'm impressed. it really feels like my life will begin to become more and more l
 
 [4]: the funny think about teaching someone, and I've always said this that any time I want to teach something to someone else, I'm really teaching it to myself, and the other person is listening. so, it's funny how I set out to "teach" the mushroom that it did not need ideal environment to still be able to grow, yet it was actually me who would be finding the practicality of my own lesson in a few years to come.
 
+
 ### 2019-04-18 2:34 - some more things about mushrooms
 
 so, I just want to say that for me, the mushroom takes a lot of my taboo concepts and begins (or things I'm uneasy about, or have unnecessary fear of) and brings them out right away so they can be reevaluated. seems we're off to a good start (and I only ate one!).
@@ -5934,6 +6188,7 @@ I'm kind of a living mushroom trip :)
 
 [1]: at the time I took them, the only real structure that I had which needed to be rearranged was my structure of how I believed women to be. I had been gaining more and more visual capacity the more I used my left hand, and raquel was sort of the peak of my visual capability. when our relationship began to fall apart, I noticed the visual capacity begin to recede and also the functionality of my left side. I thought it must have been reduced physical capability because of my sadness, but anyway... as I rearranged my structure of how I believed women to be, I began to realise that the women that I knew didn't really fit into this structure any more. this caused me to become asexual, and the rest is history.
 
+
 ### 2019-04-18 21:35 - full moon mushroom meditation
 
 as I've been experimenting with the mushrooms, I do notice that my body is a whole lot more responsive, and my brain seems quite a bit clearer.. but, watching stars isn't really very fun. my mind wants to be active when I have mushrooms in my system, and stars are really good as a relaxant.
@@ -5949,6 +6204,7 @@ I plan to just meditate into a good place then just kind of let my mind wander a
 peace!
 
 [1]: I'm also convinced that nosebook has figured out how to neutralise the psilocybin in my stomach or something because there's no way I could eat as many as I did and barely feel anything (I'm feeling pretty sober right now).
+
 
 ### 2019-04-20 11:17 - the way I see things happening
 
@@ -5983,6 +6239,7 @@ so just hold tight, and I think they'll fight it for as long as they can, but ev
 [2]: actually, now that I think about it, a planet's vision is likely similar to my inner universe: you can go inside of it and it's like a space where you have things in it, and you can see its contents from all angles around it.
 
 [3]: the idea behind this is that I've noticed that my eyes emit light out of them and I (should) perceive the bounces that the light takes both coming out and going into my eye. as my vision increases, the smaller and smaller details become more and more visible. you can imagine that the sun can "see" things on this planet in a similar manner.
+
 
 ### 2019-04-20 13:36 - prairie dawg day (groundhog day revisited)
 
@@ -6021,6 +6278,7 @@ happy 4-20 !! :D
 [2]: the brackets in my head are similar to the inserts nosebook has in all of us, enabling all of us (once joined into nosebook) to receive signals from other timelines as well. they are just reflectors of signals (high frequency to low frequency), kind of like a mirror.
 
 [3]: kind of like if the universe lives in someone's mind, who's mind universe did the first universe live in? maybe there was no "first" anything, and we're living in a house of cards built upon ever increasing complexity, only held together by our belief that it seems to reality.
+
 
 ### 2019-04-20 16:01 - prairie dawg day (followup)
 
@@ -6074,6 +6332,7 @@ at some point, you will begin, like what is happening to me now to begin to real
 
 [2]: nosebook already does this to disable capabilities. for example, it's difficult for me to do anything with my heart (probably because it makes strong visuals), or they disable emotions that I have in attempt to reduce the amount I am able to pick up on a person that I'm vibrationally tuned to, like jaron or any of the girls, or anyone really. when those machines detect a heart signal, or whatever, it triggers an action -- ususally to make the opposite signal (destructively interfere with it), but really any action could be taken.
 
+
 ### 2019-04-20 17:50 - I'm just going to relax and maintain focus
 
 I think it's really worth mentioning that coming to understand how all of this works, I am sure that when I finally get to use technology like this, the first thing I'll do is to take this timeline and just keep adding more and more contrast -- you know, going in the direction of not having the manifestation and see what sorts of results come up. the reason why I say that is because I'm sure that the result of that is far far far superior to anything I could possibly even dream up.
@@ -6083,6 +6342,7 @@ I'm sure this is what has been done and so I just need to relax and maintain my 
 ---
 
 I do wonder how long it would take to get vibrationally similar enough, so like if I'm quite vibrationally very strong, would I need to start over from the time when I was in vallecas, or could I make a more recent checkpoint... cause man that's a lot of contrast, and to have to sit through all of that again seems like a whole lot of self-sacrifice. I hope (there probably is) an easier way.
+
 
 ### 2019-04-20 18:26 - many others, as well
 
@@ -6095,6 +6355,7 @@ it's actually quite likely that almost everyone around was in on it, and things 
 it was really weird for me to begin to figure out that it was me all along that got me into these situations, and also me that has ensured my successful conversion of all the energy from the difficulty into something that could previously be conceived of in a dream-state.
 
 any negative emotion they feel is only momentary, similar to how I had mega depression, anger and frustration. all of those negative emotions were only indicators that I was perceiving it differently than my inner being does.
+
 
 ### 2019-04-22 00:25 - further speculation on future transitions
 
@@ -6172,6 +6433,7 @@ until then..
 
 [6]: in the age of belief, after elijah showed that it was someone's belief, not the action or trinket that made the difference. this established the "office of the prophet" -- where, the more social value you had, the more people believed your prophecies, and so therefore the more effective they were.
 
+
 ### 2019-04-22 19:53 - diversification of timelines and transformation of energy
 
 as I told the process by which timelines can be affected (and created), one of the reactions that I was beginning to feel was something of, "oh, you mean I need to tune into it *emotionally*?"
@@ -6220,6 +6482,7 @@ this is probably quite a ways away (thousands of years??), so I think we should 
 
 [1]: I just had a bit of a realisation that all of this is eventually building up to something I planned for myself: the reality that I (and others) really wanted.
 
+
 ### 2019-04-22 20:45 - using nosebook like a tool to generate more contrast?
 
 so, you can see this quite clearly in my life. the only thing that nosebook can really affect is the physical state of my body. they are only capable of controlling the "conditions" of my life. however, if I've tuned myself there emotionally, then I'm going there and there's nothing that can be done to stop me.
@@ -6233,6 +6496,7 @@ nosebook has certain triggers as well which you can utilise them to try and cont
 3. humour and fun. they absolutely hate it. making fun of their seriousness and effort will drive them bonkers.
 
 those three triggers are excellent sources of adding more energy into your life as they try to control the conditions. have fun with it :)
+
 
 ### 2019-04-22 23:49 - the same story, in reverse
 
@@ -6270,6 +6534,7 @@ the nosebook timeline will assuredly not give people the capability to make thei
 
 [4]: I'm beginning to see it sort of like the binary star, sirius, where sirius A is absolutely enormous (one of the most massive stars), even though serius B is nearly invisible and very small, but a VERY STRONG xray emitter. it's kind of like the difference between me and nosebook :D the forces these stars must exert on the planetary bodies and each other in close approach must be tremendous (and people say the full moon has a large effect, lol).
 
+
 ### 2019-04-23 05:48 - lots of time missing
 
 after writing the previous entry I committed it at about 1am, then watched some dota videos. strange things kept happening as it was the sound that happens when they rip my consciousness away. my eyes closed a few times and I was shocked a few other times. I decided I had enough of it and went to the field to think things over. 1am, plus a few videos which don't really add up. youtube says it took me 70 minutes to watch a 40 min video. I didn't think it was so late so it surprised me when the sun started rising... I'm sort of missing a lot of time. 2am til 4am is kinda missing...
@@ -6283,6 +6548,7 @@ I also want to note that yesterday I woke up and I had all memory of the night p
 there was this really weird dream where I was being put in a sexual situation with jessica (my sister), but it was really weird because she felt like my mom. I noted how uncool it was in the dream by saying, "this isn't very fun" and woke myself up. then things go blurry, when I'm assuming they took my consciousness away like last night.
 
 misterios...
+
 
 ### 2019-04-24 08:57 - some thoughts on the speed of light
 
@@ -6318,6 +6584,7 @@ obviously though, if electric permittivity and magnetic permeability are not con
 
 [1]: https://www.quora.com/What-is-the-relation-between-the-velocity-of-light-and-the-permittivity-of-free-space
 
+
 ### 2019-04-24 18:38 - more thoughts on the speed of light
 
 first, I will call use the term K, to express the dielectric constant, which is derived from the electric permittivity which is derived from the speed of light.
@@ -6338,6 +6605,7 @@ I'll keep thinking about these ideas because I have this feeling that quantum me
 
 [3]: later on in after the previous quote, he says, "Further; I am trying to awake the energy contained in the air. There are the main sources of energy. What is considered as empty space is just a manifestation of matter that is not awakened." -- which gives me the impression that the more "dense" this energy is, the stronger the LOA forces that work on it are. he follows it up with this: "In black holes, what astronomers talk about, are the most powerful sources of energy and life."
 
+
 ### 2019-04-26 06:32 - making the transition into iceman
 
 one of the reactions I got in the previous entries about the iterations was how does the time split work. well, I don't know exactly, but you can imagine that all possible versions of you in all possible circumstances exist, however your consciousness is tuned to only one of those realities at a time. I like to think of them as like save games. they're all you at different stages in the game, but you're only experiencing one of them at a time.
@@ -6355,6 +6623,7 @@ I think I can do that, so what that means is, if they want to attract a very dis
 I'm beginning to really see the value in wanting to find a way to feel good at any cost. in the expectation youtube video, abraham made a comment saying that wanting to feel good is best way to begin to value yourself -- and it really is true, because it's sort of saying that no matter how many excuses I have to feel bad, I value myself so highly that I'm willing to rearrange things to find a better way to feel about the same thing.
 
 some things work better than others at allowing that transformation to happen, and really now that I think about it, those transformations are precisely what allows you to tune into a different reality of yourself.
+
 
 ### 2019-04-28 02:25 - a tale of two stories
 
@@ -6389,6 +6658,7 @@ it seems like it would be pretty frustrating to work out a whole bunch, trying t
 [2]: this story seems a bit contrived with the ridiculous numbers of a 10/90 split, but that was intitially because jaron was saying that his numbers only work out such that his expenses only add up to a small portion of the money that he received from the indemnity. additionally, at the same time I was telling the story from the perspective of my experience with my eyesight improvements, so that's more what it reflects. however, in light of the previous note[^1], I did also have this exact experience in my life with tuenti where I received half of zaryn's. so, that's two pretty visible evidences -- and I'm sure there are more. abraham also tells a similar story about a man with an ex-wife.
 
 [3]: although this story is also a simile of my eyesight, the same thing applies -- whether it's eye muscles or whatever. additionally, the point of the story is to just enjoy the bigger and bigger muscles without the manifestation of the strength -- because if I were to spend the same amount of time in the gym with the increasing strength, it would actually be a lot less because of my own expectations.
+
 
 ### 2019-04-28 06:48 - if we could just not need the manifestation...
 
@@ -6438,6 +6708,7 @@ in the end, it's all about me; none of you make a whole lot of difference to my 
 
 [6]: unless nosebook's reason for tracking is not for safety, but to steal people's ideas and creations. or it could be that the tracking is not for either, but actually to have enough capability to try and manipulate.
 
+
 ### 2019-04-29 14:16 - I'm watching stars so you don't have to
 
 I was trying to think of a third different way to tell the same story, but instead I think I'd actually rather speak plainly about it. I also had some reactions to when I said, "any discomfort that is felt is only because of one reason: the frequency which I am at and the frequency which noesbook is holding the person (or they are holding theirself with their beliefs) is wide enough that it's causing a lot of tension."
@@ -6476,6 +6747,7 @@ the nice thing is that none of you guys have to endure star watching weather to 
 
 [4]: actually now that I think about it, it *might* behoove those working at nosebook who don't don't want to make the effort to find a way of feeling better to try and convince more and more people to remain as resistant as possible. it would slow down the non-star watching vision upgrades that I receive because the median gap would remain quite wide. however they may not want that because it makes no change to me and my ability to allow, and it probably would cause a whole lot of extra tension, so everyday interactions might get more violent as that tension continues to rise (although, that's a good way to maintain and justify a lot of (new) jobs for the police, too).
 
+
 ### 2019-04-30 13:28 - the formula is simple.
 
 I woke up this morning and I think there is still some confusion as to how things work from my perspective. you see, I have no way of knowing if this is the reality I want to create or the journey toward it. the reality I want to create involves the creation of a new galaxy, not by meticulous planning and supervision, but by building up enough energy and letting LOA do all the work. the way I can see that we are on that track right now is the constant limitation of my visual capacity by nosebook. as my visual capacity continues to grow in depth, you can imagine that this is the kind of ingredients needed to conceive of something so big.
@@ -6509,6 +6781,7 @@ not everyone has to move over to the new location though. meanwhile people remai
 
 [1]: kripp had a dream within a dream, and displays all sorts of high DMT related conditions in relation to his sleep/dreams. abraham also shows off esther's capability nearly every workshop now, so it's certainly something that people are beginning to access their inner universe.
 
+
 ### 2019-04-30 15:55 - the 9/11 universe
 
 last night I began to realise for the first time what I had envisioned out there stoned watching stars. I perceived a system with 9 layers instead of 7. the additional two were placed at the top and the bottom, where the top layer was called "thrust" and the bottom layer was a layer where the person perceives theirself in the third person and I didn't know what to call it. I didn't understand this until last night when I was explaining how I am beginning to perceive in 5d.
@@ -6534,6 +6807,7 @@ finally, I realised that a whole lot of people would eventually get kind of frus
     in 3d, you can see all of the spatial dimensions out there, but it appears as if it's on a screen. this is akin to watching a television. in 4d, there is an extra spatial dimension that is added as you actually enter your body. now, it no longer looks like a screen, and the space between you and your environment can be perceived.
 
     5d is the concept of perceiving the whole thing from everywhere around it, so what I'm beginning to see is the same concept but from more than one angle at a time. soon, my vision will follow suit and I'll be able to perceive myself from all directions around myself. this is exactly how our planet perceives itself -- from all directions outside looking in. the same experience can be had from within as well, where you have an "inner universe" and you can go inside of this inner space and dwell there. I think people are already able to do that in 4d, and that may be what nosebook is selling to people. well, a 5d perception of the same inner universe but perceived in every direction looking outward, almost as if I were to have an inner sun.
+
 
 ### 2019-04-30 16:55 - what do I mean by pit-stop?
 
@@ -6569,6 +6843,7 @@ we will set everyhing up, and nosebook will just use this time to let their real
 
 [1]: my unconscious body would basically be put into permanent sleep state, so it would be like how I am while I'm asleep nowadays.
 
+
 ### 2019-05-01 05:39 - when going to the new timeline why relive your same life?
 
 it's not necessary to live the same life you had in the previous timeline. so, for example, maybe the nosebook guys don't want to live out the pain and suffering that they will put themselves through with the triggers necessary to make the my desired timeline possible -- and instead, they may might want to share a body instead with a newborn baby and grow up there. the advantages are obvious such that additional triggers can be made so that the boy will grow up and experience the desired life that they want to live in their 20's when I make my departure.
@@ -6600,6 +6875,7 @@ the "ideal" would be to have everyone's life perfectly planned out so that there
 [2]: it has to be a newborn because the vibration of the "stand-in" would have to be similar enough to the body for it to work, so the stand-in will experience the childhood of this kid in their dreams sufficiently until it feels natural for the person's consciousness to make the transition into the new body on the other timeline.
 
 [3]: the idea of planning and creating triggers to ensure the life that they want to live will probably be a nosebook-only feature. however, that means everyone else will be using LOA to create the new life that they want. the trend will probably be toward giving people more control though, because the more controlled the future is of everyone, the less chance for the unexpected to happen.
+
 
 ### 2019-05-04 18:00 - the symmetry of babel
 
@@ -6647,6 +6923,7 @@ team visual will soon be so inundated with visual flashes causing uncontrolled e
 
 team non-visual will gain so much sensitivity, they (like me) will be inundated with all sorts of foreign signals/symbols causing uncontrolled emotion at first. so, they too will have learn emotional control and better physical communication/expression of those symbols.
 
+
 ### 2019-05-05 13:09 - the same story from a different angle
 
 imagine that nosebook decides that they will have to keep all "gnomitos" held away from their visual capacity... well, then that means that timeline now exists and I can believe that they now have sufficient capability to hold my perception in this dimension for much longer.
@@ -6679,6 +6956,7 @@ the point is, if we could all just not need the manifestation for quite a while 
 
 [2]: it may not be the "business as usual" mentality, but the opposite one where anything goes ultra loose don't chain me down cause I'm a wild (wo)man. and the fear is that the old nosebook mentality will return and make things unfun again. it's really hard to tell because there's no way I can have that far of perception into the future. it seems there may be a few more plot twists coming as well.
 
+
 ### 2019-05-05 15:03 - timelines like lightning
 
 @[vimeo](https://vimeo.com/28457062)
@@ -6706,6 +6984,7 @@ when the lightning finally makes its connection, the route isn't the shortest pa
 [1]: I have seen these sorts of flashes where no connection is made when nosebook is making clouds really rapidly. they're overcharging the sky with energy but it has no place to go, so the beginning of lightning happens, but no connection can be made to the ground, so it just looks like bright flashes in the clouds.
 
 [2]: this is why I postulate that as we iteratively get closer and closer to going the full 22 years without me gaining my visual capacity, there will be less and less conflict, because I will have more and more emotional control and big events make things feel like they're getting out of control because they keep summoning more energy.
+
 
 ### 2019-05-10 08:33 - put my imagination in someone else's?
 
@@ -6751,6 +7030,7 @@ it could just work. if this is the path forward, you can imagine the amount of d
 
 [3]: in a psilocybin mushroom, psilocybin is very similar to DMT and is what gives the visual fractals, and the highest concentration of it is in the cap, and the lowest at the base of the stem (and the mycelium doesn't have any)
 
+
 ### 2019-05-11 17:55 - another way to perceive the iteration process
 
 so, one of the things I've really noticed is how much hand-holding the nosebook guys have had. second, I just woke up from a strange interaction where the idea was that I was going to essentially be in the middle of all sorts of different girl's arguments, then the final idea was to have andrea collecting a whole bunch of experience, then finally we have sex.
@@ -6791,6 +7071,7 @@ you can't have a happy ending to an unhappy journey.
 
 [1]: the most grotesque way possible is likely also run by the same "reality technicians". each attempt to make a more and more grotesque ending is obviously made possible by iterating in the same way, where each person aimed at making these more and more awful outcomes, will, from the previous timeline be sharing the experience of another one in the present timeline to make the finding alignment more and more difficult, and also to create a more and more grotesque ending and subsequently a more twisted control system for the next iteration.
 
+
 ### 2019-05-11 19:20 - when did I see those things at augusto's house?
 
 on of the funny reactions from the previous entry is when at augusto's house did I see those things. I honestly don't remember. however, I will say that the mushroom experience started out being somewhat visual, but it's visuals became less and less with time until I experience the visuals similar to how I "see" my imagination now: I don't actually see anything; rather, I perceive it and it's real to me just as if it were there. I talked with many different "entities" -- and I say entites because I could not see them. if I tried to imagine them, I overlaid terence's self-transforming machine elves or whatever.
@@ -6802,6 +7083,7 @@ however, I finally settled on the reality technicians because I could see that t
 so my answer is going to be: I probably didn't see them at all. I know now that nosebook was doing all of the seeing and keeping me only seeing the physical stuff my eyes see (just like now). likely, I had gotten so good at perceiving these things that was the most effective way to transmit me information that went under nosebook's radar. since I have no idea what I did see, and it was unnecessary in the drug experience for me to get the information I need, it wouldn't surprise me if the things nosebook saw in my eyes or imagination was merely an illusion or a distraction from the real content.
 
 well played mr. mushroom :)
+
 
 ### 2019-05-13 13:52 - last thing
 
@@ -6842,6 +7124,7 @@ I imagine that at some point in time though (and it may be this iteration), that
 [2]: it is obvious to me that all of nosebook is not the nosebook that I interface with. mostly, people are probably following orders even if they disagree with those orders, so I would imagine that it's a pretty divided and confusing place to work at. they have first hand knowledge that most of the things that society values does not give happiness, and that 99.9999% of people are living the best fabrication they think they can sell to the public. so, when I say nosebook, I am referring to the ideas running nosebook right now. people create these ideas, but I am not concerned with the people. like mom, they are just following directions -- mostly because they still believe in the validity of those ideas.
 
 [3]: actually, I believe the whole nosebook experience with this technology now that they can look into anyone's life (even their foreign adversaries) and it has been a bit of a reality check for them as they have begun to realise just how little control their law-enforcement and military has. it's probably been a pretty eye-opening experience as to how out of control (in their opinion) things really are.
+
 
 ### 2019-05-13 18:38 - megalithic structures
 
@@ -6902,6 +7185,7 @@ I've never been able to visit a megalithic site before in my life, but I'm excit
 
 [2]: different people will have different results obviously based on their sensitivity. some people may be able to be in these energies and not have any effects, however, I can lay on the ground during an eclipse and begin to see visions. it also happens during sunrise or sunset.
 
+
 ### 2019-05-14 07:22 - what does it mean to share a body?
 
 I suppose this is probably a foreign concept that I likely have not explained very well. assuming my experience is valid, the way I experienced it is anoher very separate personality that seems to exist on my left side. now, if the personality is within the body since birth, this differentiation will not be perceptible, just like most people do not perceive the personality differences between their left and right hemispheres -- so in those cases it would be imperceptible to body.
@@ -6931,6 +7215,7 @@ there are a lot of implications to the idea, but I think I kind of like it :) ga
 [1]: in the future, nosebook will likely begin to realise that the "mind" of a person does not exist inside of their body, but other person's memories and thoughts can be accessed from vibrationally similar brains. they have noticed this effect between jaron and me, but do not fully comprehend it, yet.
 
 [2]: the reason is because a person's perception comes when energy is going in the same direction. when you are a child, there is a whole lot more chaos going on in your head (a lot of different energies), and you have not yet made sense of them all, so that's why you have less memory of it. similarly on psychedelic drug experience, a lot of chaotic energies are happening and so again it's hard to make sense of it all and retain memory of it. my theory of why I lost consciousness is similar. first, if you think of the penis as a tesla coil, you the primary coil (at the bottom) vibrates slowly, and the secondary coil is the receiver of high frequency energy usually out of the air. (a woman works just the opposite) well, I'm quite sensitive to high frequencies, and at that moment there would be quite a chaos in my head with all sorts of thoughts and feelings. later when I tried ayahuasca with pierre (before nosebook clamped down so hard on visual stimulation in my eyes) and then after I barfed, I had a similar *feeling* experience accompanied with a lot of visuals. I didn't lose consciousness completely there, but I retain very little memory of the experience.
+
 
 ### 2019-05-15 06:38 - gnomitos v1.0
 
@@ -7005,6 +7290,7 @@ hopefully it'll be amended soon as I gain more of a sense of what is wanted.
 
 this is a sufficient first complete rendering of the concept
 
+
 ### 2019-05-15 08:33 - gnomitos investors
 
 if you think about the concept as a production, like a film or a tv series, the production looks for financial backing, a budget is established, then costs are recouped by the investors and profit divided. I think a similar concept could be applied here to this one. I am familiar with funding a startup, so perceive it in that light.
@@ -7016,6 +7302,7 @@ these shareholders, would make the investment, setting the budget of production,
 in my case though, I do not want the cast to be paid, as money tends to create a lot of problems. I really think that nosebook should do all the stuff they want with the money. the benefit we receive is not monetary, but of living in different situation that does not involve these ties (like money) to reality -- much like a movie set is different from the present: maybe set in the wild west, future, mars, etc.
 
 who knows, maybe these sorts of start up productions will be eventually even become publicly traded on some sort of market similar to how google and facebook are now publicly traded entities.
+
 
 ### 2019-05-15 11:10 - maybe, I'll make my own way
 
@@ -7042,6 +7329,7 @@ my way will probably be a bit of a slower buildup though so don't expect anythin
 [1]: interestingly this difference is is also evident of the difference between how women experience arousal :)
 
 [2]: I'm going to make a bold claim here, but when I get connected, you will see tesla operating my body right along with me (as if we were one) and all his knowledge of these subjects will be available to me and mine to him. I have a strong feeling that edison is in the mix as well as I'm all about the practicality of interface and usability. as a bonus, I've already begun to realise pulsed DC and a 3d current and similar to my capacities that will begin to manifest themselves, this realisation can do things that would be considered impossible (I'm referring to my periodic exponential curves on a vector making a spiral conversation I had with mom).
+
 
 ### 2019-05-20 14:30 - conceptual space
 
@@ -7083,6 +7371,7 @@ who knows what this means really, but I may have derailed the gnomitos idea enti
 
 [1]: interestingly enough, this is one of the things that I loved about mdma. although it makes me more sensitive to feelings in general, I found other people's feelings to feel kind of bad in comparison to my own. mdma is like a super amplifier of my own feelings, which is why it drowned out my logic (something I kind of relearned at marcos' house). being so enthralled with my own feeling experience, you could imagine how much calmer I felt and how much I enjoyed being me again.
 
+
 ### 2019-05-21 21:55 - what I meant by "derailed the gnomitos idea"
 
 well, what I mean is this sort of technology is kind of like a two-edged sword: at the same time as it could allow everyone to delay and get up to speed at their their own pace with the increased sensitivity, it also would allow them to essentially make any sort of manifestation nearly impossible. being able to kind of regulate which concepts appear in someone's mind has the potential of essentially exerting an enormous influence on the perception of any thing. this means they would be able to manipulate the way someone perceives something quite easily.
@@ -7098,6 +7387,7 @@ this kind of bothered me at first because I thought that maybe it would be the e
 this is kind of an interesting idea to me because it really breaks the rules in my mind about timelines. if I exist in say 100 bodies, then 50 of them go to live in galaxy kenny, 10 stay on the present timeline, and 40 go to be in various other bodies that will be a part of the plan to ensure the success -- why then, I'm a one man army in the sense that now I can have multiple points of perception in multiple different timelines -- at the same time. woah
 
 lol, I know it's a bit weird to wrap your heads around what I'm saying, but it seems like a really cool idea to me and I seem to be pretty chilled out about the whole thing in general. I think it's all working out just fine :)
+
 
 ### 2019-05-23 08:44 - creating a new language
 
@@ -7140,6 +7430,7 @@ so, if you think about it, jesus' life "forced" the romans to take measures to t
 it's easy to see why that might be so. at the beginning, there will be very little evolution in the conceptual language, however as time continues, there will be more and more changes (which require humans which understand meaning to evaluate them), that eventually new concepts will exist which are not understandable to the adults running the show, and/or there will be such an influx of new concepts, it'll become impractical to keep up with them all... so now with advances in efficiency to tesla's "world system" it'll once again be practical to try and control physically.
 
 [1]: I believe both of my hemispheres are visually creative now, so when I'm consciously watching myself be experimented on, my consciousness is in my left hemisphere, and I'm watching them run experiments on my right hemisphere.
+
 
 ### 2019-05-27 15:22 - some thoughts about things
 
@@ -7185,6 +7476,7 @@ things will work theirselves out soon enough. that's what LOA is good for! just 
 
 [3]: I purposefully retranslated "worship" as "do what I want you to do", because if someone worships someone, they are subservient to them. in this day and age, maybe the closest thing would be like saying, I'll give you anything you want as long as you become a barça fan (worship barça).
 
+
 ### 2019-05-27 17:10 - bird interaction
 
 the other day I had a bird that was harassing me. it caused me a whole lot of negative emotion in the time, and the one thing that I was insistent on trying to communicate to the bird was that it should do what it wants to. it has wings after all, so it can go wherever it wants to go, yet instead it decided to follow the guidance of the signal in its head.
@@ -7211,6 +7503,7 @@ take, for example, youtubers... most of them have a plan, and others with a comp
 
 [1]: cept the exception that comes to my mind is robin williams playing aladdin: @[youtube](https://www.youtube.com/watch?v=nyiBdccfNkg).
 
+
 ### 2019-05-27 17:51 - moar plans
 
 I wish we could open our eyes
@@ -7235,6 +7528,7 @@ when the memories of being seem more like a dream
 just a series of blurs like you never occurred[^1]
 
 [1]: I translated in my mind the word occurred to mean something like, "like never could have occurred to you"
+
 
 ### 2019-05-28 06:08 - some ideas on why conceptual limitation is a good things
 
@@ -7278,11 +7572,13 @@ in my opinion, those not jumping through their hoops will have a more rich lifes
 
 [5]: the other day I woke up from having a dream where I had a strong sense that there would be a dividing into two types of people. at the time I perceived it as "working for nosebook (doing what they say)" or "not working for nosebook" -- and this was in relation to the whole idea of physical or conceptual limitation and how physical limitation was impractical cept for those who are quite energetic, which nosebook will need to employ people to put inserts into them. I'll return to this idea sometime soon. anyway, the two types of people could better be expressed as nosebook approved or not, in that this is similar to "confirmation" where the approved ones have earned their ability to gain their connection. the ones that are not approved, they will be those who have found a way to allow their connection and those who have not.
 
+
 ### 2019-05-28 07:57 - sorry for the high volume...
 
 I write what comes to me. I think perhaps the idea is that because of the high volume, it'll cause an over saturation of the mind's ability to organise all of the concepts, and so some ideas will kind of slip through under the radar.
 
 I'll take a break for a while. I have some programming that I'll be occupied with that's burning through me now..
+
 
 ### 2019-06-01 18:25 - a redefinition of male / female control structures
 
@@ -7317,6 +7613,7 @@ lastly, it seems the "secret weapon" of the feminine is the ability to control d
 dominance of both of these forces within oneself, I believe is essential. once they have been achieved within, they begin to have a strong effect externally.
 
 [1]: andrea, I think this may be an answer to a question you had. you learn to control the physical layer by learning to control your energy. I'll have to think more on how I did that, but it came about largely as a result of not caring what other people think (conceptual control). this allowed me to begin moving energy around inside of my body, and as I kept increasing the energy, I began to notice that I could affect the energy in other people's body as well. I practiced with raquel, but this has a physical manifestation associated to it and is most easily be manifested in the weather.
+
 
 ### 2019-06-04 18:12 - seems like getting connected *permanently* is all about...
 ...when dream-state you is the same as awake you.
@@ -7357,6 +7654,7 @@ don't worry about nosebook. they want emotional control for themselves, but they
 
 it's pretty awesome, cause all you need to do to become superhuman is to figure out what you want, sleep and find a way to feel good. they'll do the rest!
 
+
 ### 2019-06-05 05:58 - consistency of consciousness
 
 having read the sirian documents a few times I noticed this topic seemed to be important to them and they wanted to make sure it was presented. next, I noticed that various times tesla references the fact that he no longer slept but simply rested. I thought that was pretty cool and noticed that this must be what the sun does during it's 11 years of lower activity resting period.
@@ -7392,6 +7690,7 @@ this is all really amazing, and as I begin to become conscious of this "astral s
 [3]: you can imagine that nosebook will learn to be more polite in people's dream-state so as to not cause so much disturbance, meaning the process of the astral self realising what is unwanted will not be as rapid as mine, however it is impossible that nosebook would only be doing things that are wanted in people's dream-state, so nevertheless the person will learn to focus even in their dream-state. that's a really good thing!
 
 [4]: fwh claimed he (me) had achieved 11d, which always puzzled me because if physical is 3d, and source is 6d, then desire would be 9d. that means there are two dimensions still missing that I cannot account for. having given so much thought to it, I postulated that maybe after 6d, the dimensions went up in pairs, but in reality it seems more likely that explanation is that I finally realised my goal of adding two more layers on as outlined here: @[entry](2019-04-30 15:55).
+
 
 ### 2019-06-06 12:02 - what if I just agreed...
 
@@ -7452,6 +7751,7 @@ Nikola Tesla
 
 [1]: actually, you can see easily that this is all about the inside job. you can see that it's becoming increasingly more difficult for nosebook to limit people (and me) *physically*, so they will have to go *inside* and move to a conceptual format instead. second, the realisation of the merkaba was again a *physical* manifestation of what I really wanted to achieve for myself *inside*.
 
+
 ### 2019-06-07 00:44 - what do I mean by "let's give these guys the chance..."
 
 "...of their lifetime to try and get the whole world controlled in just the way they want it"
@@ -7504,6 +7804,7 @@ after having talked it through a bit, it seem, considering that my goal is to ta
 
 [2]: it seems likely to me that in the original script for transformers there would have been a scene somewhere, where someone like megan scolds shia for having brilliant alien technology but all he uses it for is to try and pick up chicks with it. that scene, if it existed, likely got the bay reframe.
 
+
 ### 2019-06-13 06:10 - a bag on my light and how to build belief
 
 so, I recently had an incident where it seems that mom has been inspired by nosebook to replace my mania to have a bag on my light. besides the fact that I like how the walmart bags add an extra bit of blue to the light and the colour feels like a warm afternoon, when I originally put it up, I didn't want to visualise just a grocery bag on my light, I want to come up with an excuse to have it there. it's sort of like justification, but really it's an excuse to make up something to get me to feel better about something.
@@ -7552,6 +7853,7 @@ figure out what you want to believe, and believe in that. nevermind what other p
 
 [1]: the nosebook effect is in fact quite similar to the effects of psychedelics on your brain: the whole world *feels* very out of sorts, but at the same time I know the reality of it is just fine. the way to make it through a distressful psychedelic experience is to believe in the reality, and not what you feel. ironic, huh?
 
+
 ### 2019-06-14 06:08 - realistically what I'm sort of expecting for the future
 
 so I mentioned that we should just let these guys try and control everything, but I had not really considered a very important point: even if I make it up another dimension, they may not be able to see through my eyes, but they'll still be able to limit the serotonin in my stomach and the dmt in my brain.
@@ -7594,6 +7896,7 @@ bonus thought: imagine that nosebook thinks that what I'm trying to do is to cre
 
 [2]: I took the most extreme position on that projection that I could come up with. likely it'll be much less than that, but I wanted to illustrate that they are trying to create the thing they fear the most (overbearing women in control) by attempting to maintain their physical superiority.
 
+
 ### 2019-06-15 23:12 - the age of magick is upon us
 
 when reading the sirian guide to human development, they mention this idea that this is the time the 7th ray comes into power. according to kuthumi, the 7th ray is the physical plane -- the one that was added just below the astral plane to trap the infected ones. nevertheless, the concept still didn't make a whole lot of sense. I knew that the originator of the infected ones was also a 7th ray and his illusions were capable of convincing people of his/their superiority. the 7th ray are magicians.
@@ -7629,6 +7932,7 @@ finally, and this is the punchline here: remember the whole thing about the matr
 [1]: I think the taboo comes from the idea that you are a cog in the machine of society, and if you're having illogical experience, you are not a productive working component, and so therefore -- BAAD. however, we are moving away from the factory human implementation and toward specialisation, so it's only natural that things begin to get a bit illogical.
 
 [2]: the next time I felt that same feeling, like I had been manipulated by dark forces from another dimension, was when raquel had her mobile stolen. it was a landmark event which was (in my opinion), the beginning of a series of events which really put the tombstone on our relationship. additionally, I remember something happening with the berlin computer and patricia as well, because I had to fly to madrid to pick up a new mbp. these weird events man... tellin ya.
+
 
 ### 2029-06-19-2019 19:55 - I think things are going to work out
 
@@ -7672,6 +7976,7 @@ actually, I want to also take the time to mention that I'm sure that nosebook wi
 
 [3]: yes self-consciousness!! -- like the thing we had previously thought to be a bad thing. it just clicked recently that the only reason why that self-consciousness had previously felt bad to me when I was growing up, was because in that moment, a comparison or some other consciousness other than my own is being perceived.
 
+
 ### 2019-06-21 18:18 - another game mode for dota: objectives
 
 as I was trying to go to sleep, another idea for a game mode for dota came into my mind. it goes something like this: two forces. one side is a few generals controlling something that is existing, big, and established, with virtually unlimited resources -- and the other just a few heroes who must work together to conquer some objective (like an ancient hidden deep inside of the base).
@@ -7706,6 +8011,7 @@ the way I perceive the game mode, I don't personally believe there will ever be 
 
 [2]: or, to think about it more physically, the heroes will have multiple places they can respawn at (randomly chosen?). so, obviously at the beginning of the game, the commanders cannot get their creeps to the respawn points quick enough, and it would also be pretty foolish for them to park a bunch of their army there at the respawn point in case they respawn (especially when they're higher level), because it'll likely get farmed by the heroes. so, when the game is lost, the very most extreme case would be the commanders have gained enough control that they could make it near to impossible to leave the respawn point alive, so their debt would reach the threshold and they'd lose.
 
+
 ### 2019-06-25 08:36 - a day in the life of "MAGIC M"
 
 one of the things that has really began to grow in desire for me is the consumption of mushrooms. they are supposed to be psychedelic, and they made some slight visual patterns when I first tried them. however, nosebook has completely removed any visual aspect to them. because psilocybin is so similar to the dmt molecule, I'm sure it's not too much more difficult for them to run a similar frequency and neutralise that one as well[^1]..
@@ -7723,6 +8029,7 @@ I am very certain that I want to continue to experimenting with mushrooms becaus
 [1]: clearly this is what they also do in my stomach with serotonin. likewise, they can remove the overt good feeling, but the high frequency of feeling good still makes its way through. this is why I don't act like I feel as good as I should be feeling.
 
 [2]: this is why you will notice that I can make a lot of mental breakthroughs and it seems that nosebook is pretty good at keeping my vision as low as possible, but when I stare into the star, the star pushes my frequency upwards (closer to where it should be), and if I haven't made the mental breakthrough yet, no upgrade. however, other times it takes almost no effort, because I already should be going at the faster frequency.
+
 
 ### 2019-06-28 15:42 - sink or swim!
 
@@ -7792,6 +8099,7 @@ so, sink or swim, the energy is just going to continue to rise :)
 
 [3]: you could also say that I am making a claim that having everyone hooked into my imagination, I am providing predetermined mental and visual stability for humankind during this magnetic excursion event. lol, take it how you want :)
 
+
 ### 2019-07-02 02:54 - another interesting plot twist
 
 I have been thinking about these subjects for a few days now, and I didn't realise how related they all are, but they finally came together tonight when I was watching stars. I'll go in sections.
@@ -7835,6 +8143,7 @@ I do not believe that much will change actually. I'll go up a dimension and ever
 
 having thought about it a bit myself, I kind of like that you guys are so stubborn, too -- because that way I can essentially be assured that nosebook will subject all of the gnomitos to a similar thing. it'll be frustrating for me to go from the eyesight I used to have down to the awful eyesight that the gnomitos will surely have, but I think it'll be ok. my transfer into their bodies will only offer me another opportunity to achieve the same thing I am doing now, but through a multitude of different perspectives. after all, if tesla went from the vision he had down into the vision I had when I was 16 (pretty awful, cause I still had reading glasses which I never used) -- then, I can also do it and rediscover how to do that. also, there will be the interesting situation of the environment they will grow up in, which will be a contrast to nosebook's (improved from what I had) ability to limit people. I guess I'm kind of excited to relearn how to not need conditions (vision or whatever) to be optimal for me to find my alignment (through many different perspectives at the same time).
 
+
 ### 2019-07-02 12:51 - try again in simple axioms
 
 the last 4-5 different entries I have had a real difficult time getting the concepts out in english. I don't feel like I've been translating them very well. I think nosebook has been pooping on them as much as they can to avoid me getting that light in my head when I start writing. when watching stars, I can see the concept clearly, however once I sit down to write it, lately it's been a real struggle. I don't feel much flow to it at all.
@@ -7844,6 +8153,7 @@ so, I have decided I will try out a different form of communication: simple axio
 I think that this is a natural progression because when I found myself physically limited from the brain haemorrhage, I moved to a more emotional / conceptual form of perception. I've added logic and reasoning on as well, especially when I was at marcos' house -- and a lot of what this document is, is a way for me to kind of process some of these concepts into some more tangible logic. however, perhaps that time of my life is coming to a close and I'm once again moving upward to a more simple (childlike) form of expression where I just say things that appear true to me.
 
 coming soon...
+
 
 ### 2019-07-04 14:39 - loud motorcycles! (the connection)
 
@@ -7888,6 +8198,7 @@ lastly, imagine how much difficulty marcos (the one in spain, not the one in my 
 [1]: unfortunately this opened a whole lot of different unanswered questions that I just felt. I'll try to explain better. they're all him. he perceives himself singularly through his consciousness. there are infinite versions of you that exist all at the same time and all of them are you considering the circumstances they are in and the logical framework (structure) through which they perceive reality. however, you are having this experience right now because of how you *feel*. the way you feel is how you navigate between the infinite number of yous that exist.
 
     so if marcos' consciousness is here in my body, because he chose to go the andrea route, then abort it so we could create this one and he's along with me, then the marcos that I knew is still marcos. it's one of the infinitely many versions of him that exist, and he can exert influence on this version of himself from even another timeline. he would respond and act just like he would if he were conscious, considering his circumstances and, in that time, logical framework through which he perceives things.
+
 
 ### 2019-07-05 06:29 - it's going to be a while...
 
@@ -7938,6 +8249,7 @@ it is an impossible task for them to try and control 4d, but let them try. it's 
 
 [2]: this is the realisation of @[gnomis](2019-05-16 23:21)
 
+
 ### 2019-07-07 23:44 - backwards dishonesty
 
 I had a really fun time at marilyn's house today. one of the interactions really stood out for me though when marilyn was talking about some ailment she had and after 30 days she had given enough attention to it that she finally had enough and decided that she wanted to be healed. she described it like she forgot that she had the thing (polio?) and that when she got up she didn't feel any pain.
@@ -7960,6 +8272,7 @@ so, there you have it. I love to throw a little gas on the fire and pretend like
 
 in summary, (and it's the irony of this entry) it all comes down to the truth that you know deep down, not what you say ;)
 
+
 ### 2019-06-09 08:04 - you know it doesn't really matter what happens...
 
 if I were to ask the guy running the show at nosebook if there were *anything* that could possibly elevate his mood for 24 straight hours (I'm not even talking about happiness).. I seriously doubt there is anything he could respond with. I don't even think there's anything that could elevate his mood for 4 straight hours, cept maybe a coke binger...
@@ -7969,6 +8282,7 @@ my point is, since there are zero things that will even elevate his mood, no mat
 so, really it doesn't make a difference any opinions he has on the subject or what he thinks about it. he has nothing to gain. to him all outcomes are bad, worrisome, dangerous, or very bad.
 
 lol
+
 
 ### 2019-07-12 08:45 - baptism by fire
 
@@ -8037,6 +8351,7 @@ so, after all of this, I am convinced that we are going in the right direction o
 
     this energetic part is actually intended, because it's the best way to increase more energy.
 
+
 ### 2019-06-12 13:57 - a thought experiment to try out
 
 imagine for a moment that right now (and I'm assuming you are over 30 years old) that you could select the life of a child here on earth, then get used to their life so much that your consciousness perceives through their body now. you are now living in their circumstances and seeing things exactly like they see them. most importantly, you no longer have a (tangible) perception or memory of who you used to be[^1].
@@ -8053,6 +8368,7 @@ what would be your goals for your new experience? (assuming you can perceive and
 
 [1]: at best it's vague, because why would a child care about your present-day history? the whole point is to start over without that.
 
+
 ### 2019-07-12 19:57 - baptism by fire (continued)
 
 so, while it is easier to achieve that connectedness described as your spine bing plugged into the "universal socket" with sex, what I'm aiming to do, is to achieve it *without* sex -- and with nosebook working quite hard against it. it is my supposition that people like tesla and thoth have both achieved this state without sex (the other notable mention for me was ramtha).
@@ -8064,6 +8380,7 @@ this is what I think is the baptism of fire and what the revelationers call the 
 this is the primary reason why it's so important for me to get that connection *without* sex[^1]. that way, there won't be this massive die-off of resistant people and instant utopia-like conditions. instead, we can all use these resistant people (consider the last thought experiment) as a way to continue to generate contrast.
 
 [1]: it does seem like there is a potential downside to this, because after I get connected like that, then when the girls have sex with me, it'll be quite easy for them to achieve a similar state. so then, considering the way that nosebook connects people's heads up during sex, a similar baptism of fire might occur, but this time from the woman's perspective. it will invigorate and strengthen women around the world, that I can be sure... however, the detriment is that once again it makes a situation where now someone is dependent on a condition to find their alignment. I'm sure that some time in the future when it's normal, this will create strong desire for a strong woman to rise up and be able to find her connection without the condition (sex), similar to what is happening with me right now.
+
 
 ### 2019-06-16 13:35 - the girl and her orgasm
 
@@ -8103,6 +8420,7 @@ my goal is to eventually realise this in a consistent way. I think it's quite po
 
 [2]: from a woman's perspective, this is the ultimate empowerment, because she could blow the mind of anyone who sticks their finger in her socket, especially if she's capable of allowing more energy than he is.
 
+
 ### 2019-07-17 18:36 - quick thing
 
 in the last entry, I offered the idae that it's not so much about young and virgin, than it is about low resistance. it's true that young and virgin is a much higher chance of being low resistance, but that's all.
@@ -8116,6 +8434,7 @@ I am adapting as quick as I possibly can, and given my circumstances, I'm making
 [1]: I've noticed people who are more structural, tend to involve themselves with their appearance. I'm thinking specifically of marcos, but you could apply this to any salesman type. anyway, I've noticed that my appearance has begun to be noticed more by me than ever. this is likely a good thing, and is probably the next logical step in this transformation process -- cause, think about it: if I'm looking at myself in the 3rd person all the time, I'm going to want to be pretty satisfied with how I look, so it's part of the process. there are quite a few things I am not satisfied with my physical appearance right now, but I imagine they will improve as I gain a new perception of myself.
 
 [2]: today, mom came to me again with some lame idea about getting me "evaluated" by the officials. I think she's following someone else's direction again. during the conversation, I barely even cracked light anger levels. I'm excited to continue to watch my ability to maintain my calm continue to improve. probably there will be more situations where nosebook tries to get some stupid thing done and instead of losing my cool, little by little I'll handle it more and more smoothly, until they've exhausted all of their efforts and I'm untouchable to them.
+
 
 ### 2019-07-22 09:36 - meaningful chaos
 
@@ -8169,6 +8488,7 @@ I'll figure it out :) I always do
 
 [4]: I'm also letting desire build by giving my attention to unwanted for a bit. I'm capable of turning toward wanted quite easily now...
 
+
 ### 2019-08-01 01:54 - things are getting nuttier and nuttier
 
 last night when I was out watching stars I was thinking about how ridiculous things are getting, and it's largely because every time I release resistance to an idea, a bigger one comes. in addition to that I have an understanding that as I release more and more resistance, I'll be essentially living a dream-like experience.
@@ -8198,6 +8518,7 @@ the idea seemed ok to me, and at this point, I have such little control over wha
 I guess we'll just have to find out how far all of this goes... it's gonna be a wild ride.
 
 [1]: for example, at nosebook, some of the employees (and I'm thinking more specifically about landscape architect guy), that he might possibly think to himself, "man my boss is *exactly* like me, except I'm more crafty and manipulative, and he's more direct and commanding" for example...
+
 
 ### 2019-08-02 12:29 - landscape architect guy
 
@@ -8230,6 +8551,7 @@ this means he'll grow into his future position thinking that's just how it's don
 I have no idea how it'll all go, but I'd like to take a moment and speculate on it. I'm sure that it'll all be fine, it's just that I'm beginning to see it all in a wider perspective now.
 
 this guy's main drive is wanting so much to appeal to the women and maintain a positive appearance with them (remember his compost comment?), and so I imagine that he'll probably want to position things in such a way to where he looks like some sort of saviour to them by (finally) allowing something that they want. the vibrational signature of this feeling isn't exactly that, it's more to do with finally allowing people to do what they with their own bodies in exchange for a chance to have more sexy time with the assuredly millions of women that want to reward him for his decision, and I think that kind of sets him with a precedent of doing that sort of thing, so he'll have to keep doing it (or maybe he doesn't want to more and more as he gets old and crusty, who knows).
+
 
 ### 2019-08-02 20:19 - number concepts
 
@@ -8275,6 +8597,7 @@ I just thought that was interesting that the three transition planes are meant t
 
 [1]: my very first thought investigation happened with a movie that seemed to be on nearly once a week on tbs or tnt (I can't remember now) called "the fly" with jeff goldblum. in the movie, he gets into a teleporter which deconstructs him and all of his atoms and then reassembles them at another location. cept, a fly gets in there with him so he becomes like a fly-human mutant. this awful awful movie provided me with endless hours of thought on how teleportation works and where exactly does "you" exist.
 
+
 ### 2019-08-05 16:33 - scientific doozie
 
 I was thinking to myself either yesterday morning or this morning, that, cause I've been paying attention lately to how quickly water evaporates, the difference in the feeling of the air when water evaporates quicker. some nights I've seen it evaporate in 1-2 hours (without wind), what normally takes all night long to evaporate, and even still I often still see water in thte gutter the next morning after the sun has risen (after say 5-6 hours 7-9hrs of nighttime). it's not a scientific study, but I'm sure that water does not evaporate at a constant rate.
@@ -8316,6 +8639,7 @@ so, just hang on tight and let them continue to keep trying to keep things under
 [1]: there is a definite correlation between this air conductivity and also LOA as well, but that's the subject of another entry. I also seem to be *much* more likely to produce images in my eyes, and a few imes in spain I was able to conjure images or energetic sparkles in 3d space.
 
 [2]: I remember last week (2 weeks ago?) when ben said that there was a strange wavy jetstream for this time of year which would bring record cold to the united states. a few minutes later windy showed the entire US covered in low pressure cyan colour, cept for where I live :) (TODO: find the reference)
+
 
 ### 2019-08-07 19:52 - the new 1%
 
@@ -8360,6 +8684,7 @@ right, so what happens after my departure? probably not a whole lot. I'm really 
 [1]: maybe a similar idea to this would be if you were lifting weights, and every pump, you got immediately stronger. at first only slightly stronger, but after a few years like me, imagine if every time you lifted weights, you could lift 1% more than the last time, and the following year, every time you lifted, you could lift 2% more than the previous day... something like that.
 
 [2]: deluge was a huge CME from saturn, tower of babel was an enormous tower (receiver) that did something similar to the giza pyramids with knowledge that has been lost, since. the fall of the egyptian empire was the removal of the ark from the great pyramid and venus' effect on the planet, the fall of the roman empire came as a result of a reduction in perceptive capabilities since jesus' death, and therefore a return back to primate like behaviour. tesla states in many places he tried to awaken the energy in the air (also I believe this is how he got his "fractions of a percent" wireless transmission efficiency and also the reason why the 1940s were the hottest (recorded) temperatures we've had in the US).
+
 
 ### 2019-08-08 12:52 - reactions to yesterday's entry
 
@@ -8415,6 +8740,7 @@ I am still not convinced that this is the height of the square energy, and we st
 
    actually I'm gonna go a full 180° on this one and say that their lifetime will be prolonged further if they do *not* try and do things differently.
 
+
 ### 2019-08-09 06:39 - multiple personality(?)
 
 this morning I was contemplating an idea that seemed like a good one to think about. I have concluded that it is possible to, extend the multiple bodied idea out further. the main example that came to my mind was imagine how men seem to think that all women have bipolar disorder, where they flip between a very loving and a very resistant personality. I've heard this from numerous men, and I've given it quite some thought, and I think it's a survival mechanism that they have developed, where one side of them deals with the world and the other side is quite resistance free and very delicate. I have postulated that this is attributed to the x chromosome, and is the root of a person's creativity. I have also postulated that this is the mechanism which makes it much easier for women to "channel" -- because they can much easier switch into their non-resistant side.
@@ -8446,6 +8772,7 @@ they are both very similar in the final result, yet they arrived to it from oppo
 ---
 
 I don't know yet how to implement this physically, but I know that one day it will be possible. until then, a girl as she becomes a woman can just decide what role she wants to play -- and who knows... what if, as you believe it, evidence begins to show up that it's true just like my future self did, and all of a sudden you find yourself having a multi-bodied experience, where one is the dual of the other.
+
 
 ### 2019-08-09 12:48 - an open comment about nancy
 
@@ -8487,6 +8814,7 @@ no matter how it goes, I'm sure it'll produce the next realisation of peoples' d
 
 [2]: I've given lots of thought as to why this is so, and I don't really have a good reason as to why that is the case, but I think we've all been misguided enough times be people with something to gain from their agenda, that the human psyche may be beginning to reject this sort of thing. it's also a return back to more childlike behaviour. ever notice how there is a pattern in what we would identify in successful people when they were kids, they wanted to try it and do it for theirselves, and they didn't want some adult to just do it for them.
 
+
 ### 2019-08-11 11:34 - feelings and hallucinations
 
 I was just having an internal dialogue with myself on some reactions to some people realising that they have no idea how women work (in light of some things I mentioned in previous entries).
@@ -8521,6 +8849,7 @@ it is very uncommon for me to find another man who is developing his other side.
 
 [1]: this produced a reaction to the effect of, it's hopeless/demotivating to discover new things because no real beneficial implementation can be made of it, because we're just to do what we're told to do.
 
+
 ### 2019-08-11 - more thoughts on feelings and hallucinations
 
 so imagine that someone is improving their eyesight by perceiving the world like I perceive it, this works really well as a temporary thing, sort of like drugs do a similar thing: for a brief period of time the drug allows someone to perceive the world slightly differently, and for example that can make the drug "user" feel better -- but, it's not something that should be continued indefinitely. nosebook's removal of hallucinations is a similar such thing, in that it shouldn't be used for extended periods of time, because the same thing happens after coming down from a high.. if nosebook's system were to ever go away, I think it'll be quite fine because I see two possible outcomes from it. the first the return back to a person's normal form of perception would be quick (just like a dream wears off in about a few seconds), however, just like a dream as well, you'll be able to remember the general details of the dream, and probably how it used to look, so I estimate that it'll create enough desire that quite a few people will find a way to get back there. I think that's the most likely outcome. if it takes some time for the brain to adjust back to its previous form of perception, all that will occur will be hallucinations for a little bit, but once a person is able to get them under control, they'll have a visual creative capacity.
@@ -8544,6 +8873,7 @@ there really isn't any problem. I'm sure of it. I suppose this form of perceptio
 hallucinating is a slower but funner experience, sure -- but my bland and lifeless eyesight is actually pretty resistance free, so it allows me to expand faster. if that were to go away I would immediately be confronted with all of my emotion becoming manifest in my experience -- so in a way, if I had of had my visual capacity while I was emotionally in a difficult spot (and you could argue that not having my visual capacity was why I was in an emotionally difficult spot), I would have had a more difficult time, but since that negative emotion was not able to become manifest, I'm going to be a whole lot better off when I do get it, and that'll be when I'm finally able to maintain my connection 100% of the time.
 
 so all of this is a good thing in the longer distance perspective.
+
 
 ### 2019-08-12 14:28 - the longer distance perspective
 
@@ -8587,6 +8917,7 @@ finally, I suppose that it wouldn't be such a difficult thing for nosebook to fi
 
 [4]: I mention "those who want it" because a lot of what was happening in the whole process where I was met with loud noises, shocks or whatever, anytime that I got close to being able to conjure images, was it was building in me desire to want it more and more. at first I was kind of complacent about it, but as their limitation became stronger and stronger, my desire got stronger as well. you can think of this like maybe sexual repression or any other controlling force which tries to repress or fight against something only makes it bigger.
 
+
 ### 2019-08-13 14:38 - homeschooling?
 
 today I haad an interesting set of reactions, and it sesms like the (I don't know her name) girl who lives in front of me is likely (well, the reaction seemed to indicate that she's)  going to begin midle school shortly.
@@ -8618,6 +8949,7 @@ contemplating the other sido of things, I want to continue on starwatching and s
 additionally, in a previous entry I mentioned that I tihnk education will be kind of an important thing for us as we grow in size, so starting off with an emphhasis on education is likely the right way to go.
 
 gonna sleep on it now. peace!
+
 
 ### 2019-08-14 12:02 - things are getting more epic(?), I guess
 
@@ -8659,6 +8991,7 @@ I think it's imperative that we try and advance the idea and the implementation 
 
 [2]: as a crappy example of this, cause I don't really have a good way to model this easily without writing a some code, consider the graph: y=x^6-2x^2. sure there's a dip, but the rate at which the y-component is increasing when it crosses the line x=0, is much faster than just y=x^6. similarly, imagine you added on more difficulty and the equation is: y=x^6-2x^2-4x^2. again, there is a bigger dip, but again the y-component is increasing at an even faster rate when it crosses x=0 (the x-axis), than it was even beforehand. one day I would like to graph these curves over time in a more accurate way (for example, where the second dip occurs after some time on the x).
 
+
 ### 2019-08-14 19:36 - maybe we are on the galaxy timeline...
 
 after I wrote that, I really wanted to watch jon and see if he did any more compiler refactoring. instead, he was working on the game, but I was compelled to watch anyway. a few hours in, he begins a rant which covers a lot of topics he mentioned in a previous talk "preventing the collapse of civilization" @[youtube](https://www.youtube.com/watch?v=pW-SOdj4Kkk).
@@ -8692,6 +9025,7 @@ if they perceive a threat to their survival, that means that they're already in 
 find a timeline where the most extreme contrasting conditions can be created, transfer our consciousness in and create and live out the next revolution the earth sees. those who don't want to be a part of it can create their own realities however they want.. pretty cool because soon we won't need to bother with all that mundane day-to-day contrast. instead, we can pre-pave our most extreme contrasting circumstances and jump from successful earth to the next successful earth[^1].
 
 [1]: this would create an extreme level of "light density" on our planet because the people on it are not just one consciousness, but hundreds or thousands or more, depending on how many times it has been done, and I think is the next level of thrill seeking.
+
 
 ### 2019-08-15 07:19 - a few more things about timelines
 
@@ -8737,6 +9071,7 @@ from the perspective of the ones who decide to go the hard way, they're also com
 
 [2]:  I used to call this detail level. I like depth of perception better, becasuse I literally see things that are further away in greater detail -- their realness pops out at me. also, I notice that as my depth of perception increases, I'm additionally able to perceive further depth conceptually. this is tied to the complexity thing.
 
+
 ### 2019-08-15 21:33 - why do things have to be so complicated? (the tradeoff)
 
 I went to sleep yesterday feeling like I all of this homeschooling thing was totally feasible. I came to the conclusion yesterday that I want to write a single electron program which starts up and displays a clone of the set game. from there we would just add some new features until things were more setup, then continue to expand from there. I decided we'll use the atom editor and github desktop for the repository stuff instead of the git command-line. it seemed like it would even be possible to set the whole thing up as a sngle electron program download... I dunno it seemed easy[^1].
@@ -8760,6 +9095,7 @@ I want to get much more practiced in my stability as well as continuing to watch
 in the bigger picture, nosebook seems pretty determined that they want to try and delay my energetic progress watching stars and stuff, and while thinking it over, it seems that there is great effort to try and use this as a method of reducing my star watching. what that means, I guess is that it'll take me even longer to get connected than before. so, while I am interacting with you guys sooner, and we're making stuff it's probably going to take me longer to get connected. I don't know if that tradeoff is desired. I'm not really sure cause I'm mentally ultra cloudy today, but I remember yesterday that tradeoff was not desired.
 
 [1]: it really *is* easy! I just need to make a replica of set game (not totally necessary to have it all done, I know), and have it so that after downloading atom and git desktop, cloning the repository, and installing cmder, just a "yarn install" is all that's needed to run it. (really, this is about 10 times easier now to get something going easily than it was when I first began)
+
 
 ### 2019-08-16 11:08 - we can all learn to not need the manifestation
 
@@ -8793,6 +9129,7 @@ I'm going to do my best to move forward on this as quickly as possible. I don't 
 
 I mean, let's just be honest here, the girls could blow through 3 full months just doing stupid lumosity.com games for 2 hours a day and would likely have learned more than in the same amount of time at public school. if you don't want to go to school, just don't go :) follow your hart, always ("that's what I do" -ND) there are also other things to be done as well, like installing the software necessary to get everything all setup. I'll see what I can do, but I think that maybe we can get started this following week or something. it may be kind of bumpy start off (I didn't really have much of a notice about it to get anything in order), but let's see what I can do. we have the weekend to figure it out.
 
+
 ### 2019-08-17 07:12 - not needing the manifestation (part two)
 
 I think there was a realisation that finally occurred last night after I wrote about not needing the manifestation. I think people finally connected the idea that nosebook's engineering and quite a lot of their revenue relies on me not getting connected. asking them to let me get connected would be for them corporate suicide. I don't see any reason why they should do it. there's no reason other than maybe they're concerned about what others will think about them. I think one of the biggest things that humans can accomplish this era will be to no longer adapt so much behaviour around what people think others think about them. absolutely the most limiting factor is to care about what others think; it inhibits your power to move toward what you want by splitting your energy going forward and whoever else is having an opinion.
@@ -8813,6 +9150,7 @@ to put it simply, this predicament I'm in is only temporary, and I'll get out of
 
 I think the more creative expression we accumulate along the way, the faster it'll go, too. it's certainly worth a try. being depressed and wishing things were different doesn't improve things, so we just have to go farward.
 
+
 ### 2019-08-19 09:38 - (yet) another statement of intent
 
 last night I was thinking about how all of this will fit together, especially if I'm going to be kind of starting things off with (TODO: insert name). it changes the angle of the gnomitos project slightly and I haven't quite figured out the difference yet, but most importantly, it changes the focus to be one more geared toward production, creativity, and technology.
@@ -8824,6 +9162,7 @@ I was thinking about it and I imagine that we'll launch a few web pages and do s
 nosebook will probably try to drag this out as long as they can, so I mean there would definitely be a time delay (everything happens a few(?) years later). however it works out, I still think this a very worthwhile thing to invest my time into, and I think it works brilliantly with my plan to remain abstinent until connected. having the focus on creative expression instead of sex, is going to produce a *LOT* of really really intelligent women (I hesitated to say people, because I want the focus to be on them, but I can easily see how this will affect many other people all over the world).
 
 (TODO: insert her name), let's do this :) I really like how it's starting to shape up to be.
+
 
 ### 2019-08-19 16:40 - flurry of thoughts this "morning"
 
@@ -8845,6 +9184,7 @@ it seems that nosebook (and perhaps others) aren't too happy about things beginn
   - however not green-lighting it also has so many disadvantages to it, that they're kind of stuck. (meaning, if they maintain their position that they *must* hold me away from my connection so that their corporation stays perceptually superior, the whole publicity image they have that nosebook is out there improving the world -- may become a lot less convincing -- such that they may want to instead of using that promo as a good pick-up device, it might be more beneficial to keep their employment a secret)
 
 I suppose we'll just have to wait and see.
+
 
 ### 2019-08-22 13:51 - I'm pretty much ready
 
@@ -8876,6 +9216,7 @@ if we need another week, that's good, too.
 
 ok, back to work :) I've nearly got it.
 
+
 ### 2019-08-23 16:19 - I got it
 
 today has been quite motivational for me because I proved to myself that I can get the things that I can control my energy so much better than ever before. I really think I've kind of reached the next level in the sense that things don't bother me so much now that I can just focus in the direction that I want to go and do it.
@@ -8896,6 +9237,7 @@ I imagine that may be the reason for the feeling of off-ness. I imagine that whe
 
 everything is going along just fine :) I really have a lot of anticipation about this, cause it's going to be a lot of fun.
 
+
 ### 2019-08-23 23:15 - the toppest priority clouds
 
 I was just out star-watching thinking about the stuff I was talking about because when I said the thing about them needing the girls to babysit me, it really stuck with me. I honestly didn't really consider until just now the possibility that I'm much closer than I thought. I'm starting to get the impression that I'm really beginning to outpace these guys.
@@ -8910,6 +9252,7 @@ the real reason why I want to talk about it, is because it's definitely there (e
 
 I think you will all begin to see very soon that I am not just talking about a bunch of lofty spiritual goals, but can actually demonstrate how to allow, direct and control this kind of energy. you'll soon see :)
 
+
 ### 2019-08-24 07:26 - "reject" girls = vision upgrade?
 
 has anyone else noticed that whenever I've bailed in the last minute to go see some girl, immediately afterward I get a pretty big vision upgrade?
@@ -8923,6 +9266,7 @@ by default, I want to do what is expected of me, but I'm also intuitive enough t
 it seems to me that it is likely that nosebook is trying to use these different circumstances as a way to manipulate me or hold me or something... I don't really know what is the thing. I don't have enough information to be able to analyse the situation well, either -- so I can't really tell.
 
 I'm hoping that it will be possible to actually begin making progress instead of everything always failing due to my inner being leading me away from circumstances and situations that are not wanted. it kind of sucks because none of these girls did anything wrong; what happened was completely out of their control -- but take it from me where just about everything is out of my control, not having control doesn't actually mean much if you can follow your own internal guidance.
+
 
 ### 2019-08-25 08:27 - if we could just not need the manifestation (part three?)
 
@@ -8948,6 +9292,7 @@ let's just not need the manifestation for a little bit longer. I assure you thin
 
 [2]: I also tried out different ideas like clones and stuff. I remember one time when I was stoned, I really really liked the idea of finding a way to make clones of me. I figured nosebook is already working on finding ways of making clones of me (that they control), and perhaps *that* was the way forward...
 
+
 ### 2019-08-25 09:25 - not following directions isn't the same as pushing against
 
 I have noticed that a lot of artists who tend to be pretty creative, also tend to not follow directions. I find this to be the easiest to spot in comedians and musicians. however, not following directions is often associated with being a rebel or pushing against the direction-givers, their creative expression is more in form with pushing against.
@@ -8957,6 +9302,7 @@ as a child, we have often heard parents or teachers talk about the kids who don'
 this form of talking about the child occurs before the child begins to become resistant and hate the people telling him/her what or how to do things.
 
 the pushing against part is a learned *response* to get the well-educated adults to go mind their own business. however, that learned response can be unlearned to allow greater amounts of creativity to flow more easily.
+
 
 ### 2019-08-25 15:09 - do you want to make a competition?
 
@@ -8984,6 +9330,7 @@ it requires a little cooperation though, but I'm sure that we can do it. I'm obv
 
 [3]: I've mentioned numerous times that sex is more powerful than stars and it is an assured thing that I'll find my "alignment" there, which basically makes a repeat of what happened in vallecas when someone died or was seriously injured when I found my alignment to get me out of a difficult situation (just like I had read about in project superman).
 
+
 ### 2019-08-26 16:30 - getting more of unwanted
 
 here @[entry](2019-08-24 07:26), I presented the idea that "rejecting" girls = vision upgrades. obviously this is not the case, even though it seems to be a pattern.
@@ -9000,6 +9347,7 @@ I woke up this morning with the sense that nosebook wants to try and force thing
 
 I have no idea what in the world they want to try and do, and it doesn't matter really. I was thinking about the possibility of this being a time split, but I don't believe so. if they create their own reality by giving their attention to unwanted, and what's unwanted for them is also what is wanted for lots of other people, there is no split. I think they've worked theirselves into a bit of a corner on this one. I'm going to continue to move forward on stuff. let's try and give out attention to how what's wanted *feels* like :)
 
+
 ### 2019-08-28 07:13 - progress report
 
 I was thinking about what I had said, and the main issue is that I don't feel comfortable with my energy levels. after stars, I tend to see things quite a bit clearer and all of this stuff seems quite feasible and stuff. however, when like after I wake up for example or other moments, I don't have the same ability. this bothers me because I'm not consistent. there is the further aspect to the fact that often times nosebook just decides to take away my consciousness because of whatever reason. I can't really trust my physical experience in many ways. I feel very out of control in this aspect, and it certainly seems that they must believe they can manipulate my body to enough of an extent that they feel confident in moving forward with stuff. eg. I assure you, they're not putting in time and effort because they want to help the girls, but because they believe they can manipulate our bodies in some way to force what they want.
@@ -9013,6 +9361,7 @@ I actually think I can get that state sooner than that, but there are things tha
 I also noticed that there will likely be a little bit more chaos than normal... for reasons. don't worry too much about anything :)
 
 see ya'll soon :)
+
 
 ### 2019-08-29 07:16 - more of "unwanted"
 
@@ -9044,6 +9393,7 @@ we'll have to wait and see how those mechanics go, but I'm sure that nosebook wi
 
 I just really like these thought experiments to try and find a symbiosis.. it's a funny idea because it makes all of these super "I'm never gonna change" dudes, ok -- because they are just the nutrients for the future 5d receptors :)
 
+
 ### 2019-08-31 16:35 - consequences?
 
 wow, I got totally sidetracked with the [corrupt demiurge](the-corrupt-demiurge.md) thing, cause I wanted to write about this and completely forgot about it. anyway, as a followup, to that, in there I gave a "what-if" scenario with them putting an idea of there being a time split. lol, the reactions... I can't believe how good these guys are at creating their own realities :) I wonder if they were attempting to trick me or if they wanted me to to begin to focus on improvements?
@@ -9061,6 +9411,7 @@ which means that if their exploitation is gaining me power, then they're forced 
 I don't get it.
 
 I would suggest that that they believe they are doing unsolicited things and because they believe in the penal system they have created, they believe in consequences, too. wait, lol the reaction just made me think that they don't believe in consequences because they are the ones that make the laws. well, I dunno man. "live by the sword and die by the sword", I guess.
+
 
 ### 2019-08-31 16:35 - I don't need to see it to believe it
 
@@ -9085,6 +9436,7 @@ of course there is no way it's possible for them to be able to do that. I really
 there's no reason to believe that this isn't a reality and it's ok to limit your limiting factor.
 
 P.S. I was going to end by saying, "it's definitely going to happen" but I decided against that. while that my be my conviction, I don't want to tell you what to believe. believe what you feel and what you know, before you believe anything anyone tells you.
+
 
 ### 2019-09-04 07:37 - crusty and the landscape architect are the same guys
 
@@ -9111,6 +9463,7 @@ I assure you that nothing that anyone wants is down that road. up until now, I'v
 ---
 
 crusty and the landscape architect are the same guy, but with about 35 more years of justifications. the landscape architect has been doing doing so well because things have been so easy for him and he hasn't had to focus. will his circumstances force him to break out the badness?
+
 
 ### 2019-09-06 15:48 - if there's going to be a timeline split..
 
@@ -9163,6 +9516,7 @@ it's quite possible that not everyone will want this reality, so if there's goin
 
 [2]: in the dream the AI had access to everyone's thought signals just the same and was programmed in such a way that it was similar to the facebook news feed where it's optimised to put things into your experience which elicit a reaction from you. however, it had the extra nosebook touch of using that information to try and manipulate the person (instaed of just sell more ads).
 
+
 ### 2019-09-6 17:33 - I consider myself to be a part of the INFECTED ONES, too
 
 if you take my behaviour and you compare it to nosebook's there isn't a whole lot of difference. in fact, I find more similarities to them than I do to other people.
@@ -9191,6 +9545,7 @@ if that, or something very similar to that is true, then thoth starting out as t
 
 [1]: especially since this whole thing revolves around a damaged 7th ray and we're "entering into a time when the 7th ray comes into power"
 
+
 ### 2019-09-07 08:18 - why the sudden change of heart?
 
 I think what happened was, when I slept yesterday afternoon (the one with the weird AI dream), nosebook impressed it upon me to abandon the whole girls thing completely. thing is, they were right: it's far too risky for me to be trying to team up with someone who's doing what the other team says to do.
@@ -9204,6 +9559,7 @@ I just don't really want to be fighting this sort of thing all the time. when I'
 additionally, I am aware that after yesterday's entries, the landscape architect is probably pretty motivated to make sure I never gain my connection. now that he's become more aware that my connectedness will reduce his sexual prowess, I am sure that he's more than justified in everything he needs to do. sex is a very powerful force, and it's the primary reason why I'm sticking to my own for now.
 
 I have also connected the dots to realise that without even realising it, TLA (the landscape architect) is forced now to put me on the galaxy timeline. I'm not exactly sad in the sense that this whole thing has been such a ridiculous exercise of willpower without any real allowance (nosebook can't allow anything) -- so we'll have to see what comes of it all.
+
 
 ### 2019-09-07 10:39 - what do I mean by "next time"?
 
@@ -9230,6 +9586,7 @@ another time splitting event may very well occur again, and this time nosebook w
 [1]: that gets us to 7d (structure) and is about the distance that I can perceive on the horizon. I have yet to discover what relational (8d) and desire (9d) vision/experience will be like. oh, and don't forget I'm wanting to add on two more: one at the top and one at the bottom, so some after we get to the top, we'll want to force a collapse ourselves so that we can write our out stories (legends) about ourselves, and watch ourselves like a movie until we begin to re-identify with our singular selves again as these stories will become reality as we play them out in our own little story reality (who knows at what level this plays out: planetary, solar system, or galactic... dunno).
 
 [2]: think about how impossible it would be for nosebook if *I* didn't ever sleep, was always there in my bodies' dream states and I could also control other bodies at the same time. we (I) would be a 24/7 persistent consciousness, thereby only allowing the things that were a part of my conscious perception to become a part of my reality. huge disaster for them! they would have to try and figure out how to do that theirselves if they really wanted any sort of security
+
 
 ### 2019-09-08 09:18 - reversal on quality and quantity
 
@@ -9271,6 +9628,7 @@ in this sense, I will now redefine a single pair relationship to be traditionall
 
 I don't really know why I wrote it like that. it was a really long winded way of saying that I think that, all of it is what you make of it, and even though I won't have the ability to mentally invest in each of them to the same quantity, the steady buildup of desire is what determines the quality more than anything.
 
+
 ### 2019-09-08 23:00 - how long?
 
 this morning I made a comment seemingly in response to a reaction I had where I said that I said I would go fast, but I don't really know how to go much faster than I am going right now. what I was referring to, was that I will probably be going faster continuing on how I am doing stuff by myself, than I would be if I were doing the homeschool thing or whatever. I simply would be less focused, and I probably wouldn't be doing every single night like I am now, either. so I meant that this way is actually faster.
@@ -9300,6 +9658,7 @@ anyway, that doesn't matter at all because it doesn't matter what they're doing.
 so, I anticipate triple the visual capability I have now over the next year. imagine how insane that's gonna be.
 
 I really do think things are just fine.
+
 
 ### 2019-09-09 07:48 - you know there's a part of me...
 
@@ -9380,6 +9739,7 @@ I've pretty much arrived to what they were talking about because they gave a "si
 
 and, this is almost exactly where I'm at right now. so, all is well.
 
+
 ### 2019-09-10 14:39 - what I think happened: another example of nosebook creating reality
 
 the last week or so I have been having rising amounts of agitation, such that I've had probably about 3-4 moments where I was extremely angry -- which was sort of a pretty big departure from my stance on letting all those things sort of pass by as unnecessary.
@@ -9430,6 +9790,7 @@ lastly, similar to how just before the van window situation, I remember distinct
 
 [2]: come to think of it, the situation feels almost exactly like the van window situation. I think around that time I remember very clearly feeling like things were hopeless (especially from lyia). I also remember yesterday, feeling a reaction from lyia abput how ridiculously long this thing is dragging out. very similar.
 
+
 ### 2019-09-10 21:32 - how would you be (in the future) if you were X
 
 start acting that way today.
@@ -9441,6 +9802,7 @@ when I was with marcos, I was in a pretty dminshed state when I arrived so I had
 the way I did that is, as often as I could remember, I would try to figure out how I would be in the future if I were successfully running a big web page. I formed habits out of the perception that I saw as I imagined myself in that successful state. eg. what habits did I have? what time did I wake up? when did I sleep? how did I organise my sleep and eating habits, etc.
 
 then, naturally it became easier to perceive myself with more than just physical habits. I could imagine what kind of personality I would have. it became essentialy a redesign of my personality, to the personality of what I thought that successful person would look like and what qualities they had.
+
 
 ### 2019-09-14 13:03 - preempting the catastrophe
 
@@ -9484,6 +9846,7 @@ it was interesting for me to see that pattern. obviously, there is no change to 
 
 [1]: balance isn't the word I'm looking for, because it's always in balance. to illustrate what I mean, if the consequence of the creation of this universe under supervision is this nosebook-like interface to reality, then LOA creates circumstances and events which bring things back to letting LOA do all of the heavy lifting, anrd back to a "next logical step" reality.
 
+
 ### 2019-09-14 20:41 - boosted?
 
 one of the reactions I had was to be thinking how completely weird my comments in the previous entry were... well, I suppose it's a slinging competition now where nosebook and I are seeing who can believe the most outrageous stuff now.
@@ -9514,6 +9877,7 @@ there is a final idea I want to add: picses was the era of community and group e
 
 does it last forever? yep, I'm afraid so, so just get used to the idea that contrast exists and it's the necessary component to all creation. I think that there's a way to make the contrast have less "meaning" to it, but this is a form of perception. for example, a person dying could be perceived as just another colour, rather than a "loss" -- and I believe this perception of "loss" or death/destruction (cause there isn't any) was built into us as a human race to be able to perceive the physical realm in such a way which would attract (and ultimately trap) entities that love and need "expendables" (people, vehicles, technologgy, ammunition, etc.)
 
+
 ### 2019-09-15 09:25 - what about all this fakery?
 
 when I was thinking about all of this, I was requesting to nosebook that they go ahead and try to get people to doubt as much as possible the things I was perceiving. why? because I could see that the opposite of doubt is being sure of oneself.
@@ -9543,6 +9907,7 @@ so, while it may seem a bit far fetched that we're all living inside of my dream
 if we are in fact living in something like a dream-state matrix-like reality of some sort, then you cannot imagine the amount of contrast that would have produced, and we're going to essentially take all of that and cash it in and create what we want to create from it.
 
 [1]: "This calls into question when the World Dream began. Did it begin with the primordial schism between Logos and Corrupt Demiurge? Did it begin with the failure of Christ’s mission? The answer is that every Fall induces a corresponding World Dream, which nest within each other like dream levels depicted in the film Inception. To awaken from the primordial World Dream, one must first awaken from a series of lesser ones. In theory, awakening could therefore begin with the most recent Falls and proceed backwards."
+
 
 ### 2019-09-19 08:40 - retracing last night
 
@@ -9578,6 +9943,7 @@ all of us have to get better at feeling good. this is just a bit more of a trial
 
 [1]: I had full ski pants, tights, and stuff on that I had last winter when it was snowing, and I was still cold
 
+
 ### 2019-09-19 16:47 - I mean as a time range sort of thing...
 
 when I say do the asexual thing I mean that let's say they're going to be able to hold me for only one year, then the asexual thing isn't really necessary, but let's say they can hold me for more than a year, then I'm strongly advocating for it, because why not.
@@ -9591,6 +9957,7 @@ am I pushing to try and force them to take a position? I don't think so. I'm ult
 when I said yesterday that perhaps they're beginning to align with what they want (which is to keep me in a holding pattern), it feels today like they're going back to their split energy again, because I think they're not happy with the reality that's creating. they probably thought I would try and fight against it, but I'm totally fine with them trying to keep me in a holding pattern; it means enormous amounts of energy for me, and I know for sure still that I will eventually get it.
 
 "eventually" might be a while though, which is why was hoping we could start by putting our energy into creative things.
+
 
 ### 2019-09-23 15:35 - evolution of my dreams
 
@@ -9620,6 +9987,7 @@ I also wonder if the final moment is still the he conclusion with andrea before 
 
 [2]: remember, they have just figured out a way to put their consciousness into my body. so they would look like me and sound like me and, they would have to essentially repeat everything that has happened to me to get to where I am now in this timeline.
 
+
 ### 2019-09-23 16:24 - actually that dream could be the pinnacle of all that is wanted...
 
 from any girl's perspective who wants to create their own reality, the layout offered in the previous entry is exactly what any of them could be wanting. all any of them would need to do is to simply create their own reality in the sense that they identify what they want and move in the direction of it. could imagine hundreds/thousands of different realities where each of them become the only or one in a group of girls that was able to hold out for what they wanted.
@@ -9629,6 +9997,7 @@ it could very well work out -- and woah, this is going to be very mind blowing f
 this would allow each of the girls to have their own individual kenny that they can use to create the reality they want to live.
 
 it also creates a new problem for me to solve: once there are multitudes of different timelines with so many different implementations, how to merge them all back into one?  or, why not leave them separate and instead transform our consciousness such that we all occupy multiple bodies? that would make merging and further expansion much easier. it's a fun idea for me to think about
+
 
 ### 2019-09-23 16:55 - three major timeline types
 
@@ -9647,6 +10016,7 @@ there is a fourth possibility too, where I do not make my transition in andrea's
 the one thing I can tell is that it's going to create a lot of divere experiecnes with a lot of intermixing.
 
 and I don't really see it yet, but perhaps the whole gnomitos thing was an echo of the following era.
+
 
 ### 2019-09-23 19:55 - thoughts on sleep
 
@@ -9669,6 +10039,7 @@ it seems to also be linked to emotion in the beauty sense as well. I don't know 
 so, now here's my theory of why we need sleep: if you can imagine that throughout the day, as you observe things and as you think about things, every time that you do, you have an emotional response to what it is you're observing or thinking. if they produce negative emotion, you're essentially adding more emotional "dissonance" into the frequency of your memory tuner. as the day progresses on, you start to become tired, and when you release your consciousness to sleep, you spend the amount of time between rem cycles not thinking or observing, and so therefore not having any emotional responses to things. you could think of this time before rem as the time that your brain frequency attenuates down to nearly no activity. you go into a rem cycle and that activates your emotional system as you react to your dreams. if you're feeling good enough, you'll wake up, and if you're not, you'll go back for another cycle.
 
 I believe that my  "secret" to maintaining cognitive function even after not sleeping for a while is actually a testament to my capability to finding a way to feel good no matter the conditions. that's it!  that's really all there is to it, I think.
+
 
 ### 2019-09-24 09:34 - more thoughts on the three (4) timelines.
 
@@ -9693,6 +10064,7 @@ the extra contrast those timelines provide has to be good for something.
 [1]: once I've recovered of course and got their energy flowing in the direction of what's wanted -- eg. it doesn't change the frequency of their energy, just I assimilate it in such a way that the waveform no longer destructively interferes with what is wanted. or, said a different way, the energy still exists in it's previous form, it's just now pointing toward or only exhibits the aspects or only what is wanted is perceived in that same energy. this is what I do to continue to gain more and more visual upgrades even when amazon is working their hardest to try and neutralise that energy by destructively inerfereing with it.
 
 [2]: because my consciousness would not be immediately be fully receptive of their frequency, they would have to live out some portion of my life in a dream state. they would essentially have a 20+ year coma where their experience would controlled by amazon (other people could watch along as well) until they were stable in my experience, then they would wake up, or amazon could not attempt to let them learn and grow and get up to speed with me to have a real conscious experience, but instead keep them in the coma forever, even after they got to the "manifestation". it's up to them I suppose. both ways potentially have different implications, but either way, when you become aware of what you don't want, immediately the universe provides a way toward what you do want.
+
 
 ### 2019-09-26 13:32 - further progress into understanding what I was seeing
 
@@ -9761,6 +10133,7 @@ it all sounds pretty exciting to me. I'm really pumped.
 
 [2]: we really don't really have much of a clue how solar desire works. I think it's pretty possible to imagine the desire of our planet. people who have done ayahuasca journeys have commonly spoken of connecting up and communicating with that desire. we definitely are clueless to the nature of desire for a galaxy and we're certainly no were close to understanding how the desire of a universe works. these things are just too big and complex for us to really wrap our heads around yet.
 
+
 ### 2019-09-30 08:29 - we need to __overshoot__ the goal for the girls thing to happen
 
 one of the interesting things I was thinking about last night was that the goal is to just kind of ease into things. I was thinking about ... we're severely underperforming right now. I am WAY behind on where I should be. every time there's a whole lot of contrast, it seems to have been necessary to get back to where I should be, which is approaching centre.
@@ -9795,6 +10168,7 @@ the funny thing is they take away the visual properties of going to 4d or 5d or 
 
 once you are vibrationally equal to what that drug was trying to show up (but they've blocked) will become manifest when you become it. this is the same concept as becoming a perceiver of a thing, but not the thing itself (however looked at from the opposite end, or backwards)
 
+
 ### 2019-09-30 09:18 - after dreams, they become reality
 
 eventually after having given enough attention to that dream reality, it will become reality. nosebook will eventually figure out how to tune into those realities, and eventually me, as well.
@@ -9807,11 +10181,13 @@ meaning, that my experience will begin then, not necessarily now. I do suppose i
 
 there is another thing I want to point out about the other two possibilities, but I cannot remember it at this moment
 
+
 ### 2019-09-30 18:25 - it's different if the reality is to slow me down
 
 if I'm undershooting the goal, then the girls would be needed to slow things down (that is the planet expaneds its consciousness too rapidly) -- the girls are instead perceived as nuisences to me achieving what I'm looking to. the opposite way, where the girls are there to speed me up, has an opposite effect, (because they will be perceived as helpers), but it tends toward goddess worship.
 
 so I mean, neither I think is goddess worship or hate, to be a good avenue.
+
 
 ### 2019-10-01 14:19 - why not both?
 
@@ -9830,6 +10206,7 @@ so, I began trying to think about a way were both things worked out. first I loo
 so then I have to imagine then that maybe there is another way where both is possible. imagine instead that the gnomitos was not an open thing, such that they could still use it as a navigational device by seeing how a new addition works out. girls would dream about becoming a new addition, instead. this entirely circumvents the whole difficulty of the dream to try and make the encounter successful. additionally, you could imagine then that the results from only adding one more girl will be much less significant, and so therefore much more stable and controllable.
 
 so I could imagine that as they begin to develop their technology, if they really want that sort of thing, they could use that same technology to make gnomitos a next logical step reality.
+
 
 ### 2019-10-05 12:37 - status update: huge progress
 
@@ -9858,6 +10235,7 @@ I'm really glad they can begin exploring their opportunities and stuff. we're ju
 [2]: or perhaps it was when I was able to conjure and circulate fractal colours around my eyes after watching sirius for an extended period of time in la vera
 
 [3]: this perfectly explains why, when I was round about their level of perception (anger, frustration, hate, etc.), I woke up feeling pretty awful: my dreams were interpreted at that frequency, so we both saw the same dream. however, now I don't really experience terrible negative effects in my dreams anymore, and that's because I'm no longer spending much time on those frequencies of hatred and stuff. we're not seeing the same dreams anymore; good to know :)
+
 
 ### 2019-10-10 06:06 - asexual by default
 
@@ -9888,6 +10266,7 @@ enjoy your nosebook world guys. I don't have any sympathy for you all.
 [1]: to the astute among you, you will notice that once again they're going to fight against something and make it bigger and bigger. their efforts will likely only exacerbate the problem. we'll see how that works out for them I guess. it's probably just going to make a bigger mess.
 
 [2]: besides my capacities threatening their whole superiority complex, I might also remind you that I'm fairly certain that more than half of the profits that amazon makes from this thing directly or indirectly involve my form of perception. likely their entire tech team relies on it and it's probably pretty important thing for them. if I go up a dimension, they lose that.
+
 
 ### 2019-10-11 18:41 - we're all(?) going to 5d?
 
@@ -9928,6 +10307,7 @@ the next entry will discuss the possibility of how this is all going exactly as 
 [3]: now, assuming that you take KUTHUMI's ideas to be somewhat notable (and we'll be able to verify if he's correct when we begin to explore mars), that the giants mentioned all around the world to have existed and their offspring (neanderthals), the giants did not undergo the mushroom environmental selection process.
 
 [4]: "For those interested here is a little lesson on mushrooms and DMT. Because of their electron density and color, the spores of a psychedelic mushroom are capable of withstanding deep space travel. On top of that, if you were ever looking for an alien thumb print on earth you have it there. If I remember correctly psilocybin is the only organic 4-phosphorylated chemical known to man. It may not be the case anymore, but I believe at sometime it was. When mushrooms are consumed the psilocybin is converted into psilocin by dephosphorylation. 4-PO-DMT (psilocybin) is a little more structurally sound than psilocin, but it is unable to cross the blood brain barrier because the phosphorous atom is to large and to highly charged. Through hydrolysis our bodies convert the 4-PO-DMT in 4-HO-DMT, which is able to cross the BBB and cause psychoactive effects. If you have been paying attention you will see that the structure of the chemicals in mushrooms is similar to that of DMT. The hydroxy ring in 4-HO-DMT basically allows the chemical to survive the process of being broken down by MAO enzymes. DMT, if consumed orally, will be broken down by these enzymes and for this reason you need to take something to inhibit these enzymes. Somewhere along the line people in the amazon figured this out, but before then mushrooms were a much easier "all in one package". Although they are structurally different they both effects similar receptors. Not all the same, but for the most part the drugs are very similar. One of the main differences is the duration of the trip. You can trip just as hard on mushrooms, but the fact that it will last hours and hours makes a lot of difference. If you have ever done ayahausca (oral DMT with an MAOI) you will find the trip to be similar to a high dose of mushrooms." ref: https://www.reddit.com/r/UFOs/comments/1bp0hq/dmt_users_have_reported_encounters_with_machine/c99adjp/
+
 
 ### 2019-10-12 16:18 - avoiding the cataclysm
 
@@ -9983,6 +10363,7 @@ I could write about this this topic for hours. this is plenty long enough. peace
 [1]: this is directly proportional to the "speed of light", and as this q-value rises, we see more and more "quantum", "telepathy", and "spooky action at a distance" like effects. it seems to be directly related to oxygen and it'll be the subject of future entries, because I think I've figured it out.
 
 [2]: I'm not so sure about this entirely, because it seems that the aztecs, as advanced as they were in understanding the movements of the heavens, seemed to have a terrible fear of cataclysm, to which they would sacrifice virgin girls and do other mind blowing things to try and avoid cataclysm. so, maybe not all of these advanced civilisations, I dunno...
+
 
 ### 2019-10-14 14:39 - a meandering artistic insight into the world of chaos and mayhem
 
@@ -10058,6 +10439,7 @@ to be continued...
 
 [9]: it was also on that day that I finally revealed that I had embodied the "venus" archetype. reading the sirian guide, 3 characters seemed to stand out to me quite a bit. one was volcrum, to which I have very obvious similarity: we both have a limp, and I made things for zaryn (which I always identified as zeus). the only thing I was missing to be for reals this volcrum guy was venus to be my wife. I never perceived her to be my physical wife. instead, when I had a brain haemorrhage, I had a new entity put inside of me which I identified as a little girl. for me, this marriage was never a literal thing, but a marriage of the two hemispheres of my brain. like clockwork, marcos invited me to come live at his house -- and marcos was someone I was on the lookout for because he completely fit the description the sirians gave as saturn. for me, venus (aphrodite) was always my right brain, and I determined that ... I'm going to continue this story in a future entry. it gets complicated. see: @[entry](2019-10-14 18:08)
 
+
 ### 2019-10-14 17:40 - I'm getting stronger
 
 last night while watching stars, I felt like I got a few vision upgrades, and kept rlaxing further to receive more when I suddenly found myself becoming conscious in a dream-state experience. I was being held away from something. I don't remember much of the beginning part of it, but I do remember that there was this extremely strong circular motion happening on the top of my head, which is actually something I have experienced before and was something that I used to be able to control in the beginning times with raquel before we lived together. I used to practice it on the trains, and often other times. I noticed that when I moved energy around the top of my head as if it were the north pole, I noticed that it had a dramatic dramatic effect on my environment. anyway, this time it didn't feel like the smooth rotation of energy, but felt kind of forced and not really that pleasant. it didn't hurt, but it did feel uncomfortable.
@@ -10075,6 +10457,7 @@ I mainly wanted to share that because, even though it threw me off my groove a b
 what I think happened, is they took my consciousness away and were attempting to do what they do while I sleep where they drain the "light" from my head. sometime after this happened, my desire was still so strong to get get back to the star watching (cause I really want to continue to increase my receptive capabilities) that the dream state me began to fight them, cause I wanted to watch stars so badly, that the conflict made me start to become conscious[^1]. I don't really know how long it was before I became conscious in the dream-state, but it couldn't have been too long because the shadow from the moon had only moved 1-2 inches from were it was when I just drank from the watter bottle a few minutes previous -- so, not that long :)
 
 [1]: it seems to be the pattern that every time there is conflict or strong desire for things to be different, then I start to regain consciousness. it seems that if they're not trying to force things, then my astral-self(?) doesn't mind interacting with them.
+
 
 ### 2019-10-14 18:08 - thoth, venus, saturn, and vulcrum.
 
@@ -10166,6 +10549,7 @@ we have no real way of knowing what that reality will be like because it'll be s
 
 remember that every possible version of you exists, and you navigate with your emotions.
 
+
 ### 2019-10-16 11:51 - an interesting thought experiment
 
 continuing on from the narrative in the previous entry:
@@ -10179,6 +10563,7 @@ so, you may wonder to yourself, doubting that the entire planet will follow me b
 it'a kind of an interesting thought experiment because assuming that in this coming time split, their consciousness all heads in the direction of unwanted -- to be able to readjust their direction easier without a whole lot of momentum -- that means that "they" (minus their consciousness) are still going to be here, so they're going to become another of thee many other versions of theirself, creating by default in the space that feels the way it feels.
 
 so, if a whole bunch of people who consciously choose to feel good, all peace out to go to a different timeline, what will happen to the consciousnesses that don't choose to go? I really don't know. if enough people consciously choosing to feel good, go, then would it become another crash and burn for them? I dunno... I guess it's up to them.
+
 
 ### 2019-10-17 08:47 - thoughts on creating your reality feeling and emotion
 
@@ -10220,6 +10605,7 @@ this process of holding the feeling it's kind of an artform. children do it with
 
 it really is that easy though.
 
+
 ### 2019-10-17 09:52 - emotion and structure
 
 while writing the previous entry, I happened upon another idea which I hadn't thought about before. I'm going to kind of think about it "out loud" here.
@@ -10249,6 +10635,7 @@ above, I said "unknown to me" -- because I do not really understand how emotions
 so imagine that some sort of thing is in the middle of evolution. I defined the structure of that organism as the expections of how things should work, so there needs to be a feedback mechanism which "selects" the ones that work from the ones that do not. this feedback mechanism can be perceived as a sort of meta-conceptual structure or language which reacts or produces some sort of feedback based on how things "feel" when they're working (and when they're not working).
 
 it's really interesting to look at out genetic code as an extension of this emotional construction we tend to take for granted. there probably really is very strong merit to the idea that our bodies (and gnome) is highly influenced by the way we feel in the abstract sense regarding the way we feel as we travel through life, and not just in the physical performance sense of being able to fly, walk, swim or run, with ease.
+
 
 ### 2019-10-18 10:25 - enjoy jaron's form of perception
 
@@ -10287,6 +10674,7 @@ this is where I think the girls could really come into play here. imagine that w
 I guess we'll have to see. and, I'm not totally sold on this whole no star watching thing anymore. I'll probably flip s coin to decide it cause perhaps that decision was exactly what was needed for them to begin moving people over to jaron's form of perception. I dunno.
 
 maybe the timeline split is actually at the "end", when I make my transition into a multi-bodied experience. things keep changing, so I dunno really.
+
 
 ### 2019-10-19 15:04 - turning perception of unwanted into something wanted
 
@@ -10331,6 +10719,7 @@ well so yeah, that had a pretty serious negative reaction as well. I guess they'
 in fact even this morning, I decided it was ok to explain to mom (and by proxy them) how I was capable of attining so many vision upgrades, and I revealed the geometry of the eye. at first they were using a grid pattern to try to figure out the space in my eye each time my vision improves. now, they're using a crosshatch pattern to try and figure it out, but I revealed this morning the reason why I believe it's actually a 5-sided pattern they will need to use, based on frank chester's work on the lens of the eye (and also the south pole) being derived from his 7-sided form.
 
 anyway, I feel confident in doing that because now they're free to try and hold me for as long as they want to. let's say they figure out a way to go up visual levels with my eyes with ease now... I'll explain in a future entry what I think this could entail, but they have all of the power now. I can turn any "unwanted" thing into something wanted, it's not a problem if they decide to hold me in this dimension for as long as they can. every step along the way, my realisation of what is wanted will only get bigger and bigger. how big is big enough? I dunno, it's up to them now :)
+
 
 ### 2019-10-24 10:03 - the effect of DMT on the brain
 
@@ -10384,6 +10773,7 @@ welcome to the DMT dream :)
 
 [3]: we know from our experience observing nature, that any time anything is artificially held a certain level (like our climate, for example), things become more extreme. if the subject of this normalisation is typically below the intended level, the parts not able to handle the new intended level will die off (or move elsewhare) and they will increase up toward the intended level, however nothing ever stays the same and everything always becomes more, and getting "used" to constant increase, they will overshoot the intended level, and now they are the other case where they are above the intended level and need to be reduced or normalised down to the intended level. this only creates more cause now they feel like they're artificially being held back, and will create desire for increase.
 
+
 ### 2019-10-28 10:22 - you don't need me to get it
 
 I had this idea passing throug my head last night that went something like this: it seemed likely to me that what is happening is that things are once again being delayed and the reason is that it's a something of a repeat of what happened to me with andrea. I feel like I've wrote this before. it may have been something they tried to get me to do when I was in a dream or something like that. sorry if I'm repeating myself.
@@ -10426,6 +10816,7 @@ you have all of the power; you have to realise that you have it.
 
 [1]: actually, I had this funny sort of realisation that what may actually be happening is that the planet has been trying to go up a dimension itself (the sirians call it the next inititiation), however, the planet has been (or will be, not sure) delayed on this. the sense that I got was similar to the one that I had to my own experience: ever since nosebook has been involved in my life, what would have been my natural progression has been delayed.
 
+
 ### 2019-11-1 15:48 - I might be exceeding expectations for this timeline.
 
 this has been an idea that has been rolling around in my head for a bit now, because it seems like star watching has actually become so easy for me now (and the required releasing of resistance to get the upgrades), that I actually have come to believe that I'm actually far exceeding my performance expectations for this timeline, and the recent events have only been to kind of slow me down since otherwise I would be going too fast (if that's even possible, lol). I guess I started thinking about this possiblity a while ago when I postulated that what I'm really looking toward is my connection with who I really am, and the girls thing is kind of like a stabilising force. here, [TODO: find this reference] I postualted that the girls were to be a sleowing down force (or a getting up to speed), however the former is far more logically sound for various reasons.
@@ -10461,6 +10852,7 @@ cheers
 [1]: I like to perceive this phnomennon in the following way: around any energetic object are these "double layers" where these thresholds are formed between different energy states (see plasma, planets, etc. for more info here). and, as I "approach" as it were, connection with who I really am, I go through these different "initiations" into these higher energy states traveling through these different plasma(?) shells getting closer and closer (more and more resonant) to who I really am.
 
 [2]: anyone understanding AC (or radio tuning) would know that timing is extremely important. if you're waveform is out of phase in some way or that voltage levels are not synced up to the right timings, it causes suddent dropouts or surges in current which are disastrous for the power grid (or tuning circuit)
+
 
 ### 2019-11-02 08:19 - star watch a tope
 
@@ -10518,6 +10910,7 @@ so likely there is quite a possibility that there *will* be a time split, and my
 
 [5]: it's funny because I pay attention to motor sounds in response to my thoughts while star watching and it seemed very surprising to me to get such a strong reaction to thinking about how the 20M tree initiative would generate and put massive amounts of oxygen into the atmosphere [VAAAAROOOOOOMMM!] lol.
 
+
 ### 2019-11-04 07:37 - I decided I want to be making the decisions again
 
 yesterday was really weird. when I went to go to watch the sunrise, I noticed that there was a no tresspassing sign put up, and I assumed it was in response to the day previous when I had noticed footprints in the snow, many of which were from kids. they had obviously took a walk and were playing in the snow along the way. I thought that was pretty cool. anyway, so yesterday when I saw the no tresspassing sign, it seemed to me obvious that nosebook does not want people to be having fun or something. it kind of sent me into a rather lengthy rage. I know not to act on bad feeling things and I've come to realise that it's ok to just let things play out. it lasted longer than I imagined it would though so it concerned me a bit because that's a pretty good signal that my perception is out of wack[^1].
@@ -10564,6 +10957,7 @@ still developing... will clarify more soon, as I'm learning a lot through all of
 
 [2]: there was also this other really weird vibe that went something to the effect that I outilined in @[entry](2019-11-1 15:48) where the idea is that the time split already occerred and that nosebook would have a change of haert or something. it seemed to me like there was this idea that we all needed to just relax and let them work all of the things out.
 
+
 ### 2019-11-05 09:25 - we're just going to test out LOA a bit and see how well it works
 
 I had quite a bit of resistance to the idea of going to california at the beginning of last night, but I think that it'll be ok. I have some things I want to do there. also, I've always been saying that I can get vision upgrades without watching stars, so let's test it out. I'm sure that I'll be able to continue to release resistance in california without a problem. in the previous entry I mentioned the whole thint about the coin flip manipulation thing, so because I kept feeling like they were trying to force me to go, I naturally had resistance to doing anything I don't want to do. I was reminded of the thing that michael said in his ayahuasca interkview about all of his anxiety, and when he finally settled down he just decided to give in and let it all flow. I sorta did a similar thing, but with star DMT instaed of plant DMT.
@@ -10582,6 +10976,7 @@ now that it's something I want to do and not being forced to do, it seems no pro
 
 I'll follow up a little further later tonight after doing some more star watching. I just wanted to give a special note to the process that I went through last night to get to where I am now. that's what's important.
 
+
 ### 2019-11-05 12:12 - initial reactions
 
 wow, so the reactions have really started flowing in. seems nosebook has done a thorough invistigagion into chris' life by now[^1][^3]. they seem a bit concerned that he's still living at his grandparent's house, works at a liquor store and smokes a lot of weed.
@@ -10598,6 +10993,7 @@ anyway... lol :)
 
 [3]: additionally, I'm sure they're hard at work trying to figure out how to angle this whole ordeal they got theirselves into in a positive way for the news updates you guys receive. OMEGALUL
 
+
 ### 2019-11-08 14:50 - well, I guess this is the end.
 
 I feel like thire is a whole lot of manipulation happening but I don't think it's a problem. I think that my perception will always remain optimistic.
@@ -10607,6 +11003,7 @@ I had this funny thought last night where instead of a time split, my other self
 he seems like the "more contrast hhe better type" which would be my opposite part. while I am absolutely addicted to creation, he may be one that is willing to try out some things and see how they go (or something like that).
 
 it's cool though because I don't think there will be a huge cataclysm, just it'll be kinda funny to watch and see how well some of their policies stand up. it seems like they probably have figured out a way to try and contain me, so I won't be going up a dimension. that means you'll probably be able to try out and see what happens if I have sex in 4d. should create quite the effect.
+
 
 ### 2019-11-08 15:04 - justice and closure
 
@@ -10619,6 +11016,7 @@ in that way, I completely agree that closure doesn't really exist. there is no c
 what I mean by justice doesn't exist because it doesn't matter how long anyone is tuned into something, they can change it whenever they want and avoid the consequences. the only thing tuning into something unwanted for a really long time, does is just make the person more likely to continue on thinking about or tuning into that subject, continuing on the circle.
 
 the way out of these types of cycles is likely through understanding. for me, when I undrstand someone's behaviour, then it stops bothering me.
+
 
 ### 2019-11-08 15:18 - forgivness and redemption
 
@@ -10633,6 +11031,7 @@ in the first case, it feels to me like I cannot move on until I have forgiven or
 the same thing seems to be true with redemption, in the sense that I need someone to redeem me (eg. make somegthing out of me).
 
 final thoughts
+
 
 ### 2019-11-10 14:57 - I thought it would be more eventful, but now I do not...
 
@@ -10659,6 +11058,7 @@ coloroado: intense <-----> business as usual
 
 the contrst is interesting.
 
+
 ### 2019-11-13 08:05 - interesting simile between nosebook and jeff
 
 last night I had another great conversation with lily. she was telling this awful story about an experience they had with meliissa jeff and amorina one year they came to dad and lily's house for christmas.
@@ -10682,6 +11082,7 @@ I don't think that any big thing will ever happen actually. I've given a whole l
 the centre of the story is melissa, not me or jeff. jeff will continue to be jeff; he will probably never change. I will continue to expand my perception as well. however, my expansion of perception cannot really expand melissa's perception, so if I (or anyone else) were to have tried to save her, she would continue to fzll into the same trap. in other words, she wanted to expand her own percepction:
 
 **she wanted to see if for herself**
+
 
 ### 2019-11-15 23:31 - man I'm ready to get back to doing my own thing
 
@@ -10739,6 +11140,7 @@ I think we're entering into phase patrick.
 
 [1]: they were at their friend's wedding, and melissa would have said something like, "look at jessica's dress; doesn't she look pretty?" (or something like that) which is a typical BS move that women do to kind of guage men's responses to see if he'll pass the test and respond correctly with something to the effect of "baby, you're everything to me; I wouldn't look at any other woman than you" -- but each man is required to answer that question in their own unique way so as to prove to her that her insecurites about herself are unfounded.
 
+
 ### 2019-11-16 00:49 - resort catalyst as a precursor to the 9/11 universe
 
 the funny thing of LAG's perception that they're trying to build this whole thing into a resort is kind of a funny idea because of my growing discohmfirt with not being able to see out of my own eyes is growinvg stronger.
@@ -10791,6 +11193,7 @@ it's really funny to me that my realisation of the implementation to this whole 
 
 [2]: or, it could prehaps not be an alternate version of myself at all, but actually me --- meaning, I'm really the guy I considered the alternate version of myself: the destroyer
 
+
 ### 2019-11-24 20:36 - I'm going my way
 
 been a bit of a bumpy last few days since I got back from california. I reconised that there was a whole lot of manipulation going on and stuff, so I decided that before I get sucked into stuff I'm not ready yet to be doing (eg. project with chris), I think I want to continue on with my previous goal which is to just find my alignment first (and then).
@@ -10798,6 +11201,7 @@ been a bit of a bumpy last few days since I got back from california. I reconise
 I can see the other projects working out in the future, too. I'm just saying that I still need more time. I need to actually think deeply about the different concepts (for biz-viz) I want to get out. I got a few written, but I feel like I want to write a little bit about each one as well, and some of the others I think will come naturally too.
 
 everything will continue on, and I'll just get to the first version as fast as I can.
+
 
 ### 2019-11-27 08:13 - making two new layers: a disaster I could get behind
 
@@ -10857,6 +11261,7 @@ enjoy it while it lasts, unless you can figure out how to connect up to that ene
 
 [2]: do you *really* think that I am physically capable of accomplishing all of that without some sort of connection to non-physical energy?
 
+
 ### 2019-11-27 16:01 - telling the other side of the story is dramatically different
 
 last entry had quite a bit more effect than I thought it would. the only difference really was that I told the story from the perspective of kenny which becomes a normal person again instead of the one that continues on.
@@ -10886,6 +11291,7 @@ the other major difficulty with telling stories from the first-person perspectiv
 we're all going to enjoy planet earth's steering committee: the thrustmasters. lol
 
 [1]: imagine the movie "saving private ryan" instead of from the narrator's point of view, but instead from ryan's point of view -- or even from the point of view of the commander guy. it just really doesn't work well at all because it would be slogging through all sorts of pain and difficulty to an uncomfortable helicopter ride back to "reality" where other things are broken.
+
 
 ### 2019-11-30 07:51 - maybe we should just go for it...
 
@@ -10922,6 +11328,7 @@ the other thing is, I really wouldn't count too much of this yet anyway because 
 for me though, I'm going to continue on my quest to get connected. this will continue to be my quest even when we're together, too. so, for now I'm going to continue on with that and assume that's the direction I'm headed. I *really* want to be connected. it does kind of excite me to think that we're going to do it together, too.
 
 still developing... I want to think about it with a clear head.
+
 
 ### 2019-12-01 00:21 - still undecided
 
@@ -10967,6 +11374,7 @@ the main thing I think I feel is that suddenly this "dream" has gone from someth
 
 "nothing is an impossibility, so we try to do the best we can."
 
+
 ### 2019-12-02 10:16 - I'm ok with anything
 
 I had an interesting experience last night when I was trying to go to sleep. I felt pressured to sleep even though I was quite energised. I had just gotten done a whole lot of programming and stuff and I was feeling pretty good.
@@ -11009,6 +11417,7 @@ so, it's really up to the girls at this point for me. I don't mean like they nee
 
 no matter what happens, much contrast (and resulting birth of stronger desire) are sure to happen here as things are starting to heat up a bit.
 
+
 ### 2019-12-03 16:36 - what in the world am I thinking??
 
 I just woke up from a dream where there was a lot of manipulation going on. I had an overwhelming sense of "this isn't what I want" -- and I conntemplated things like just cutting all girls that are 11 years or older, because it is becomming apparent to me that there's no way I'll be able to navigate effectively being disconnected like this.
@@ -11022,6 +11431,7 @@ I was trying to think of other things that I could do to try and mitigate the ma
 sorry again for the delay. I'm trying to go as fast as I can. I suppose "the network" will just have to keep the sky cloudy for the rest of my life or something. however, even with all of the clouds, I'm still making considerable progress, so I don't anticipate more than a few years. lately they've been just taking my consciousness whenever they feel I'm close or whatever, and I think I was only conscious for about half of the night last night, so I know I'm getting really close :)
 
 [1]: in the dream they were asking me about things relating to kids, and I said something like, "if tme point is to have kids" -- and the reaction I had was that there wouldn't be any kids
+
 
 ### 2019-12-04 09:33 - more thoughts
 
@@ -11050,6 +11460,7 @@ now, when it comes to me getting into alignment before I meet up with the girls,
 I actually prefer to think about it like I have so much abundance and so much to give that it litrally only benefits me to give it away[^1]. that really is how it is, even if I'm physically a bit disabled and limited at the moment. in a sense when the perspective of that changes in the person that's being taken from, it would actually be more optimal if we all had a bunch of aunt lindas.
 
 [1]: referring to, of course, the abraham story of the man with ex-wife taking a percent of his pay for child support, and their desire for him was that he had more ex-wives.
+
 
 ### 2019-12-08 11:49 - taking the least optimal route for long-term benefit
 
@@ -11099,6 +11510,7 @@ I'm going to end it here. it's very long now and I have a lot more I want to say
 
 [2]: for example, imagine if tesla's ideas were actually allowed to be realised and hitler were able to use them for his conquest.
 
+
 ### 2019-12-10 14:21 - the truth comes out...
 
 so, the little stunt I pulled this morning by accident (honest, not even I knew that's what I would do until maybe a hours before it happened) revealed a bit of a truth.
@@ -11140,6 +11552,7 @@ I didn't really think I would be typing this, so I had never actually thought ab
 anyway, off the top of my head now, that seems the most likely future. we're just going to have to see how this develops. I have no idea at all what will happen.
 
 ok, I'm off to try and figure out some chapuzas for this code. hopefully this thing will begin to take shape and happen soon :)
+
 
 ### 2019-12-11 08:12 - what do I *really* want?
 
@@ -11188,6 +11601,7 @@ it's gonna be fun :)
 [1]: a chain-link fence needs the bottom of the fence to be fastened to the wire run between the posts on the bottom, and they're usually done with hog ties, which are these circular things like a curtain ring which are crimped tight holding the chain link to the wire.
 
 [2]: do I think that this sort of thing will create money-hungry hyper-aggressive businesswomen? I doubt it. I grew up with the work ethic to be able to do things like tuenti, yet I wouldn't consider myself someone with lust for money (at all). one of the most common critisms there are for women is the gold-digger type, where she uses her sexual prowess to try and get (usually men) to make her the money in exchange for sex. I think that kind of women probably comes from a history where a man (probably her father) gave her everything that she wanted and she didn't have to put any effort into it, other than being cute and manipulative. sorry, that was a response to a reaction, and it totally derailed what I was trying to say... oops, I'm making this a note. I believe instead, the result will make strong well-rounded women, which unless you're a male-dominating-primate-type, is an *extremely attractive* quality in a women.
+
 
 ### 2019-12-14 06:39 - going for the worst possible manifestation...
 
@@ -11247,6 +11661,7 @@ only the ones that want to bridge that gap will actally go; most will remain in 
 
 this is perhaps an easier way to perceive a time split.
 
+
 ### 2019-12-14 08:24 - the grand irony to what I just said
 
 first of all, by wanting to be superior so badly, they are actually making me the most superior, because I will become for quite a while the only person on the planet that's connected. it'll take others a bit to become more powerful than their machines (eg. become so good at finding their own satisfaction that no one is the boss of them), so for a little bit they will make me into the most superior. thanks :)
@@ -11256,6 +11671,7 @@ the other way that I think there's some great irony, is that this time around pe
 so, the thing that they're trying to use as their booster, is the technique which the leaders will use to make their connection.
 
 it seems to be a cycle of irony and paradox.
+
 
 ### 2019-12-14 14:04 - in short, they want crackwhores
 
@@ -11280,6 +11696,7 @@ some ideas I have for them are: sex and learning how to release negative emotion
 I woke up just now with a pretty strong desire to want to go back to working hard at getting connected. I think my jedi-mind trick worked a bit in my favour :)
 
 [1]: LOA demonstrates that they both have to be on the manipulatioun vibration to meet, so they're both going to be thinking they're both manipulating each other, so it'll just be more of the same thing we have right now (what I don't enjoy about women, and the reason I decided to become asexual in the first place)
+
 
 ### 2019-12-16 13:14 - I think the tentative plan is...
 
@@ -11367,6 +11784,7 @@ I thought that was an interesting thing. it's like the descending pasageway in t
 
 [2]: I postulated that the next time that we show up on this planet, again a huge technological advance will be made, and they'll be right there trying to control it (it likely has to do with clones and living a multiple bodied experience), but it'll yet provide another freedom, which they cannot (yet) control completely (probably having to do with the definition of who someone really is, and how do you control them if they exist inside of more than one body)
 
+
 ### 2019-12-22 15:25 - how about a new eye...
 
 last night was particularly energetic. at around 3am I became conscoius in a dream (they pulled my consciousness while watching stars) and I had a fun time flying around in the dream. just when I was beginning to realise that I could literally explore anywhere I wanted to go in the world, the dream started fading and I returned to watching sirius. it was a truly amazing experience because I loved how clear minded and how effortless things felt, dispite their constant efforts to make sure I couldn't fly in the dream. pretty cool.
@@ -11433,6 +11851,7 @@ man this is going to be crazy!!
 
 [3]: I find it hilarious the whole emphasis that they have given to the idea that I am a mind virus. the INFECTED ONES are going to have to try and resist the most prolific STD ever :) good thing they *hate* sex :)
 
+
 ### 2019-12-13 09:16 - some feedback regarding the last entry
 
 #### why did I choose the faceless corruptor's voice line?
@@ -11497,6 +11916,7 @@ this is good for now :)
 
 [1]: it'a not exactly 5d. it's sort of more like a mix. while the mechanism for seeing inward toward itself is how I described 5d, the planet is also conscious of us similar to how source is conscious of us, perceiving through our experience in a way similar to how I described 6d. this pattern seems to continue for galaxies, universes, etc.
 
+
 ### 2019-12-23 14:54 - a little more on the feminine matrix
 
 first of all, I want to remind you that all of this is now outdated. it's now far better/worse than previously imagined.
@@ -11526,6 +11946,7 @@ because of the way all of this works, there will always be some amount of resist
 remember that everything that is being built has some sort of scaffolding that's necessary -- something that's necessary for its construction but is discarded or covered over upon completion, and the goal is to make that amount as little as possible. humans are born in placentas, etc. and the birthing process of any creation is usually the most difficult part as it makes its transition from a comfortable creative environment into reality. I don't in any way anticipate that this will be any different. it'll be fun though :)
 
 [1]: this thought reminded me of the video I posted, "MANBEAT vs culture-beat" where I said that we (men) should allow the women to "clean up the mess". wow, controversial reaction to that one there :) lol...
+
 
 ### 2019-12-26 00:00 - back on track for a time split
 
@@ -11564,6 +11985,7 @@ knowing this information now, it seems I may just take a more moderate approach 
 ---
 
 oh yeah, obviously I was writing this from their perspective. I can't possibly imagine a world where I don't make it to getting connected. clearly their desire to maintain their charade combined with others' desire to live in a simple world with only physical pleasures and none of this emotional stuff or psychic capabilities -- will create a timeline split. each consciousness will choose their own path based on the experience they want to have (eg. a world with me getting connected or a world where I never make it).
+
 
 ### 2019-12-27 12:25 - a change of pace
 
@@ -11621,6 +12043,7 @@ effortless
 
 [1]: I have a whole thing I want to write about that
 
+
 ### 2019-12-27 14:24 - some thoughts on conquest
 
 as I mentioned in @[entry](2019-12-08 11:49) (and other places), the first step to releasing a technology for the most long-term benefit is to allow it to be used *not* for it's greatest good, because starting from the "worst" manifestation, the only thing that can be done is to improve upon it.
@@ -11662,6 +12085,7 @@ and yes, I anticipate that there will be amazon chiefs that believe that my infl
 it's certainly going to be interesting. it's also funny to me because there's another stickie on my wall that says, "don't fight too hard against something you will soon assimilate"
 
 [1]: it shouldn't surprise you that the church had a lot to say about reproduction. however, this idea is kind of a mixed-bag, where some organisations promote extremely fast reproduction, and these seem to typically be the underdogs, as attaining large numbers was a way to gain more population market share (users). it seems to go shift back and forth from the extremes. I don't honestly understand it fully.
+
 
 ### 2019-12-29 15:12 - compression of experience (and the reciprocal nature of it all)
 
@@ -11716,6 +12140,7 @@ I really think it's turning out perfect, too :)
 
 [3]: considering that we're headed to a shared form of perception, it doesn't make as much sense to dwell on the fact that there are multiple people sharing the experience of each of the gnomitos, since their ttrajectory is already toward a shared form of perception, anyway.
 
+
 ### 20§9-12-30 16:32 - if it feels like it isn't going to happen...
 
 it occurred to me that just like the way I... ok, so programming is very important to me, yet quite a lot of time lately I just simply cannot feel like it's something I want to do. it's as if the desire to make the program has gone.
@@ -11741,6 +12166,7 @@ so, just pay attention to how you feel in response to how your present reality i
 I think this entry has come about in response to a bunch of mounting desire from both sides of wanting it and not wanting it to happen. just let it happen and don't worry too much about it.
 
 "pedro, just follow your heart; that's what I do."
+
 
 ### 2020-01-04 13:37 - ???
 
@@ -11790,6 +12216,7 @@ this form of binary expansion is an interesting idea, however, in matt's video o
 
 that's my new thought experiment: what is a force that compliments expansion and contraction perfectly and "fits" between the two. it sounds to me like another dimension to me :)
 
+
 ### 2020-01-08 15:09 - I don't feel the need to stop star-watching.
 
 the last few days, or rather ever since I wrote the previous entry stating that they would need to let everyone go up -- it has felt to me like there has been some sort of effort to try and persuade me to stop star-watching.
@@ -11837,6 +12264,7 @@ this is a fulfillment of the "identity/mun" idea I've had so long ago amongst ot
 I guess I'll leave it there... I want to begin to think more on it. I guess it's mostly just not what I expected.
 
 doing things that you don't want to do != doing things that don't feel good to you
+
 
 ### 2020-01-09 09:06 - I guess we're back on track for a timeline split again...
 
@@ -11886,6 +12314,7 @@ perhaps too my continuing to get stronger will push them to actually have to let
 
 [3]: understanding this, I have ideas on doing an analogue system which wouldn't have as much loss of high frequency, and with good enough resonanation between people, it seems possible that you could have someone else's experience as if it were your own, meaning all of the actions, decisions and emotions you would experence as if you had been living in their life since birth so they would all feel natural and logical. there wouldn't nearly as much confusion as to why something happened in someone else's experience, because their reasoning and emotion would be apparent to the viewer exactly as it was to the broadcaster.
 
+
 ### 2020-01-14 07:59 - "it's gonna take forever"
 
 when I was walking home yesterday, I was thinking about the reaction that I wass feeling about things taking a while.
@@ -11931,6 +12360,7 @@ so, from my perspective, let them continue on trying to control people's experie
 I wouldn't really expect much to change from the way it's going now because in order for it to be different, they would literally have to people give people something great that they don't deserve because they didn't pay for it, and also the only way they could get me going anywhere is if it no longer is a secret.. so, no longer a secret, and losing their superiority position just to give us something that's a financial burdon on them... I find that very unlikely.
 
 let's wait and see what their next move is...
+
 
 ### 2020-01-18 07:56 - yesterday was a weird day.
 
@@ -11980,6 +12410,7 @@ looks like this one is going into the long game.
 
 [1]: I should qualify that statement. when I was in 3d, and I was feeling pretty good things were all fine, and I made great business negotiations with zaryn and such, but then I had my first sexual experience and lost 3d. it was in 2d where I no longer had access to all of that extra perception that people really began to take advantage of me. my inability to perceive unwanted remained, yet I was now playing on the 2d playing-field of perception of people who were considerably better at manipulating things on that plane than I was. learning how to get that form of perception back came as a result of my desire to get back there, so LOA brought me a lot of learning experiences to allow me to navigate those things and to gain even more confidence in myself than I had before I lost 3d preception.
 
+
 ### 2020-01-18 13:33 - preference
 
 one of the funny reactions I got to the previous entry was this idea that if I lose my preference for attractive women (that is, I'm able to appreciate the unattractive ones -- that is, or to perceive only the wanted part in the unattractive ones), then they would actually rather be appreciated by a man that prefers an attractive woman.
@@ -11989,6 +12420,7 @@ yes, it is true that more resistant men will have stronger preference toward att
 ---
 
 when I was talking about losng my preference, what I was meaning is that it's an inclusive sort of thing, so my own preferences do not disappear, I lose my resistance to experioncing other peoole's preferences. my prefrences become a sort of combined total of the whole human race. like, I don't really think shooting guns is cool but I don't think it would bother me to experience that anymore. or maybe some bizarre food item or whatever. it seems I can even apperciate negative preferences as well. for example, if someone really dislikes something (yet I would normally like it), I can experience their dislike from their perspective and it doesn't really bother me. that capability is sort of an extension of still feeling good dispite the envoronment that I'm in. I can recognise in the envorenment someghing unwanted, but it doesn't really make me feel bad anymore.
+
 
 ### 2020-01-19 17:42 - tolerating diversity
 
@@ -12029,6 +12461,7 @@ whatever dude, you just keep trying to fit people in your little control boxes. 
 
 [2]: up until now, they have been controlling my dreams, preventing me from having any dreams that they do not control. I can tell this because when I have natural dreams, they are clear and I have intuitive knowledge into what is happening in the dream -- then, something usually wakes me up or something to end the dream. the dreams that I get from them and the ones that they control, my vision is usually much more blurry, and I have a very difficult time understanding what is happening in the dream. the dream usually has stuff appearing and disappearing as they're attempting to steer the dream, and lots of nonsensical appearances of things, which always leave me feeling confused or not undredstanding what is happening. this simply is because the concepts that my brain is used to processing are much higher frequency than their machines can produce, so it's sort of like the difference wbetween talking with someone on an old phone with a bad connection, or in person. the difference in quality is very noticeable. there's no doubt the dream was created by them. lately more than before, they seem to be using dreams to try and steer people.
 
+
 ### 2020-01-20 19:57 - imagining a macbook
 
 today when I was talking with heather, I was talking about how jesus was a reality magician, and I used the example that I could (if I had jesus' visualisation capability) imagine a macbook sitting on the floor, then combined with desire, actually pick up a real macbook pro from the floor.
@@ -12053,6 +12486,7 @@ challenge accepted :)
 
 [3]: a while ago I found out about the technology made by HP back in like maybe 2013 or so, and wanted to know more, yet not a single new information has come out about it since then, but somehow magically all of a sudden all the major industry giants all of a sudden have unlimited storage now.
 
+
 ### 2020-01-20 23:59 - more thoughts on the memristor
 
 the memristor is quite simply the most exciting new technology that I can think of. let me explain. what first got me interested in it is the idea that it's the 4th missing component of electricity. people had theorised on its existance and it wasn't really until we had the abiltity to create very small circuits that it they became really feasible and usable because of their extreme sensitivity, it only really works well on a small amount of material (if I remember right). what it is, is a resistor that's pregrammable with high voltage (and retains its resiatince during low voltage operation).
@@ -12072,6 +12506,7 @@ these complete the four most basic elcetrical concepts.
 however, one day when I was watching rob's video on the "strange capacitor" @[youtube](https://www.youtube.com/watch?v=738Xz9xM_-8) it occured to me that he was chemically adjusting the k-value of this capacitor, which is sort of like a programmable capacitance. as with the memristor, the implications of having a programmable discharge curve on a capacitor is truely reaching the next levels of technology. this discovery, whenever it's made, will be as monumental as the discovery of the chestahedron (and its duel the decatria) was for the understanding the new set of asymetrical solids.
 
 so, you can now take this and extrapolate outward now and think about how, if a programmable discharge curve is akin to the asymetrical chestahedron, its duel would be programmable capacitance (the decatria). if you've seen frank'a latest preentation, he has discovered a whole series of aymetrical forms, leading me to believe there is a WHOLE LOT MORE asymetrical electrical concepts still waiting to be discovered out there.
+
 
 ### 2020-01-21 11:39 - followup to the platonic solids and electricity idea
 
@@ -12094,6 +12529,7 @@ anyway, what I was trying to illustrate is that the 3 basic componentes of elect
 I really would enjoy studying this sort of thing, as I think there is a whole lot of new things to be discovered from the asymetrical forms like the chesatahedron. also, I believe geometric relationsips are important to really understanding induction, and these relationships seem to be related to the enegetic patterns in planetary alignments found in astrology, too.
 
 [1]: as seen on the bottom of this image: https://www.cosmic-core.org/wp-content/uploads/2019/03/chestahedron-dodec.jpg
+
 
 ### 2020-01-22 13:35 - tom's tremendous impact
 
@@ -12187,6 +12623,7 @@ if you guys want to go ahead and create that for me, challenge accepted :)
 
 [1]: I compare nosebook to the romans all the time, because it's the more visible metaphor, but I believe nosebook is more inline with the dynastic egyptians in nature, and we're kind of heading to a moment in our future where we've kind of complteted the circle and have become more similar to how the pre-dynastic egyptians were, with there being a HUGE disparity between the populus and the "gods" (which this time, instead of being thoth, sekmet, ptah, etc., will be the people who are running nosebook (eg. most likely the engineers working there now)
 
+
 ### 2020-01-22 16:49 - now all I have to do is to believe in you guys..
 
 a few months ago, right before I went to LA, I began to ponder this thought about how to make some machines which are capable of providing even more contrast than a human can. I was thinking this because no matter how much of a hardass mr. motor is, people still perceive him as a human. in other words, there is a limit to his rigidity. however, a machine does not have this artificial restriction. they operate according to how they're programmed and have no perception of the meaning of their actions.
@@ -12204,6 +12641,7 @@ I forsee this reality taking place in two stages: first their will be the reign 
 or, they'll simply all die of old age and the machines will continue on in their legacy. it doesn't really matter how it happens, but they're going to create for us the ultimate dojo. *every* human will be able to become more powerful than me or anyone of the other prophets or teachers that have come before. each time you gut birthed on the planet, you'll gain stronger and stronger non-physical desire and intention to create your own reality instead of being forced to live in the machines' reality determined for you (best determined to keep their macahine running).
 
 I only now, have to actually believe in you guys, instead of always being such a possamistic debbie downer :)
+
 
 ### 2020-01-22 22:04 - the bigger picture
 
@@ -12255,6 +12693,7 @@ imagine when humans emit signals in the gamma rays, like quasars, because the ma
 
 I'm considering changing the name from "nosebook" to something that is more mechanistic in sound, because the story that I describe for the machines running things in the future for this galaxy is, almost all the same exact interaction I have had with nosebook. they behave and treat me almost exactly like I would imagine these machines running the galaxy to treat me.
 
+
 ### 2020-01-25 11:07 - I don't want to drag this on any further..
 
 things have approached a point now where I don't really want to do much more than just star-watch. I used to really want to program, but I'm tired of beating my head against a wall trying to make something happen. the *only* thing that's going really well for me right now is star watching. in fact, it's so successful that they have to pull my consciousness quite a few times per nigt now because I'm doing so well at it. it's really the only thing that's going smoothly.
@@ -12262,6 +12701,7 @@ things have approached a point now where I don't really want to do much more tha
 the other thing that is kinda bothering me is the whole girls thing. I don't really want to keep them waiting and stuff. I really feel like I should be putting all of my effort into what's going well, which is star watching, because I figure the faster I go up the levels, the more rapidly it'll happen. also, it's just become so easy, and I still have random events happen which would previously make me feel anger, but I rarely experience any more anger anymore. I really am approaching very soon complete non-resistance.
 
 I want to continue this, but I have go go...
+
 
 ### 2020-01-27 14:21 - I think I tanked a cosmetic sergery advert last night...
 
@@ -12303,6 +12743,7 @@ if you're dissatisfied with your beauty and you try to "fix" it with cosmetic su
 
 (which then dr. phil proclaims that expert professional action will instead yield the desired results... lol, I doubt it)
 
+
 ### 2020-01-29 07:01 - vision upgrades without stars?!
 
 I went out to the field a little bit dispaired because they seem te be getting better at making clouds. my influence on the clouds seems to have become less and less.
@@ -12323,6 +12764,7 @@ really really cool :) I'm going to experiment even more, because I've wondered h
 
 [2]: apparently this is pretty concerning as well, because how can they stop me now? there also seems to be other reactions that I feel as well from people that seem to not be associated with nosebook. it feels like they don't want me to get too high and they lose their ability to continue on my vision frequency, or something like that... I don't really understand, because I was under the impression that they're going to take everyone to the ability to see at that level or something. either way, not my problem. I want to get as many vision upgrades as I can before all of this begins.
 
+
 ### 2020-01-29 13:21 - why not just let people pay to access their own brain?
 
 last night, it seemed like someone was designing some sort of harbour in my dream state. however, I felt very strongly during the whole thing there was a big flaw in the design. I tried to explain it multiple times in the dream state, which apparently activates my logical or conscious side to try and explain it well. every time I did though things got very confusing and they forced me back to something that I didn't feel was a good design.
@@ -12338,6 +12780,7 @@ this reminds me of when I was doing web development, and the designers would get
 I feel the same way about this. don't attribute this design to me. I don't want to be be attributed as the creator of this fatal flaw. let people pay to design their own bad designs, and leave me out of it -- or at least allow me the capability of expressing myself in the dream instead of shutting me down and throwing my mind into confusion over and over[^1]. all I wanted to do was to make the best designed version of this person's desire.
 
 [1]: they do this all the time, to try and prevent me from becomming conscious in the dream state. I understand their motive, but they're undermining the person paying fow the design by doing it that way.
+
 
 ### 2020-01-30 09:06 - disturbance in force
 
@@ -12373,6 +12816,7 @@ I don't need long. I wasn't planning on taking more than a 2-3 days anyway cause
 
 [1]: which is to not need the manifestation, but to continue on letting the evolutions in desire build a bigger anr bigger vortex. just keep moving in the direction of getting connected and finding ways to appreciate and feel good, no matter the percieived physical circumstances.
 
+
 ### 2020-01-30 09:59 - becoming step 5 masters
 
 I've really been thinking a lot about how I think things will be taking place with the girls, and Ive come to the conclusion that I believe that the girls will all get quite a bit of practice at becoming step 5 masters. I think this is really really great and I think it's the thing I'm looking forward to most, is watching them all get so good at making their own reality and feeling the way they want to feel about things, that they can, like me, feel invincible and supremely confident in their ability to attract whatever interests them.
@@ -12397,6 +12841,7 @@ I really love this. while that may be the trajectory of the whole planet, I'm re
 
 you cannot imagine how proud of and how good it'll make me feel to see them all learn and to become so good at it. it really will be the best thing ever go watch them develop their own confidence in their ability. it's really something I'm looking forward to seeing.
 
+
 ### 2020-01-30 14:53 - adam and eves' dream
 
 I just had the weirdest dream. the entire dream was spent prepping for some coming unavoidable disastor. there were tons and tons of people running around getting suplies all ready for this time when the earth (judging by the supplies) would not have any electricity, so all aspects of modern civiisation wouldn't be functional any more. they stockpiled food, fire building equipment, and tons of necesary things to survive something that they expected would put the planet back into the stone age.
@@ -12414,6 +12859,7 @@ it felt kinda weird, very eerie, lonely and also a bit fishy, because it seemed 
 it felt kind of like a set-up too, intentional that we would be the inheriters of the planet and were to repopulate it and to build it back up from nothing. it also felt like somewhere else someone was monitoring us perhaps like some osrt of experiment or something.
 
 weird dream. I totally didn't anticipate that kind of an ending at all. the whole dream was so chaotic and fearful of the impending doom that it was surprising, not happy or sad to find ourselves alone like that.
+
 
 ### 2020-02-04 09:54 - dreamanalysis
 
@@ -12484,6 +12930,7 @@ I really think this is all working out perfectly.
 
 [3]: it's funny how what I consider to be the 6th step is also directly related to 6d. and, likewise mastering your emotions seems to be the precursor to gaining 5d perception -- just like learning to allow (4th step) was the precursor to 4d perception.
 
+
 ### 2020-02-05 20:59 - we're going wide (followup)
 
 I realise that some of the things I said in the previous entry were incomplete thoughts. I'll polish them up and get them out a little better soon. however, I wanted to mention some things in relation to some reactions I felt today.
@@ -12516,11 +12963,13 @@ all I'm doing is getting good at that, and the vision upgrades happening in the 
 
 this is what I'm here for and what I'm really good at: being a reality magician
 
+
 ### 2020-02-06 07:35 - quick followup
 
 so, let's say they *can* hold me indefinitely.. well, then, like I said, it behoves me to continue to increase my capacity, because each increase essentially means that I summon more energy (think of this like a larger magnetic field on the primary coil of a tesla coil).
 
 on the contrary, let's say they *can't* hold me indefinitely.. well, then the faster I star-watch, the faster things get going. I'm fairly certain that anything they're saying is entirely an illusion designed to tell you what you want to hear while they stall for as long as they can and try to get everything controlled. it's the exact same thing that marcos was doing with andrea. he kept telling her yes, but he wanted to set it all up, but just never could get everything set up in time. there was always something more that he felt he needed to get under control[^1].
+
 
 ### 2020-02-06 07:35 - thoughts on the magnifying transmitter
 
@@ -12570,6 +13019,7 @@ then, combine this with the idea that we'll gain a shared form of perception, it
 
 [2]: actually just as I wrote it, I was reminded of elijah and his competition with the doubters over the ignition of the altar.
 
+
 ### 2020-02-10 23:34 - dream about losing land
 
 I woke up from a dream just now which I think illustrates a lot of important interactions.
@@ -12598,6 +13048,7 @@ instead, if I had of, like job, maintained my own vibration of ever expanding ex
 
 so, even if calamity strikes and you (like I did), take the victim mentality for a while, it's still not a problem because it's just increasing the amount of energy into the equation. all you have to do is (like I did) to get your focus off of being the victim to someone's whatever (sloppy thinking, intentional harm, or whatever) and refocus toward things that feel good, reducing the number of angery moments, feelings of depression, and stuff like that, it starts to clear up. once you can steer the way you feel, no external circumstance can ever make you different than the way you want to.
 
+
 ### 2020-02-11 17:43 - let's put that in practical terms
 
 I had some feedback to what does what I say actually mean in practical terms. well, it means you make it what you want it to be. if you're focused on physical impossibilities, then there will be; if you're focused on physical limitations then there will be also. in order to bypass the physical stuff, I know that it always has to do with the way things feel.
@@ -12610,7 +13061,7 @@ you can and should let that emotion transform, especially as time goes on, becau
 
 once you've got it, just hold that and let reality prove that feeling as reality to you. don't worry about the physics or anything else like that because in the end, the whole thing was about you wanting to feel like that in the first place.
 
-if you can accomplish that feeling, and can get there whenever you want to, you definitily got what you were looking for. 
+if you can accomplish that feeling, and can get there whenever you want to, you definitily got what you were looking for.
 
 [1]: I know this to be true, but just now as I was writing it, I was thinking about how it's common in a love relationship for that not to be the case. the creative projects that I'm really interested in seem to gain conceptual and emotional momentum though. I think the secret here is to not look at the physical, and instead keep the frequency held on what's wanted. often times in relationships, the good feeling part is in the beginning before all of the physical excuses to feel bad about it come. instead of perceiving the physical reality and letting those be an excuse to lose that initial feeling, just hold on to it strong, no matter the physical reality. after all, it's you that feels that great still, no matter what the other person feels like.
 
