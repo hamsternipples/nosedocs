@@ -12598,6 +12598,22 @@ instead, if I had of, like job, maintained my own vibration of ever expanding ex
 
 so, even if calamity strikes and you (like I did), take the victim mentality for a while, it's still not a problem because it's just increasing the amount of energy into the equation. all you have to do is (like I did) to get your focus off of being the victim to someone's whatever (sloppy thinking, intentional harm, or whatever) and refocus toward things that feel good, reducing the number of angery moments, feelings of depression, and stuff like that, it starts to clear up. once you can steer the way you feel, no external circumstance can ever make you different than the way you want to.
 
+### 2020-02-11 17:43 - let's put that in practical terms
+
+I had some feedback to what does what I say actually mean in practical terms. well, it means you make it what you want it to be. if you're focused on physical impossibilities, then there will be; if you're focused on physical limitations then there will be also. in order to bypass the physical stuff, I know that it always has to do with the way things feel.
+
+to do this, I find it's best to always think back as far as you can and find the initial feeling which felt so good. (this applies to getting back che original feeling or motivation for anything, actually. when I've located the initial feeling, it's always best to be honest with yourself about it, because feelings are honest and aren't limited to human rationalisation. so, let's pick one -- let's say you really liked the idea of being popular, well know, famous, or even contributing to something big. don't rationalise and say, oh well, no one will accept me if I just wanted to be famous or popular or something... just accept it, because it's all right. the reason why I called the initial impulse the motivator, is because it was the feeling that was relevant in that moment to connect you to action. it often times feels different later once things get moving -- and sometimes it feels worse, but that's just cause you're preceiving it incorrectly; it *always should* feel better.
+
+so find the initial emotion, no matter what it may be, no matter how stupid vain or whatever. there is a tendency to dampen these feelings and say that you shouldn't be worthy or capable of having such a thing. that's all nonsense. go in the direction of what feels good to you, always.
+
+you can and should let that emotion transform, especially as time goes on, because these sorts of things evolve into something that's bigger and greater and better feeling[^1].
+
+once you've got it, just hold that and let reality prove that feeling as reality to you. don't worry about the physics or anything else like that because in the end, the whole thing was about you wanting to feel like that in the first place.
+
+if you can accomplish that feeling, you got it what you were looking for. 
+
+[1]: I know this to be true, but just now as I was writing it, I was thinking about how it's common in a love relationship for that not to be the case. the creative projects that I'm really interested in seem to gain conceptual and emotional momentum though. I think the secret here is to not look at the physical, and instead keep the frequency held on what's wanted. often times in relationships, the good feeling part is in the beginning before all of the physical excuses to feel bad about it come. instead of perceiving the physical reality and letting those be an excuse to lose that initial feeling, just hold on to it strong, no matter the physical reality. after all, it's you that feels that great still, no matter what the other person feels like.
+
 # the end
 
 ### 7 years of tribulation (continued)
