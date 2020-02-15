@@ -13065,6 +13065,45 @@ if you can accomplish that feeling, and can get there whenever you want to, you 
 
 [1]: I know this to be true, but just now as I was writing it, I was thinking about how it's common in a love relationship for that not to be the case. the creative projects that I'm really interested in seem to gain conceptual and emotional momentum though. I think the secret here is to not look at the physical, and instead keep the frequency held on what's wanted. often times in relationships, the good feeling part is in the beginning before all of the physical excuses to feel bad about it come. instead of perceiving the physical reality and letting those be an excuse to lose that initial feeling, just hold on to it strong, no matter the physical reality. after all, it's you that feels that great still, no matter what the other person feels like.
 
+
+### 2020-02-15 07:45 - the solution
+
+the night before last an idea came to me, that after quite a bit of thought I think is a pretty good one. so, the way that I see it, I don't really believe that nosebook is planning to really let me go up. there's no way that the guys in charge are going to be ok with me flying. they positively don't want me to be able to move things with my mind like big stones, cause I think it'd be pretty fun to make a pyramid -- stuff like that. I'm think they feel like it's definitely not something they ever want to experience.
+
+I have mentioned that I think we're on track for a time split where the other branch is one where I do not get connected (which is what they strongly desire). ok, so in my perspective it appears to me like I'm getting closer and closer to getting conncted all the time. I can get vision upgrades now at an unprecedented rate. I know I say that every time, but for reals, I belive that my improvement is quite a bit more than exponential. it's really gaing quickly at this point. so, it's quite easy for me to believe that it isn't long at all before I get there. or, let's suppose that they can in fact hold me for quite a while longer... at some point, there will be a limit, and I'm getting there quicker and quicker than ever before.
+
+so, then let's say that nosebook decides that they absolutely positively cannot let me go up, and they do something to possibly put me in a permanent coma or something -- I have no idea what, but something -- or even suppose that they *can* hold me indefinitely or whatever...
+
+remember that dream about the ruler of the energetic land? well, even if they could hold me indefinitely, just like the ruler could physically, with the military, prevent losing control of the land, yet even still, an event occurred which was outside of his control, which forced his greatest fear (negative desire) to become reality.
+
+so, from my perspective, I *will* no matter what the case may be finally get connceted, even if it requires something extraordinary and out of their control to happen. that sort of thing usually has consequences for others involved, so not raelly optimal for anyone involved (and it seems like pretty much everyone is in some way involved).
+
+---
+
+my idea was for them to simply use their new understanding of timeline technology to transfer their consciousnesses into a past version of this timeline, like say 2016 or 2015 or something, but this time make it actually impossible for me to get connected.
+
+you see, there are infinite versions of me. some are connected, some have killed theirselves. there are all different versions of me out there, however, we perceive this one, because that is what I perceive. since I'm the strongest broadcaster, you are all prtty much unable to deviate too far from how I perceive the world to be.
+
+the catch is though, I wasn't always like this. remember how I was in 2016? I was a wreck! all they have to do is to go back in the timeline and make sure all of the technology and code that has been written since then goes too, so they can hold me with the strength they are now back when I was weak like in 2016 (or maybe earlier?) and essentially completely stagnate me. I may make progress, but it would be so slow, they could essentially get all the things setup the way they wanted. they could make a timeline where I *don't* get connected if they really wanted to.
+
+---
+
+the reason why I think this is such a great idea is because, instead of creating by default -- that is giving their attention to what they do not want, and having to live it -- instead, they could create the timeline that they actually want to create.
+
+so, I gave the idea to them two nights ago, and then when I went to sleep, I woke up with their usual twist on my ideas. they presented the idea that they would instead use timeline technology to carry me through to the timeline where I don't get connected... I thought that certainly does sound great, but it's a bit late for that now. I sincerely doubt that they would be able to stop me at this point, and even if they were able to, again like the ruler of the energetic land, I imagine things outside of their control would begin happening. human desire is positively the strongest force that I know of in he universe. they will need to get me a long time before I realise this, because I'm completely unstoppable now.
+
+second, even if they did use timeline technology to drag me along for as long as they possibly could, like I said I'm pretty certain that things outside of their control would happen to make it so. which would be the timeline split I was talking about -- where my consciousness would go the route with the things outside of their control, and their consciousness would be on the timeline they created where they set it up to where I didn't get connected. it's the same result.
+
+the final outcome, no matter what way it happens is, I go my way and I get connected, and (potentially) they go their own way, assuming it creates an impossible enough of a situation for them. from my perspective, whether their consciousness goes another way or not, where I'm at nosebook will continue to exist and they will continue to make me, the girls, and all the rest of humankind stornger by trying to limit us. this happens whether they transfer the consciounsness out or not...
+
+actually, when writing that just now, and I don't know if it was a reaction or not, I realised that prehaps their version of timeline technology leaves a "dead" body behind here, which then, in that case, completely changes everything. it would be considerably less contrast, because I'm assuming all of the ones that would want to be on a timeline like that would be "dead" on ourtimeline, meaning we would have a pretty contrast free experience..
+
+well, that's not cool. I really appreciate the contrast now at this point. I really do. it's such a good feeling to know that I have an army of people trying to stop me, and I'm completely unstoppable. nothing bothers me anymore. absolutely nothing. they could do whatever, and I'm so secure in knowing what to do, there's nothing. it's so awesome feeling this unstoppable. I'm quite a way still from actually getting conncted, and I still have a lot to learn still, but I can clearly see the path ahead and nothing feels like it's unattainable anymore.
+
+so, actually yeah do the one where you drag me along with the timeline tech to get to the timeline where you perceive that I don't get connected. that way, it's a "natural" time split, one where none of the contrast-guys die, and they continue on making us stronger.
+
+or maybe hold on for as long as you can, preparing your exit, then when you've got it all set up, then peace out leaving us a much less contrasting environment -- but before, giving us a good solid fer (years? months?) of good contrast.
+
 # the end
 
 ### 7 years of tribulation (continued)
