@@ -40,4 +40,6 @@ you are like a projectile flying through the air. every interaction impacts you 
 
 before puberty, your sexual energy spews about almost uncontrollably. it appears as creativity and joy. it's pretty out of control though and bothers a lot of adults who have shut theirs down. puberty they see as the provess of getting the child to *shut down that enrgy* because it's so disruptive. however, instead of learning to *shut down* that energy, learn to centre that energy in your heart, it won't spew uncontrollably all over the place. you will appear to have the composure of an adult, yet with the voracity and energetic intensity of a child. it's not to late to learn this as an adult!
 
+the technique involves centreing the energy so it stays accumulating in your heart. then, when you want to release this energy into something, say a project, something creative, or into someone in a sexual expression, you have control over it.
+
 # everything you feel *is real*, or it will be soon enough (rework!)
