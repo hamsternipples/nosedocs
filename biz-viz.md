@@ -13,9 +13,13 @@ make people's idas make them your own and put them on your vision board
 - minimal impact training
 - become a business visionary and secure your impactivation keycard today
 
+# if you didn't die from it, it only made you stronger
+
+you are like a projectile flying through the air. every interaction impacts you in a slightly different way, adjusting your direction and velocity. every impact makes you stronger though, so even if your speed gets knocked back to 0, you are still stronger for it, and getting back up to the speed you prevously were at, and going even faster, will be even easier -- as long as you believe that every impact makes you stronger. if believe that it stagnated you or set you back, then that's what you'll notice happens.
+
 # transforming your roadblocks (into opportunties)
 
-# everyone is an alfa
+# everyone is an alpha
 
 ---
 
@@ -29,4 +33,11 @@ make people's idas make them your own and put them on your vision board
 
 # expand your sphere of outdatedness
 
-# remember how you want to feel
+# remember how you want to feel (???/!!!)
+
+# centre your sexual energy in your heart
+# centre your creative energy in your heart
+
+before puberty, your sexual energy spews about almost uncontrollably. it appears as creativity and joy. it's pretty out of control though and bothers a lot of adults who have shut theirs down. puberty they see as the provess of getting the child to *shut down that enrgy* because it's so disruptive. however, instead of learning to *shut down* that energy, learn to centre that energy in your heart, it won't spew uncontrollably all over the place. you will appear to have the composure of an adult, yet with the voracity and energetic intensity of a child. it's not to late to learn this as an adult!
+
+# everything you feel *is real*, or it will be soon enough (rework!)
