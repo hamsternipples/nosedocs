@@ -13104,6 +13104,40 @@ so, actually yeah do the one where you drag me along with the timeline tech to g
 
 or maybe hold on for as long as you can, preparing your exit, then when you've got it all set up, then peace out leaving us a much less contrasting environment -- but before, giving us a good solid fer (years? months?) of good contrast.
 
+### 2020-02-18 16:36 - another take on the parable of the two sons in he vineyard
+
+one of the parables that has always fascinated me much more than any of the others was the parable of the sons in the vineyard. one of the sons tells the father he will go out and tend to the vineyard, but then never goes. the other one does the opposite: says he will not go, but then later does.
+
+I have often wondered at how it was unanimously agreed that the son that says no, then later decides to go is better than the other. if we reverse the case, it does not seem so obvious.
+
+yesterday I was at friendly harbor and the discussion came up about missing children. I said that I think it's all a sham because the way I understand the network is that all parents are given the ability to see through their children's eyes. there was a strong negative reaction to the thing... which is silly, because if the network really didn't exist, then no one would react to it. I don't receive a strong reaction from people when I talk about a hypothetical boogieman; instead, it appears, based on the reactions, that this boogieman is real.
+
+I have received all sorts of different things in my head kind of trying to get me to drop the subject and to never mention it and stuff like that. however, there are a lot of psycological things that are very interesting to regarding the subject and I'm sure I'll be bringing it up again, because in the group discussions one of the topics that has come up the most frequently by people is why people conform or why do people feel they need to follow the group instead of going after their own greatness. I was looking for a good example, because I had some negative reactions to, and was gooling for a replacement for, the example of group thinking in sciences, psycology, technology, etc.
+
+I now how a perfect very visible example of people conforming and following the group that is absolutely unmistakable. they will certainly deny it, even if denying it proves the network's manipulation of the media to fit a narrative -- but logic is completely out of the window on this subject, obviously. anyway.. I thought that was a bit of a catch-22 for them. I really do wonder how they're going to smooth this one over[^1]...
+
+in the process of them trying to figure out how they can avoid the situation that this turns into a thing and their scheme revealed as sham, I started to get other reactions saying that *I* am to blame for them having to become more controlling and dicatoral. I am supposedly *forcing* them do something.
+
+nonesense... anyway, it got me thinking.. in this sitation, imagine instead of tending to the vineyard, it's taking extreme measures to cover their lies up. in this case the says he won't do something, and then later changes his mind and goes ahead and does it.
+
+---
+
+both sons changed their minds, so neither is better than the other in that regard. the only difference is that one son does what his father wants him to do even though he didn't want to at first, and the other one does not do what his father wants him to do, even though he says he will at first.
+
+the subject now takes a shift from the deceit of the sons to their obediance or willingness to carry out the desire of their father. clearly, the son which does what the father wants him to do is better, right? however, if the desire of the father were to be something like deceiving entire populations, would he still be the better son?
+
+---
+
+to further complicate this discussion, let's take the father out of it, and instaed focus on just the subject of deceiving an entire population. consider my previous entry where I talk about how if they want a timeline where I don't get connected, they'll have to stagnate me much earlier on, before I've learned as much as I have now. therefore, it's implied that in this timeline, they will extremely powerful, not having someone like me calling out their bullshit. they'll have a bunch of group-thinking conformists they can contort and manipulate till their heart's content.
+
+which son does that make me, now?
+
+on that note though, I think it's fine. in programming, you have to test your interfaces to ensure that malformed data isn't capable of breaching the system in some way. a program called a fuzzer tries zillions of different combinations to try and discover weaknesses in the interface. you can also think of this like the immune system or any membrane that is being tested against harmful input...
+
+in the end, their timeline will only reveal the biggest gaping holes in our psyche, and the process by which we discover the bugfixes for their breaches in the mental membrane will be the most exciting thing we'll do from our timeline as we perform these hotfixes until the new organism is resistant to their group-think conformist bullshit. more on this later :) I have put quite a lot of thought into it.
+
+[1]: I'm aware I'm kind of helping them by writing this, so I'm writing it on purpose for that reason :)
+
 # the end
 
 ### 7 years of tribulation (continued)
