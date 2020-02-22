@@ -13138,6 +13138,54 @@ in the end, their timeline will only reveal the biggest gaping holes in our psyc
 
 [1]: I'm aware I'm kind of helping them by writing this, so I'm writing it on purpose for that reason :)
 
+### 2020-02-22 00:23 - reflections on today and the topic of love
+
+there was a general theme in the events which transpired today that I thought notable enough to write about. later in the evening in friday night reading, I made a response to her question about my valentines experience that generated some reactions. I said that I had attempted to avoid love (or relationships) all of my life. I qualified it by saying that the only times I was successful, the woman has pursued me -- and I left out the opposite obvious remark saying that I have had disasastrous failures when I tried or attempted it. I probably should have said that because it fills in the missing bit about why I have tried to avoid realtionships so much.
+
+I learned, through trial and error that if I concerned myself with someone else or what they might think of me, my left-side essentially stopped functioning correctly and became rigid and difficult to move. when I simply concered myself with what I was interested in and ignored all socio-cultural expectations or assumptions of how I should present myself, things went better.
+
+in fact, I found out that the more I concerned myself solely with what was important to me, the more attractive I became. it's the weirdest thing, because the more I tried to simply focus on what was important to me and had nothing to do with other people, I became more and more attractive to the point where I simply could not avoid the notion of a relationship.
+
+I can't really explain how paradoxical this is. all I want to do is to just explore my own mind (on psychedelics) and to find a way of translating source energy into something meaningful to me, and I literally have (who knows how) many people working to try and get me into a relationship. I just don't understand it, because it wasn't what I was looking for!
+
+---
+
+a few years ago, this caused me a lot of disress, and it manifested in the form of all sorts of negative emotion. to be completely honest, I still don't understand it if I look at it purely at face value. the process of coming to release that resistance began by lowering down the negative ideas that I had accumulated over the years watching so many other failed relationships[^2]
+
+the next thing I began to do to further lower that resistance was to realise that maybe it *was something I wanted*. all of this time has passed now and I really have come quite a distance since then. I have only high optimism and quite a bit of excitement for what is happening. it really is something so completely different than anything I could have possibly expected, I don't really know what to expect. I really have no idea. the thing is I *must* trust my emotions though, and thinking that I hate relationships and they're only awful things that end in disaster doesn't feel good at all, so I don't think those kinds of thoughts any more.
+
+I have not changed my internal drive to continually look toward what is intereating to me though, because every time I try to conform or to concern myself with what others expectations are for me, I feel bad -- and I *must* trust my emotions. no person or group of people's condescension could possily make me feel bad enough to make me want to conform. their condescension feels bad to me, and feeling bad just means my perception of whatever it is, doesn't feel good. when I return to interest myself in what's important to me, once again I feel better and I gain *even more attraction*, like wtf man?!?! at this point, make it stop.. or something, right?
+
+you see, those final words of the last paragraph don't feel good to me, so I'm completely lost. the only way I have to go is forward with what feels good to me. that's kind of the mind-bending part of this for me what I haven't been completely able o wrap my head around. you wonder why I want to translate source energy? that's why! there is so much mind-bending stuff happening, I generate questions at such a rapid rate, I would *LOVE* to have been like jerry and just be able to, whenever I have a question because some new thing is happening that appears so big, I want to be able to ask about it.
+
+however, I know that asking about it, would kind of shoot the thing in the foot or abort the creation before its ready to be birthed. it would also, cause me to feel amazement, when it should feel normal. it is normal. I wanted to learn how to become source energy in a human body, and step one of that manifestation is coming to grips with the reality that no matter how big it may appear with human eyes, all of it is just "normal" interactions or "child's play"[^3].
+
+... so, I'm left with trusting my emotions. I have to a paricularly great extent tried to find meaning (or at least a reaonable explanation) in all of this by trying to figure out the bigger picture. or, perhaps you could look at that idea the opposite way: at this point, such a large amount of desire is involved, this isn't just some silly weekend fling or anything like that. there *has* to be a bigger picture going on! there's no other way to explain it otherwise. I have speculated on a lot of different things to try and come to conclusions, and to be quite honest, writing these rediculous ideas (many of which I think are quite proven now[^4]) of how I think this whole thing could could be the culmination of a lot of different things, has actually been a whole lot more fun (and honestly a bit more soap-opera-esque) than if someone where to just answer my questions directly.
+
+---
+
+that's all I have to talk about there. I do want to make a final note though because it falls into line with what I wrote. there were 3 girls that were notable to me tonight:
+
+the first was, and I didn't even make the connection until much later when watching stars, amber's 11 year old. I like her initiative :)
+
+another was this little one that was running around. I was quite aware of the woman in a black shirt's desire (mother?) who was with her. it was difficult for me to distinguish what was what (I was really trying to pay attention to the reading group, so and didn't stop to invistigate the feeling).
+
+finally, there was a girl that I was quite aware of, but I kept trying to focus on the group, and she had a bit of frustration in the end, as if I hadn't even noticed her or something. I did, and I want to mention that any time you feel frustration, that *always* means your perception of what you're looking at isn't quite right. things happen for a reason and that specific interaction fit perfectly in time with the question that I was attempting to answer. sort of like a live demo of the meta-vibration. I really liked it :)
+
+*shakes head* LOA is crazy man! as energy increases, I imagine things will continue to become even more real-time corresponding all the time. it's totally going to be nuts. I really am looking forward to this.
+
+all three of them corresponded quite well along with the theme, and they're all welcome to join if they want[^5].
+
+[1]: it's a lot like expectations. maybe it's social or cultural, or economicically rooted ideals of behaviour or engagment which a person should follow to "conquer" a woman. the idea exists all over the place and spans all sorts of strange topics from love to drugs. it's the "acceptable" or "unaccecptable" way of behaving, or even the "desired" or "undesired" forms of engagement that is defined by ... I don't really know who actually. I guess I'll just call this socio-cultural expectations.
+
+[2]: in fact, in my humble opinion, the the *only* relationship that I had ever thought to have been an admirable relationship was the one between jerry and esther. all others, in my estimation, ranged from a working partnership to something out of a soap opera. the other end of the spectrum seemed to only be capable of a weekend fling, and had to keep moving from one guy/gal to the next, for if it ever developed into anything more, it quickly degenerated into disaster.
+
+[3]: I was always fascinated with terence's descriptions of his interactions with source on DMT experiences. the bouncing balls of light would always tell him (and it was something the "reality technicians" in my mushroom experience also told me), "do not be amazed! do not give away to astonishment". the first step to undrstanding that world truly is, "do not be amazed"
+
+[4]: but, you have to wonder, is reality proving them to be real because I wrote them and people believed them, or because they were already real beforehand? in other words, am I solving a puzzle or am I describing a dream-like reality as if were a puzzle? did the puzzle exist before the solution or did the puzzle exist because of the solution?
+
+[5]: the girl that was with the woman in the black shirt, I couldn't distinguish the source of the desire, because I looked at the girl and she was happily off doing her own thing not paying any attention at all to what was happening. I didn't know what to make of it, but I liked her doing her own thing approach to life, and since I felt strong desire I figured I would say sure if that was a thing. if it isn't a thing, that's cool too. she was great inspiration for my piecing together these different pieces.
+
 # the end
 
 ### 7 years of tribulation (continued)
