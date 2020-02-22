@@ -13170,11 +13170,11 @@ the first was, and I didn't even make the connection until much later when watch
 
 another was this little one that was running around. I was quite aware of the woman in a black shirt's desire (mother?) who was with her. it was difficult for me to distinguish what was what (I was really trying to pay attention to the reading group, so and didn't stop to invistigate the feeling).
 
-finally, there was a girl that I was quite aware of, but I kept trying to focus on the group, and she had a bit of frustration in the end, as if I hadn't even noticed her or something. I did, and I want to mention that any time you feel frustration, that *always* means your perception of what you're looking at isn't quite right. things happen for a reason and that specific interaction fit perfectly in time with the question that I was attempting to answer. sort of like a live demo of the meta-vibration. I really liked it :)
+finally, there was a girl that I was quite aware of, but I kept trying to focus on the group, and she had a bit of frustration in the end, as if I hadn't even noticed her or something. I did, and I want to mention that any time you feel frustration, that *always* means your perception of what you're looking at isn't quite right. things happen for a reason and that specific interaction fit perfectly in time with the question that I was attempting to answer about avoiding relationships because every time I tried they failed, but if I just did my own thing I was more attractive. (also ties into having to constantly follow my emotion, when I felt bad it was because I was focusing my thoughts on what I think someone else thinks about me) sort of like a live demo of the meta-vibration.
 
 *shakes head* LOA is crazy man! as energy increases, I imagine things will continue to become even more real-time corresponding all the time. it's totally going to be nuts. I really am looking forward to this.
 
-all three of them corresponded quite well along with the theme, and they're all welcome to join if they want[^5].
+all three of them corresponded quite well with tonight's theme[^6], and they're all welcome to join if they want[^5].
 
 [1]: it's a lot like expectations. maybe it's social or cultural, or economicically rooted ideals of behaviour or engagment which a person should follow to "conquer" a woman. the idea exists all over the place and spans all sorts of strange topics from love to drugs. it's the "acceptable" or "unaccecptable" way of behaving, or even the "desired" or "undesired" forms of engagement that is defined by ... I don't really know who actually. I guess I'll just call this socio-cultural expectations.
 
@@ -13185,6 +13185,8 @@ all three of them corresponded quite well along with the theme, and they're all 
 [4]: but, you have to wonder, is reality proving them to be real because I wrote them and people believed them, or because they were already real beforehand? in other words, am I solving a puzzle or am I describing a dream-like reality as if were a puzzle? did the puzzle exist before the solution or did the puzzle exist because of the solution?
 
 [5]: the girl that was with the woman in the black shirt, I couldn't distinguish the source of the desire, because I looked at the girl and she was happily off doing her own thing not paying any attention at all to what was happening. I didn't know what to make of it, but I liked her doing her own thing approach to life, and since I felt strong desire I figured I would say sure if that was a thing. if it isn't a thing, that's cool too. she was great inspiration for my piecing together these different pieces.
+
+[6]: there was a subtheme about desire vs. loyalty that also popped up (funnily enough when amber's daughter called). this subtheme is that when you do somethnig  out of loyalty or devotion for someone else, you really cut off the energy. devotion doesn't create. devotion is a motivating force, but it's not the same as the raw creative energy that exudes from desire.
 
 # the end
 
