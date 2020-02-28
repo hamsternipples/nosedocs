@@ -13190,6 +13190,36 @@ all three of them corresponded quite well with tonight's theme[^6], and they're 
 
 [7]: last night I got quite a few vision upgrades, so energy was at the hihtest I'd experienced it before -- and were'ge getting closer: I think I'm probably around half-way to 6d now. I want to mention at this point that when I say "shared form of perception" -- I mean to some extent, once we start to get on the same frequency, we will all share each other's emotions. there will be very little separation between us. if someone has gripping depresssion, or something, we'll all be able to tell it's there and feel it too, but it won't disable the person like depression in its full form might (unless they're also dealing with depression, then it'll make it worse). I already am beginning to notice this take on a more dramatic effect with the people around me. I feel more and more what others feel, yet they only feel to me like emotions that I can understand and recognise; they're just there. I imagine though that as more of us get into the same frequency space, it'll be sorta like a "crash-course" (for all of us) in learning to let the feeling "just be there" and instaed perceive what we want to. we'll have n^2 more types of emotions going around so it'll grow fast. at first it may be a bit intense, but later on, it'll be extremely beneficial cause it adds so much more energy into the equation for whatever we're focused on.
 
+### 2020-02-27 16:36 - competition and the new timeline
+
+comparison breeds superiority and infierority perception, and that perception holds you externally focused, constantly circumstances and conditions to others, when, if you only focus on your own improvement, you are more likely to be superior -- but it doesn't matter because there's always something new to improve on.
+
+I woke up thinking quite a bit about competition and comparison this morning, and it's funny how it works out with the new timeline I've been thinking about. they have to find a way of holding me away from my connection. so, if you think about it physically at this point, it appears to be an impossibility because I've conceptually know that I can get any improvement that I want. I don't need to worry so much about who else has something that I don't have, because I may not even want what they have. usually, what I really want is the improvement that I think whatever they have will give me.
+
+so, in the new timeline they simply have to find a way to hold me away from realising that -- for, if I do, I become unstoppable. I become physically impossible to hold back. so, their work for creating the new timeline, is to figure out how to ensure I am held away from believing in myself and my ability to get that improvement.
+
+conceptual strength always trumps physical strength.
+
+---
+
+the next thing that competition seems to create a lot of, is a lot of desire for another to not achieve something that is perceived as wanted...
+
+I had a dream last night where someone was asking me how huch power the network had and how much they are integrated into and manipulating all of our lives. I told the person that they're way way way bigger than we could possibly imagine and seem to have their fingers in just about every porverbial pie extending to every power structure on this planet.
+
+I didn't think it's a problem though, because I don't think it's a problem. they really don't have all of the power they think they have. their whole power structure is built up upon a system, which is quite powerful, but it's a complete illusion. without the system, they're victims to cimcumstance (which they can influence greatly), and want us all to be, too. however, all of it really only makes us strunger. take this as an example:
+
+imagine they see somebody with something and they think that improvement would benefit their life. using their system, they have to figure out how to manipulate cirrcumstances to get whatever it is... that's really effective to simple meaningless things, but for something worthwhile, it's a totally ineffective way of going about it. someone who conceptually knows that they can always get the improvement they're desiring doesn't need such fancy things, and believing in theirselves, can actually achieve it. compare that to the network bros who, feel the power of their system, but when looking around notice that others can get the same improvements without the system -- so, while they may have an externally aire of superiority, internally they perceive theirselves to be inferior[^1].
+
+another good example is a machine. a machine is stronger faster, etc. than a human by far, but they can only make decisions coming from physical data which they've accumulated -- and only if their assumptions on that data is actually correct, is a good decision. however, humans have an intuition, that is conceptual superioroity in the way that novel ideas not obvious from the data can be arrived to. you can optimise an inferior idea as much as you want, but a novel approach to the same thing can often outperform the perfectly optimised inferior approach[^2].
+
+---
+
+I really am not concerned about the influence that they have. they really don't have as much strength as they think they have. they want to make a timeline where they don't have me to worry about, disolving their illusion before they even got a chance to enjoy it. I really recommend that they focus on what they want in that timeline and not compare or try to compete with what is happening in this one. in fact, I would even go so far as to say that it may be beneficial if they, knowing they're going to abandon this timeline, just let some "undesirable" things happen, and learn how to better prevent them from happening in the new timeline.
+
+[1]: the thing that this reminds me so much of is dota mmr boosting. while someone may be able to get some system to boost their mmr, their skill *hasn't* improved, and actually, I would almost guarantee that their skill would get worse after boosting their mmr, because now the boosted player is actually conscious of their lie causing their perception to be focused on the skill they're pretending to have, not that they really have -- boosting, in actuality, their own realisation of the skill they don't have.
+
+[2]: I'm reminded of game development here. you can only put so many polygons/pixels on the screen at once, so cleverly approaching the problem is always more effective than brute-force pushing everything into the video card.
+
 # the end
 
 ### 7 years of tribulation (continued)
