@@ -35,6 +35,10 @@ you are like a projectile flying through the air. every interaction impacts you 
 
 # remember how you want to feel (???/!!!)
 
+# doubt everyone (believe yourself)
+
+no
+
 # centre your sexual energy in your heart
 # centre your creative energy in your heart
 
@@ -42,4 +46,4 @@ before puberty, your sexual energy spews about almost uncontrollably. it appears
 
 the technique involves centreing the energy so it stays accumulating in your heart. then, when you want to release this energy into something, say a project, something creative, or into someone in a sexual expression, you have control over it.
 
-# everything you feel *is real*, or it will be soon enough (rework!)
+# everything you feel *is real* -- and if it isn't, it will be!
