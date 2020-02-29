@@ -81,6 +81,12 @@ they can modify all sorts of things in your physical experience, manipulating al
 - thought reality trumps emotional reality.
 - and, the things that you desire, or the things that interest you, do indeed trump your thought reality.
 
+so yes, it would appear that if you could control one's desires you can control your reality. that idea is a bit buddhist though, and I do not believe controlling is necesessarily the best word here. to illustrate, take thought and emotion. even though though does trump emotion, you can think your way into a better feeling place -- however, when you feel bad, it's hard to think thoughts that feel good. your thoughts, when feeling bad, will almost always make you feel about the same, or worse. this is why I strongly advocate the utilisation of an external stimulous such as drugs, sex or music to put your mind in a different place, allowing you the freedom to think new thoughts.
+
+so, in a sense, emotion also trumps thought as well. they work together in a way which is designed such that one amplifies the other, which is really great when it's a subject you want amplified.. however, if it's not a subject you want ampilified, you'll notice these two create a rapidly spiraling vortex downward toward self-destruction. so, figure out how to use your drugs/sex/music to achive the effect you want it to have; simple as that.
+
+this deck is designed to give perceptive awareness to these different forms of perception, ultimately giving you back the power create or destroy yourself in the way you see fit.
+
 # clubs (desire)
 # spades (thought)
 # hearts (emotion)
