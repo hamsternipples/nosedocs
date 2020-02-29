@@ -51,17 +51,55 @@ the status cards, jack, queen, king are to show the aspect. jack is subordinate 
 
 ---
 
-# ace of hearts
+# introduction
+
+society is organised in such a way that you (the person) are as powerless as possible. everyone has an agenda for you. the people running the network don't want you to be able to control your mind. facebook doesn't want you to have control of your data. unless you have a lot of money, you have very little control over what is happening in your reality.
+
+the only control you really have is over yourself. these different suits represent the different qualities of these forms of perception which are vital to their understanding allowing you to regain control over your perception (or, if you're creating a new timeline, these may give an idea of how to keep people from that control)
+
+the only person that can make the decision to want to have this control is you. no one else can do it for you. the way that I arrived to this understanding is a bit of a funny one.
+
+I was emotionally very distressed with some things that I could not logically figure out (because they were emotion based, so no amount of logic could explain the way I felt or the victimisation that I felt to my unfortunate circumstances). I have always been a pretty addictive person, and all of my life I've been pretty addicted to feeling good, so at the time I couldn't find any other way to placate the emotional distress than to drink and use a lot of cocaine. most people party on coke, but I used it as an escape from my emotional distress allowing me to program and feel good again. separately, I also had a drinking problem because alcohol made me superficial and stupid enough to no longer perceive the growing and already massive problems that were around me, as actual problems. they appeared to me as funny things -- you know stuff that you think is funny, because alcohol makes awful behaviour appear funny, until the reality of it sets in and you break down into tears.
+
+anyway, I knew I had a problem, and up until then the way I got out of problems was to focus on my creativity, so I began to program a lot while using a lot of coke. I drank still, but because I didn't like to drink and do coke, my drinking slowed down. coke allowed me to program like a madman, and it's a lot of fun at the same time. it's expensive though and I was quickly running out of money.
+
+my coke dealer recommended me to switch to MDMA, telling me that it was a great replacement. I tried it and slept on it. later a friend gave me much more pure stuff and that's when I really began to change. the MDMA replaced the good feeling that I was getting from the coke and allowed me to essentially quit drinking for a little while. if the MDMA didn't replace the good feeling the other substances were giving me and give me the relief from the emotional distress, it wouldn't have been so successful.
+
+MDMA truly is a wonderful thing, allowing me the capability of repreceiving the past experiences that were causing me emotional distress in a new way. their impact seemed to fade as they became things that just sort of happened, and less these big complicated things that I logically felt like I needed to understand and try to fix. in that sense, I could tell that the drug was making me "stupid" or "naïve" again as I no longer seemed to want to try and understand these things (you have to know something amout me: I *must* understand everything in my reality. if I don't understand it, it causes me huge distress and I spin my wheels undlessly trying to figure it out) -- so, to all of a sudden no longer be concerned with trying to logically understand and figure out my situation was a huge departure from my normal behaviour. I didn't feel like it was a problem. I assumed that I would return back to normal logical operation.
+
+I smoked so much MDMA, it really took me a whole lot longer to come back to normal logical operation, but the process is what the point of this whole story is about. I ran out of money, so I no longer had the financial capability to purchase another substance to make me feel good. I really wanted to feel like I felt when I was smoking MDMA, and I was sure that I could do it, because the mushroom was my guide and showed me that I was master of my perception. I really believed that I could, without MDMA, figure out how to feel that good, without the drug.
+
+that's when I decided that, no matter the circumstances, I wanted to find a way to feel good -- to find a way to feel like I felt on MDMA, where my probems no longer had emotional control over me. the decision, I would say, was the decision to *want* to feel good. you really have to want to feel good, and like a bad addiction, feel like you will do anything necessary to get that good feeling again.. that was the most important choice I ever made.
+
+---
+
+the world is a funny place and it's funny how I'm kind of the centrepoint of this whole network thing in the way that these guys *do not* want you to have control over your perception. they want to be in control of that, and I think it's quite an ok think, because once you learn you have all of the power, their influence makes very little difference to you.
+
+they can modify all sorts of things in your physical experience, manipulating all sorts of organs in your body electronically, but if you decide how you want to feel they cannot control that. physical and emotional conscious reality is all about learning to become receptive to the things you want or interest you, and let the other stuff kind of fade away (kind of like how you would feel on a high dose of MDMA listening to some invigorating music). so, when you gain control of how you feel, you regain control of your physical reality.
+
+- emotional reality trumps physical reality.
+- thought reality trumps emotional reality.
+- and, the things that you desire, or the things that interest you, do indeed trump your thought reality.
+
+# clubs (desire)
+# spades (thought)
+# hearts (emotion)
+
+
+
+# diamonds (physicl)
+
+### ace of hearts
 
 [todo: img of person running after a good feeling]
 
-# 2 of hearts
+### 2 of hearts
 
 [todo: img]
 
 emotional perception in dualities: forever/never
 
-# 3 of hearts
+### 3 of hearts
 
 [todo: img]
 
