@@ -13222,7 +13222,7 @@ I really am not concerned about the influence that they have. they really don't 
 
 ### 2020-02-28 20:58 - a very emotionally turbulant day
 
-I woke up and some plumbers came downstairs to announce that wes some water damage in the basement and they needed to do something to dry it out. my spider sense says that they were announcing this on purpose so that I would hear it and believe what mom had to tell me later about needing to run some fans or something... it was really weird. it feels to me like some sort of futile effort to try and control physical conditions to try and slow down my star watching. I think their effort is just more energy, and we'll have to see how effective it really is. I'm gaining power very rapidly, and I'm not really concerned, but it did kind of set the day in motion in a kind of weird way.
+I woke up and some plumbers came downstairs to announce that wes some water damage in the basement and they needed to do something to dry it out. my spider sense says that they were announcing this on purpose so that I would hear it and believe what mom had to tell me later about needing to run some fans or something... it was really weird. it feels to me like some sort of futile effort to try and control physical conditions to try and slow down my star watching[^2]. I think their effort is just more energy, and we'll have to see how effective it really is. I'm gaining power very rapidly, and I'm not really concerned, but it did kind of set the day in motion in a kind of weird way.
 
 I wanted to go to friendly harbor to have my thad day (friday is my day to kind of chill out with thad and stuff cause less people are there). I took a shower and felt quite good walking there in the sunlight. it was really nice. I kept having these weird feelings which weren't terribly visceral, because almost none of my feelings are anymore. there were a wide array of feelings ranging from frustration with me to some form of pushing hard against my improvements, to a strong sense of affection and desire as well. it was weird because I seemed to feel them all at once. I think I'm getting much much closer to 6d, and this *should* be happening becasuse it's what will happen, but it took me a bit by surprise to how it was taking form in actuality.
 
@@ -13263,6 +13263,8 @@ so, it appears that they're blocking the normal visceral feeling of desire that 
 they're "forced" to do me a huge favour here :) let's just hang on as things get more intense. I *think* that all of the girls I mentioned were notable to me for a reason. I just want to make sure though when I'm more stable.
 
 [1]: it most certainly is, because things have never felt more doad, cept sometimes when something slips through, I feel it strongly for only about a second before it vanishes
+
+[2]: yeah, I know I sound like I'm totally paranoid at this point, lol -- yet not without good reason... last night I spent the majority outside unconscoius. maybe I'm paranoid, but I assure you I didn't go out to the field to sleep in the cold... I have good reason to think they're getting desperate... it's just my opinion, I know.. believe whatever you want about it. I don't know for sure either way myself, but I'm going with the most likely explantation. I doubt any clarity will come as a result. I just keep going forward, and it doesn't seem to be that big of a problem. forgive my paranoia :)
 
 # the end
 
