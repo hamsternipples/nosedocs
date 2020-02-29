@@ -13266,6 +13266,26 @@ they're "forced" to do me a huge favour here :) let's just hang on as things get
 
 [2]: yeah, I know I sound like I'm totally paranoid at this point, lol -- yet not without good reason... last night I spent the majority outside unconscoius. maybe I'm paranoid, but I assure you I didn't go out to the field to sleep in the cold... I have good reason to think they're getting desperate... it's just my opinion, I know.. believe whatever you want about it. I don't know for sure either way myself, but I'm going with the most likely explantation. I doubt any clarity will come as a result. I just keep going forward, and it doesn't seem to be that big of a problem. forgive my paranoia :)
 
+### 2020-02-29 10:20 - paranoia revisited
+
+last night I was critical of graham hancock about his orion connection to the pyramids, saying that I think it discredits his position of a megalithic global society which predates the dynastic egyptians. this global civilisation had technology capable of constructing megalithic structures to a precision not even achievable today. in my opinion, there is undeniable evidence of the existence of this civilsation, and the mainstream narrative of the pre-dynastic egyptians, just out of the stone age, building things like the great pyramid, to me is complete rubbish. there is no way that could possibly be. graham has been one of the greatest promotors of this pre-dynastic global civilsation with advanced technology, and I really think that's great.
+
+I haven't read the orion book, so I don't really know what I'm talking about here, but I think the orion thing is a loose theory at best. I don't think there's good enough evidence to support it, and there are further difficulties, because in one of brien's videos he states that across egypt, the east/west orientation of structures has shifted 23° -- which seems to be evidence of that the east/west orientation of the planet was different at some time in the past. velikovski's work suggests something similar as well.
+
+however, I believe, and for some reason google isn't cooperating at the moment, that the gizah pyramids along with the sphinx *are* aligned to the cardinal directions. so the planet was out of alignment for some period of great turbulance when the structures brien refrred to were built? then the planet returned to alignment again? it's really difficult to know for sure. seems there have been a number of changes to the earth's rotation and alignment in the distant and maybe even not so distant past. or, maybe the pyramid was built such that the planet would eventually conform to and stabilise to the cardinal alignment of the pyramids?
+
+we don't really know.
+
+---
+
+anyway, the reason why I'm writing this is because my critical comment last night was because I'm becoming more and more sensiive to how I communicate. I fall into the very same trap of discrediting my solid evidence information with some wild speculation, all the time.
+
+take last night for example. included in and in the midst of a lot of information that I would consider to have solid evidence for, I speculated that the plumbers were in the middle of some plet to try and manipulate my conditions to try and limit my energy again[^1]. I'm super paranoid about all kinds of bizarre stuff, because the majority of it has, in my opinion, quite solid evidence for it. I'm pretty sure I'm the centrepoint of the greatest conspiracy humankind has ever seen. call me crazy, I know...
+
+anyway, I just wanted to apologise to graham, and point out that my critisim is directed almost entirely at myself. I'm super sensitive now and have begun to really want to improve the way I communicate and present my ideas. this is a bit of a departure from how I normally am, often stating that people's inability to understand me is not my problem. I don't feel obligated to try and make my ideas accessible, and I didn't get to where I am today by listening or believing other people, either. in fact, nearly everyone I have talked to has tried to force me into their dumb narrative that the network doesn't exist and isn't a real thing -- probably just like the pre-dynastic civilisation didn't exist. sorry man; I get it.
+
+[1]: it turns out that I may have just misinterpreted the things. it's more likely that the plumbers are trying to squeeze a little more work out of my easy to convince mom, and the intentional proclamation to push an idea through sound in his voice was more likely just a way to get away with more hours... I don't know. whatever.
+
 # the end
 
 ### 7 years of tribulation (continued)
