@@ -110,3 +110,21 @@ emotional perception in dualities: forever/never
 [todo: img]
 
 emotional perception that one must always present oneself emotionally in the most harmonous way
+
+### 8 of hearts
+
+[todo: img where there are multiple panels where in all of them it looks like "it's taking forever" "it's never going to happen" "I just have to wait and be patient for it" -- on the opposite of these 6 panels, there are contrasting ideas: "everything is coming together and going to crechendo in perfect time" "my expectations have not yet lined up with it" "I'm not sure I want it; I'm having too much fun now, withoout it!"]
+
+this card speaks to the alignent of emotion with what it is that you really want. in some ways, this speaks to trying to the depression felt once overcoming the desire to try manipulate people or things into place, to get what you think you want.
+
+the reality is, no person can accureately identify what it is that they really want, so instaed of trying to presume that you know what it is, and that it's not coming, to settle into an easier frame of mind about it.
+
+[todo: actually explain some of the mindsets in the frames?]
+
+### ace of diamonds
+
+[todo: img of multiple psnels where the person is singing, dancing, soliving a puzzle, building something, running over hurdles on a track, etc. -- and in all of them, the guy is thinking, "I am the best"]
+
+the card shows the duality of the beginning of the journey where the person believes theirself to be physically superior to others in whatever physical performance, constantly comparing theirself to others. however, it is also the end of the journey when in every aspect of physical performance, the person believes theirself to be the best. they are no longer competing externally, but have come to only recognise that in their present moment, they are doing their best -- or, the best best they've ever done.
+
+they have gone from trying to be at their peak performance for others, to being at the furthermost point of improvement of oneself.
