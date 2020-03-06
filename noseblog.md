@@ -13311,7 +13311,6 @@ I also made another change too, because I had some conflict. previously I wanted
 # the end
 
 ### 7 years of tribulation (continued)
-### venus & mercury story
 ### making the whole population unsteerable...
 ... by focusing all your attention on the unsteerable ones
 
