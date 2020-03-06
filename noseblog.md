@@ -13286,6 +13286,28 @@ anyway, I just wanted to apologise to graham, and point out that my critisim is 
 
 [1]: it turns out that I may have just misinterpreted the things. it's more likely that the plumbers are trying to squeeze a little more work out of my easy to convince mom, and the intentional proclamation to push an idea through sound in his voice was more likely just a way to get away with more hours... I don't know. whatever.
 
+### 2020-02-06 11:59 - thoughts on drugs and celibacy
+
+one of the things that caught a few of our attention on wednsday was when aaron said that prolonged practice of celibacy can cause the body to deteriorate. personally, when I was younger I would go back and fourth on the idea of marriage, but utimately decided that I wanted to be celibate. there were a number of reasons for my decisions, but that's not the point of this entry. I can easily see that when you are burning with desire for affection from someone, yet at the same time putting your own resistance to your own desire (I'm reminded of the two trains analogy that abraham uses to describe this: your desire going one way, and your belief going the opposite), that kind of internal tension will *definitely* manifest as a physical ailement of some sort.
+
+however, my desire to not engage in sexual relations is not one of resistance. I'm interested in someting else; I just don't think that women have what I'm looking for. you see, I have, through the years, turned inwardly and begun the process of self-discovery. I have a pretty good idea of what's inside of me, and I want that much more than anything else. I have seen people around me in all sorts of relationships, such that the relationship is actually thier biggerst hindrance to finding what they're looking for inwardly. in my opinion, what I have inside of me is what I want! girls or whatever can come later, but that's what I'm looking for, and I'm 100% certain that I can find it on drugs... that is actually how I figured out that it was there and attainable in the first place.
+
+once I figure that bit out, I *know* that beyond whatever that is, there is a whole lot more even than that. I am certain that area is largely undiscovered and is pretty infinite in size. as a result, I really want to do drugs again and begin to discover that area. aaron said another thing on wednesday too, saying that he thinks that psychedelics are also an artificial boost. I agree, as with all forms of pleasure, including sex. those moments of high stimulus are important for feeling good enough to make a new decision.
+
+LOA prevents you from (very easily) thinking in a much different way than the way you feel, so it's a really good idea to go and do something that will make you feel better, so that in that better feeling state you can rethink some things in a lighter feeling. all pleasure is fleeting and quite temporary[^1], so it goes away when the stimulus goes away. so, the only real lasting thing is the decisions you make and the way you cange the way you decide to feel about certain things. those changes are lasting and continual work on that will get you feeling lighter and lighter until you do not need the pleasure anymore to change your mind.
+
+---
+
+anyway, at the wednesday meeting, I drew the 7 of wands, and the card clearly had the message for me, "why are you fighting so hard?" that much was obvious to me. anyway, upon further reflection I was looking at the thing from the celibate angle and it helped me to see clearly. if what I want is inside of me, then upon encountering that girls or whatever can come later, why not just go after it?
+
+I like to smoke and do drugs because they alter my state of consciousness and allow me to see things a different way. the problem when I don't smoke and do drugs (I'm including coffee and sex in the drugs category), is I start going really fast. the alteration of my perception always slows me down. this is a good thing because it allows me some time to recalibrate my direction and not get going too fast with some faulty logic.
+
+I've come a long way now and I can get easily the answers I'm looking for with almost no effort. in fact, I don't even really *need* the alteration of consciousness anymore to change my direction, because I'm already so receptive to stuff. so, I guess it's time to start going full speed. I don't think navigating is going to be a problem.
+
+I also made another change too, because I had some conflict. previously I wanted so badly to continue to expand my consciousness, that I was basically like mztthew with his cigarettes. the first opportunity that I have to do drugs, I will be doing them. however, after thingking about it a little bit. I can imagine that some, but probably not all of the girls may want to take a psychedelic journey too. so, it will instead be my goal to see if a group of us who want to do some mental expansion and exploration later on. I think that would be more fun, anyway. clearly, this sort of thing isn't for everyone, so why not just wait until there is a group of us that want to do it?
+
+[1]: psychedelics are unique because in most cases (the exception being MDMA), they don't really make you feel differently than you alraedy feel. they simply amplify the feeling that you already have. this is why "set and setting" is so important, because you go in with a bad mindset or in a environment that's aggitating to you, and you *will* have a bad trip. psychedelics are also unique because they open up your receptivity greatly and you can get a lot of really great insights, so when the effect goes away, *hopefully* you're left with some new ideas about how you can perceive the things that previously bothered you.
+
 # the end
 
 ### 7 years of tribulation (continued)
