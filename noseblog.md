@@ -13300,13 +13300,17 @@ LOA prevents you from (very easily) thinking in a much different way than the wa
 
 anyway, at the wednesday meeting, I drew the 7 of wands, and the card clearly had the message for me, "why are you fighting so hard?" that much was obvious to me. anyway, upon further reflection I was looking at the thing from the celibate angle and it helped me to see clearly. if what I want is inside of me, then upon encountering that, the girls or whatever can come later... so, why not then just go after it?
 
-I like to smoke and do drugs because they alter my state of consciousness and allow me to see things a different way. the problem when I don't smoke and do drugs (I'm including coffee and sex in the drugs category), is I start going really fast. the alteration of my perception always slows me down. this is a good thing because it allows me some time to recalibrate my direction and not get going too fast with some faulty logic.
+I like to smoke and do drugs because they alter my state of consciousness and allow me to see things a different way. the problem when I don't smoke and do drugs (I'm including coffee and sex[^2] in the drugs category), is I start going really fast. the alteration of my perception always slows me down. this is a good thing because it allows me some time to recalibrate my direction and not get going too fast with some faulty logic.
+
+I do enjoy these different forms of lowering my speed, because actually with the correction to my mental processess, I actually go faster in the long run. I'm secure that I will be able to go exremely fast and correct my direction in pretty real-time without much effort. I'll just need some alone/star time to make sure everything is in order. I should be able to get all the way to fully connected from where I'm at now, and it's the goal, now at this point.
 
 I've come a long way now and I can get easily the answers I'm looking for with almost no effort. in fact, I don't even really *need* the alteration of consciousness anymore to change my direction, because I'm already so receptive to stuff. so, I guess it's time to start going full speed. I don't think navigating is going to be a problem.
 
 I also made another change too, because I had some conflict. previously I wanted so badly to continue to expand my consciousness, that I was basically like matthew with his cigarettes. the first opportunity that I have to do drugs, I will be doing them. however, after thingking about it a little bit. I can imagine that some, but probably not all of the girls may want to take a psychedelic journey too. so, it will instead be my goal to see if a group of us who want to do some mental expansion and exploration later on. I think that would be more fun, anyway. clearly, this sort of thing isn't for everyone, so why not just wait until there is a group of us that want to do it?
 
 [1]: psychedelics are unique because in most cases (the exception being MDMA), they don't really make you feel differently than you alraedy feel. they simply amplify the feeling that you already have. this is why "set and setting" is so important, because you go in with a bad mindset or in a environment that's aggitating to you, and you *will* have a bad trip. psychedelics are also unique because they open up your receptivity greatly and you can get a lot of really great insights, so when the effect goes away, *hopefully* you're left with some new ideas about how you can perceive the things that previously bothered you.
+
+[2]: I include sex in this idea of slowing me down because it appears what is really happening with this whole girls thing is it's that it's the ultimate in trading speed for more power. it'll be a huge ding to my speed, but the longer-term power-boost will be a whole lot more. I mean power in the sense of thrust or torque, not political power, lol.
 
 
 ### 2020-03-07 22:12 - some comments on some things...
@@ -13361,9 +13365,58 @@ if you think about it from the perspective of the guys going back over and over 
 
 in this way, you could almost perceive it less of a competition, and more of a role-playing game where the ones are taking the roles they want to take, and everyone has the option to switch sides if they choose. it pains me to say it, but if I don't get connected, it seems pretty obvious that I'm stuck on the nosebook plan. anyone could switch sides in just the same way.
 
-[1]: one of the illuminati principals, is that controlled conflict creates conrolled results. well, same thing here too: controlled catastrophe creates controlled evolution. I think, like tesla with his world system, and the reference to the INFECTED ONES, he too foresaw the effects[^2] and set us up for a series of controlled cataclysms.
+[1]: one of the illuminati principals, is that controlled conflict creates conrolled change. well, same thing here too: controlled catastrophe creates controlled evolution. I think, like tesla with his world system, and the reference to the INFECTED ONES, thoth in the same way, also foresaw the effects[^2] that his pryamids would have on society and how our human nature interacting with his technology would set us up for a sequence of events that would happen naturally as a result of LOA (just like tesla mentioned about the "laws of nature", talking about his world system).
 
 [2]: I mean he has the capability of creating all of these things in his mind (including alternate timelines), and experimenting with them too see their results. a mind that can perceive and create something as intricate as the great pyramid is beyond what we're capable of even comprehending he was capable of...
+
+
+### 2020-03-08 10:47 - a few responses to some things
+
+#### does it have to be continually a single guy getting connected, similar to me?
+
+probably not. I imagine that they'll get the system pretty well buttoned down so that no one gets connected for the duration of the time they're there. I don't even think it's necessary that they have a single guy in the spotlight that gets everyone on the network, either. probably that entire bit can be skipped entirely and they would just have everyone tracked and manipulated without their knowledge that there is even a network at all. people will continue to believe it impossible that you could see through someone else's eyes. only the select few will have access to the network. I can imagine really powerful economic and world leaders that are given this capability while everyone else is treated like I am right now, with no access, and it's 100% a secret that the thing exists in the first place.
+
+therefore, that means to me that, because there will be no way they can make a law prohibiting you from watching stars, that will be the only way. I don't know how, but perhpas they could find a way to reverse the whole weed thing and make sure other drugs are off limits. that basically leaves sex and stars as the only real methods to get connected, because meditation is likely waaaayyy too slow. it's just not powerful enough to overcome their system's counter-influence.
+
+so that really opens up the opprtunity to nearly everyone. it *could* be just one guy, but I find that unlikely, as it'll probably be a whole bunch of people (us) dropping into those bodies from another timeline. I would anticipate that there will be only a few adults that figure it out, with children/teens being the majority ones that are the stars in this future. I believe they can easily stop one guy, but stopping a hundreds or thousands of people becomes a real difficulty (at first, but later when so much of it is automated, it's likely that it won't be so hard).
+
+the other possibility, is so that they retain the authority that the network has on people, like it does now (as opposed to keeping it entirely a secret), would be to make a kenny-like person come to people's similar to how I did -- cept it woudl be a complete fabrication, just rehashing my story and passing it off as someone else's. they would get everyone on the network just like they did with me to watch this other guy, but instead of me, this other guy would be 100% controlled by them, and he wouldn't write things like this, and would tell everyone the lies they want to hear. this way, they could have the control they want, to be able to tell people to not watch stars, a monetisable platform (can't sell stuff if it's entirely a secret).
+
+as for me, I simply wouldn't exist to anyone. they would likely let some event like the vallecas thing appear that I had died, and keep me in stasis or something to where I couldn't interact with people. I would be wiped from history in this timeline, and no one would ever know I existed, allowing the other guy to show up in a simlar manner as I did. the other option is probably a few iterations in the future, to take my conscoiusness out of my body and have the other guy who's under their control go into my body (at say an event like vallecas) and just pretend to be me.
+
+wait, lemme summarise those: in the first iterations, it may be easier to retain control over the people by making a controlled version of me get everyone on to the network and exercising their control over people directly. however, that may be less effective and a whole lot of extra work in later iterations. it may be easier once so much about people's minds have been figured out, that they're practically robots, just following the directions given to them, that it may just be easier to have everyone fully automated and the network cept a secret.
+
+in "the one" getting everyone on the network phase, a lot of sexual libration would take place (I'm assuming, that was the major selling point that got men and women so interested in the network) but, that would be the easy way for people to get connected. they could in hightened sexual experience begin to get connected. so, in the later phase of keeping everything a secret and steering people as if they were machines and some automated way of installing devices in them, too -- if everything was kept a secret, the sexual libration that has taken place since 2016 wouldn't happen either, so that leaves stars and drugs as the only possible ways (that I can think of), but if people are able to be steered so easily, then they could be directed away from the stars.
+
+the last possible one that I could think of, is after the "the one" getting everyone on the network phase, instaed just set everything up and just give the network to everyone, boosting the DMT levels in their head until everyone is practically in a dream-state (similar to now) so they feel very little resistance to the things, and then just establsh control little by little (I'm sure they can find a way) until everything is under control. no secrets about it, just establish that everything is recorded, and that it's like the global justice system or something believable like that, and the global justice system decides and mitiates all crime around the globe. immediately follow it up with relaxing traffic laws and speed limits, saying that they will be fined only if they're really driving recklessly. then, optimise a bunch of things that are a total pain, like the commerce and finance systems, establishing a new amazon currency giving the whole globe access to amazon, make drones capable of doing the deliveries, and make sure drones can get into people's houses to deliver things (and install devices in them while they sleep).
+
+that might be the most feasible one, actually, but it may take a few iterations to get there.
+
+#### what's in it for the people involved?
+
+when they make a timeline, we also put our consciousness into the timeline (for more energy/desire/power), and every time they need to make an iteration, they will transfer their consciousness out of the timeline and into the new one, leaving a pretty vacant earth, with those of us that put our consciousness into the timeline.
+
+when they want to move everyone (all of their easily steered robots) over to the new timeline, only the people that were not capable of accecpting the frequency of an unprepared or prepared body in their new timeline will stay. each time this happens, those who are left-behind get to create as if it were a new earth, meaning that there are no other outside influences that can cause problems cept for their own form of perception (and the way that interacts with LOA). this means that anyone who decides they no longer want to be a robot, has to gain such a vibrational dissimilarity to the other timeline, that they do not accept a body.
+
+by default, I imagine that they will be taking everyone else along with them. these will be categorised into two groups: the ones with a planned life in the new timeline and the ones who are being put there because they're easy to steer. there's nothing in it really for the people who are easy to steer, but since timelines can be created with planned desired events for some people who, at first will probably have to pay to have the luxurious life experience in the new timeline. however, as the automation of people's life events gets easier, it may behoove them to make it more accissible to everyone, so that people are not "dragged" along just because they're easy to be steered, but because they want to be steered to have the life experience of their desires.
+
+#### what's the final outcome?
+
+well, I think the way that it's all heading is that from each iteration there will be a bunch of creators who have figured out how to get into a nearly vacant earth with a bunch of people that they want to be with (I assume), and only LOA to show them the rough patches in their vibration, as this world will illustrate to them how well things really are. this can be seen as the descending worlds (from the peak down), and the one everyone is creating in the robot steering and planned realities, are the ascending worlds (from the peak upward).
+
+this will create such enormous diversity, and I'm convinced that the next phase of human development will be to begin unifying these timelines, and it'll probably come from the main ascending (nosebook controlled super robot steering) timeline, because that's the one with the most contrast.
+
+that's a ways in the future, and things are going to be a whole lot different then -- because nosebook will have figured out how to create their reality the way they want it and not fight against it so hard, and we'll have learned the same thing.. to create our own reality and not fight it so hard. the same thing really, but coming at it from oppsite directions.
+
+---
+
+there was something more I wanted to say, but I cannot remember it. I'm gonna break for a bit.
+
+
+
+
+
+####
 
 # the end
 
