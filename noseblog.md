@@ -13408,15 +13408,32 @@ this will create such enormous diversity, and I'm convinced that the next phase 
 
 that's a ways in the future, and things are going to be a whole lot different then -- because nosebook will have figured out how to create their reality the way they want it and not fight against it so hard, and we'll have learned the same thing.. to create our own reality and not fight it so hard. the same thing really, but coming at it from oppsite directions.
 
----
+### 2020-03-10 08:31 - more responses
 
-there was something more I wanted to say, but I cannot remember it. I'm gonna break for a bit.
+#### are we stuck doing the same 20 years over and over?
 
+I don't think so. it seems to me that the natural order of things will yield that energy increases, such that people are prepared for the higher energy levels on this planet when it happens (2038?).
 
+I think there are a number of options here for what that could be like. if it's decided to finally go past the time limit, it's unlikely that the whole populus will figure out how to raise their vibration by theirselves, the people of the planet would need to be using some form of perception which is of a higher vibration, and then to ease them into it slowly over some years.
 
+if they choose to go with the controlled replacement for me plan, the planet could use his (I sincerely doubt it will be a her) form of perception -- which would be essentially his interpretation of my form of perception. the other option would be to manufacture an artificial form of perception, which the AI's can understand and utilise theirselves too, basically giving the machines the ability to see. this is probably the most easily controlled, because it means that means that people are locked into a world only as big as the AI can comprehend.
 
+once that's in place (it'll probably take a few iterations to do it all), then it's quite possible the planet will be ready to continue on -- consider that the getting ready process.
 
-####
+#### how is a timeline created?
+
+well, the way I understand it is, that you need a backbone, to which everything else becomes relative to. what I mean by that is consider this idea. imagine my future sure had propared this timeline. he would start from some point (say back in 2012, even though it was most likely much earlier than that -- propbably 2000) and then make sure that certain events happen: such that I am guaranteed to push raquel to contact the US for help, she gets in the network, they put me in the network etc. this is all the preparation for the body (kenny) to be ready for the event where I gain a new consciousness (vallecas). in that event, my consciousness was merged with my future self.
+
+the next thing that has to be done is to make my timeline completely linear and fully planned. obviously not everything can be planned, but you it needs to be such that you can predict future moments or events. you could see me as a sort of automaton where you put me in an environment, a predictable set of events would occur (eg. I have enough triggers installed such that there is very little variation in what the result of the encouter is). my future self is looking from the future backward, so he would just let the events transpire and check the result. if the result isn't what is desired, adjust the triggers so that a different result happens. rinse and repeat.
+
+so, let's say for example this event right right now was one of the ones that was planned. there would be some sort of trigger to know when I'm gaining desire to write about how nosebook could create a timeline for the alternate earth, then he could "fast-forward" on the timeline until he hits that trigger, add more triggers go give me the right ideas of the right things to say (maybe not perfectly accurate, but accurate enough that you'll know what I'm talking about), and then rinse and repeat.
+
+all of the stuff that happens between these planned events is entirely up to LOA to make happen.
+
+it seems like these triggers only have a range of effect. meaning, that you can't really trigger yourself to do something you're not capable of doing, so you have to kind of design "lessons" to aid yourself in being capable of receiving and responding apprepriately to the trigger. this is is also important to realise when thinking about designing triggers for the populus as well. they will also need to have events take place to allow them to be receptive to certain triggers (so that they can be steered). this also has something to do with and is linked to the AI form of perception, too.
+
+obviously this can be expanded out quite a bit so that relationships and encounters can be orchestrated (this is likely something worth selling). it makes something like a bunch of people (sheeps) which are herded and steered according to the desires of those on the top, and a bunch of wolves that are just picking off the ones they want.
+
 
 # the end
 
