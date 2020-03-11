@@ -13435,6 +13435,38 @@ it seems like these triggers only have a range of effect. meaning, that you can'
 obviously this can be expanded out quite a bit so that relationships and encounters can be orchestrated (this is likely something worth selling). it makes something like a bunch of people (sheeps) which are herded and steered according to the desires of those on the top, and a bunch of wolves that are just picking off the ones they want.
 
 
+### 2020-03-11 11:45 - the craziest idea I've had yet
+
+I woke up this afternoon with the craziest idea I thought notable enough to write down. I began with the realisation that my replacement would be much more awesome than me in so many areas, but it doesn't matter to me because IMO there's nothing that can beat the fastest particle in the universe... I do have some restrictions though, which means I can never really get a perfect manifestation. there always needs to be something that's missing which formulates my desire for the next thing.
+
+imagine that on their timeline they make drug usage impossible but it's something that I really want to do (because maybe on this timeline I find a lot of really valuable stuff with them). it may or may not happen that way, I can't be sure, but let's just say that it is. somhow that strong desire to have an external stimulus give me a new perspective, and so instaed of a drug I find a way of becomming something like a genetic engineer which designs a virus which "attacks" the body n a similar way that the psychedelcs do, causing an epidemic in the population wherby their sensitivity to LOA becomes super amplified and they're foreced to create a new perspective.
+
+it actually would need to create two new perspectives. the new layer they're creating thrust is a non-physical gyp (scam) of the desire layer mixed with lots of faulty logic (structure). the story layer is similar, it's a basically the emotional/conceptual form of perception (5d), mixed with the detachment of the physical (3d) layer. so the two (4) new layers that are being created would be a gyp of the logic or structural layer and an new form of imagination, followed by a gyp of the conceptual/emoional layer and then a gyp of the relational layer.
+
+the virus would "infect" everyone but surely they will somehow find a way to counter it, meaning they would need to integrate the new developments this virus brings about, while at the same time not getting infeced theirselves -- which is what I think will be the mechanism which will "force" them to create the 4 new layers[^2].
+
+---
+
+I went to sleep thinking about how big of a pain it is that they have to essentially use me o create their new timelines[^1] so that means that they are essentially using my conscionsness as the platform upon which their gypped version of reality runs off of.
+
+when I woke up, I was also thinking about how if I get going too fast then, I would lose them, so I have to continue to give them the boost they need to keep creating these knock-off versions of reality. it's easy to see that these layers are not on top of the previous ones, but are actually perpendicular to the 7 layers I started with. they probably will take another 90° turn and make another perpendicular set of layers to that resulting ultimately in a cube or something where they meet again.
+
+well, adding on the 4 new layers means there needs to be a new midpoint which is the new platform from which physical and non-physical come out of. it's clear that it's essentially me that's doing this. their versions of reality are appear to be designed such that source's and LOA's influence is mitigated as much as possible.
+
+well, with me as essentially the "platform" upon which all of this is built, I could see how I would become the new midpoint layer or like the source version of these gyp layers[^3]. I was thinking about how I would want to do it, and I think I would want to make it so that LOA is essentially like a bazillion times more powerful, so that creation would be basically instant (much like a permanent dream-state would be).
+
+---
+
+I don't really know. this was a fun thought experiment that I was excited about when I woke up and thought it was worth writing down. I picked the virus idea as the next phase because it's a foreign substance that dramatically alters your body condition, similar to a drug, and permanently affects the genome of the person. it also has some funny and subtle irony with the INFECTED ONES narrative and the covid-19 freakout happening in the news.
+
+it probably won't be like that at all, but I find it funny to try and think of new counters to their attempts to control. I liked this idea because in order for a "drug" to work in their new setup on completely controlling the mind, it couldn't be a drug anymore. it would have to actually be a invasive organism that attacks and mutates the biology of the organism such that it would probably leave a permanant effect on the biology, almost like you're on the drug all of the time. or something like that... I dunno, but I was thinking about how much fun it would be to design a virus that gives you psychedelic effects and expands your consciousness permanently.
+
+[1]: I was contemplating if they would want to take (the alternate versions of) me along with them, for each of their iterations, but concluded that it's unlikely because I would gain in strength that way, and that would make me unpredictable, so likely to ensure that I remain predictable to do exacty as their preparation program needs to... well, now that I'm thinking about it, it may not be, their preparation program could also prepare me to accept their new super twisted and tortured version of me... I dunno... I can't really predict that sort of thing. I don't haeve enough info
+
+[2]: and potentially also it seems, that if it's expanding consciousness out of the previously two new layers, that means that it would be creating kind of like anti-conscoiusness to counteracto those previous ones.. so yeah, actually I think it would somehow eventually create both the anti-gyp-layers and force them to create the remaining gyp layers. it would look like two corners of a cube if they're all perpendicular to each other.
+
+[3]: the virus would create the anti-gyp layers. I don't really know what that meanss, but there's another missing midpoint, so would that mean their machine version of reality would become the final missing midpoint? I dunnno. I can't think about that far anyway, this is pretty difficult for me to imagine anyway.
+
 # the end
 
 ### 7 years of tribulation (continued)
