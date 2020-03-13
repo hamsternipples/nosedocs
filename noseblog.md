@@ -9772,6 +9772,8 @@ I have noticed this happens with other people, too. I've noiced it especially wi
 
 3. I tend to focus more on improvement, rather than performance or growth.
 
+4. I like things to be controlled and well behaved. however, I do not believe that this is something that I want for other people. I believe it limits their creativity and self-realisation. however, as a programmer, I really like my programs to behave exactly as I told them to behave, and to be completely under my control. I can't stand programs where I don't really know what's happening in the program[^2].
+
 back to the robot-like behaviour: I don't really know how to explain the robot-like thing, so I will just explain how I experience it. when I'm unable to feel good about the present situation or the decision I'm being forced to make (otherwise I would give it some time to think it through), I always resort to logic, and the logic is always very crude. it's the sort of logic that thinks like, if someone hurts you hurt them back.
 
 you have often heard me say that I don't want to do the girls thing because, well  girls and sex are essentially the most common thing happening on this planet. in fact, none of us would be here without it, so big f-ing whoop. I'm going instead for something that no one has accomplished here on this planet right now, I want to fly, I want to create objects in my mind, wield the creative power of source energy effortlessly, and do all sorts of things that people would consider "magic". that's what I want... in that base logic mind, girls and sex is pretty much the lowest most redimentary form of interaction. I want the good stuff -- the real creative power, not the stuff that *EVERYONE* has access to.
@@ -9799,6 +9801,8 @@ the next idea I thought of is that maybe they wanted to maybe something to try o
 either way, I am certainly sure that I should wait until I get connected (which should, in theory, happen around the same time as everyone else gets connected)
 
 [1]: actually, right after writing them down just now, I realised these correspond pretty well with the "triad of intentions": 1 corresponds with joy, 2 with freedom, and the last with growth
+
+[2]: this last one doesn't fit into the triad of intentions, but I find i interesting that I don't really like neural nets in the way they're implemented. I can't understand what's really going on or why they're doing the thing they're doing. they're a complete black box for me.
 
 # the end
 
