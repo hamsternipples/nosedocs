@@ -9757,6 +9757,49 @@ it probably won't be like that at all, but I find it funny to try and think of n
 
 [3]: the virus would create the anti-gyp layers. I don't really know what that meanss, but there's another missing midpoint, so would that mean their machine version of reality would become the final missing midpoint? I dunnno. I can't think about that far anyway, this is pretty difficult for me to imagine anyway.
 
+
+### 2020-03-13 05:40 - I think more manipulation is happening
+
+a few concepts in no particular order...
+
+##### when I don't feel good, I teld to be very robotic
+
+I have noticed this happens with other people, too. I've noiced it especially with military servicepeople and law enforcement types. life is sort of bland and generally doesn't feel too good, but they've kind of accustomed to the dreary nature of things and so tend to respond very reactively or robot-like. I find myself responding very similar to things when I don't really feel good. I'm not saying I'm one of the INFECTED ONES, but my nature seems to point in almost every way to the direction that I'm more similar to these types than you may think. the only notable differences I have noticed between us are the following[^1].
+
+1. (joy) I am genuinely interested in finding ways to feel good, rather than masking or temporarily feeling better with pleasure. most make a career out of feeling bad, accepting it as normal, and instead of finding a way to feel good, instead numb theirselves or find a way to toughen up so that it no longer affects them, or to "stuff it" and ignore the problem until it grows into something physical, which they toughen up to and refuse to admit is a problem until they're about dead and then they refuse to die. IMO, it's a whole lot easier to just find a way to feel good, and by feel good, I mean happiness, interest, or fun -- *not* pleasure.
+
+2. I am not scared of taking drugs or other mind altering things which may provoke someone to change their perspective about something. in fact, while most of these guys are deathly scared of anything that could possibly influence them change their ways, learn or to grow, I find myself actually addicted now to the feeling of freedom that the new prespective gives me. each time I feel lighter and lighter, until it feels as if I'm floating or like I would be able to fly.
+
+3. I tend to focus more on improvement, rather than performance or growth.
+
+back to the robot-like behaviour: I don't really know how to explain the robot-like thing, so I will just explain how I experience it. when I'm unable to feel good about the present situation or the decision I'm being forced to make (otherwise I would give it some time to think it through), I always resort to logic, and the logic is always very crude. it's the sort of logic that thinks like, if someone hurts you hurt them back.
+
+you have often heard me say that I don't want to do the girls thing because, well  girls and sex are essentially the most common thing happening on this planet. in fact, none of us would be here without it, so big f-ing whoop. I'm going instead for something that no one has accomplished here on this planet right now, I want to fly, I want to create objects in my mind, wield the creative power of source energy effortlessly, and do all sorts of things that people would consider "magic". that's what I want... in that base logic mind, girls and sex is pretty much the lowest most redimentary form of interaction. I want the good stuff -- the real creative power, not the stuff that *EVERYONE* has access to.
+
+each of those three items I listed are deeply cut into my most basic logical instruction set. they're like my reptilian instincts if you want to call it that. I suppose they weren't always that way, but that's what is so great about all of this experience. I've never been more clear about what's important to me.
+
+##### are they trying to hose the dudes?
+
+it feels like there is another attempt to try to get me with girls before I'm connected, again...
+
+I can understand why nosebook would by interested in trying to do that at the beginning -- because they thought they could control me and use the girls to keep me from getting connected, but I think it was universally decided that my connection was essentially something entirely unavoidable.
+
+then, it felt to me like there was another startling revelation that if I got connected with the girls, the dudes would miss out, and it would give the women (or receptive people) a sort of superiority as they would be the ones going following along with me and the girls.
+
+it seemed like finally the conclusion was made that if everyone want participate, then nosebook would have to let everyone go up. in fact, I referenced this in an entry... [TODO: find referece]
+
+clearly, if they're making another attempt to try and get me the girls, they're not planning on staying on this timeline...
+
+first of all, that means that they're going to try and force a receptive superiority here on the planet (they're presumably leaving), excluding most men (taking them with them, or leave them here to "suffer")? I don't understand the reasoning here, and I may have some things off, but something is a bit weird...
+
+so, the best I could come up with is that they want to get training on their machines to recognise the signals of someone getting connected form sex (presumably so they could block it). but, I thought they discovered that I would get connected from the reality imposed dream-state, in the frist place -- so they already have those signals -- in fact, infinitely many more than would happen here, which would be just once.
+
+the next idea I thought of is that maybe they wanted to maybe something to try out and ensure that raquel doesn't get connected when she's in my body, but that surely isn't it, because most certainly one of the timeline trigger invariant (they're like unit-tests) would be to fail if raquel gets connected in my body. so, it's certainly not that, either.
+
+either way, I am certainly sure that I should wait until I get connected (which should, in theory, happen around the same time as everyone else gets connected)
+
+[1]: actually, right after writing them down just now, I realised these correspond pretty well with the "triad of intentions": 1 corresponds with joy, 2 with freedom, and the last with growth
+
 # the end
 
 ### 7 years of tribulation (continued)
