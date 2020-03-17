@@ -9804,6 +9804,36 @@ either way, I am certainly sure that I should wait until I get connected (which 
 
 [2]: this last one doesn't fit into the triad of intentions, but I find i interesting that I don't really like neural nets in the way they're implemented. I can't understand what's really going on or why they're doing the thing they're doing. they're a complete black box for me.
 
+
+### 2020-03-17 08:17 - I believe we can live in our own world...
+
+... with a bridge between the two (meaning that we can both access eachother)
+... that could never hold our weight (meaning we can't meet on the bridge)
+
+---
+
+after thinking a bit about wha I wrote last time, the conclusion is obvious: I am to continue on with the objective of getting connected. I know that seems obvious, but it gives nosebook full control over what happens. if they want to make it so that dudes are hosed here then they can just not let everyone go up, making things much easier for the girls and those willing to participate in their experience, to also get connected. it's also quite likely that we'll have a shared form of perception here on this planet. if that's not for you, then don't worry, it seems quite likely that nosebook will likely put you somewhere.. or, I dunno.
+
+so I was thinking about this, and I would assume that anyone who wants to leave this timeline would clearly be given a choice to do so. no question about that, but I find it unlikely that they will ever let anyone know on their timeline that we exist. probably we'll be their big secret that no one talks about. they'll be able to see our planet and stuff (and assuming they find a way of increasing their own energy levels or some other way to handle the energetic difference between us), they'll have access to the future technological advancements that we make, as well. seems likely those will be kept a secret too, but who knows.
+
+they will likely want to make sure that no one gets connected on their planet, and luckely for them, we exist, so that if someone gets connected, they could transfer their consciousness over to our planet and "get rid of them".
+
+it also seems that things are shaping up in such a way that this planet will be one of receptive superiority, and theirs of assertive superiority. seems that they want to get things going in such a way that they have full control over people and are able to manipulate them in the way that they choose, putting different thoughts into their heads and stuff to get people to do what they want them to do. I don't believe this will be only nosebook, as it is right now, but will expand into possibly a much greater portion of the population, like say 10% or more.
+
+going back to the one abraham I heard, "if you're not calibrating, you're manipulating" -- our planet will be all about finding any way you can to become receptive of who you really are. I use the word receptive instead of calibrating, because I want to use a word that has to do more with tuning. it's a practiced process to get so good at receiving that, and that practice is finding a way to feel the way you need to feel to be receptive of that (good). if you can't find a way to feel good, you can't be receptive of that. that is the practice.
+
+---
+
+so, I can think of how this could be a really good thing that may be starting to take place. so, I'm here and I get good at feeling the way I want to and being receptive of who I really am, no matter the circumstances -- but circumstances aren't too difficult here. I decide to try my hand at it in a much more difficult environment, so I transfer my consciousness[^1] over to their world. they see a bright new baby being born that has a considerable amount of consciousness[^2], and they know this kid will grow up to be a problematic person for them because of the massive amount of consciousness that arrived upon their birth. they need to monitor and make sure this kid doesn't get connected, so they need to manipulate him/her to make sure that doesn't happen.
+
+as time goes on, the kid will grow up and will hopefully (or maybe it'll be planned, who knows) grow into someone that gets connected, and they find theirself back on this planet in perhaps the same body or another body of their choice.
+
+sounds like a fun game to play. 
+
+[1]: I believe there is a way to tranfer consciousness without "killing" the body, so I find it quite likely that we'll use that technique to transfer consciousness between worlds, where as, I'm sure they'll want to make sure that consciousness isn't able to come back and cause more problems for them by disrupting their big show with someone who gets connected, so they'll probably choose to make sure the body does not continue to live.
+
+[2]: I was thinking about what johnathan said about lots of DMT being present in the brain on birth and death, and this seems clear to me that these are present as evidence of low resistance, or high amounts of consciousness, so that when the child is born, the child will have enormouns amounts of DMT present in their brain, allowing them to receive a consciousness of equal magnitude. I believe I had enormous amounts of DMT in my brain when I had the haemorrhage and also in vallecas, and I probbly got new consciousness in those times.
+
 # the end
 
 ### 7 years of tribulation (continued)
