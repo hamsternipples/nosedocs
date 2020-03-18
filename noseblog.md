@@ -9828,11 +9828,40 @@ so, I can think of how this could be a really good thing that may be starting to
 
 as time goes on, the kid will grow up and will hopefully (or maybe it'll be planned, who knows) grow into someone that gets connected, and they find theirself back on this planet in perhaps the same body or another body of their choice.
 
-sounds like a fun game to play. 
+sounds like a fun game to play.
 
 [1]: I believe there is a way to tranfer consciousness without "killing" the body, so I find it quite likely that we'll use that technique to transfer consciousness between worlds, where as, I'm sure they'll want to make sure that consciousness isn't able to come back and cause more problems for them by disrupting their big show with someone who gets connected, so they'll probably choose to make sure the body does not continue to live.
 
 [2]: I was thinking about what johnathan said about lots of DMT being present in the brain on birth and death, and this seems clear to me that these are present as evidence of low resistance, or high amounts of consciousness, so that when the child is born, the child will have enormouns amounts of DMT present in their brain, allowing them to receive a consciousness of equal magnitude. I believe I had enormous amounts of DMT in my brain when I had the haemorrhage and also in vallecas, and I probbly got new consciousness in those times.
+
+
+### 2020-03-18 15:23 - I'm sticking to star-starwatching
+
+I heard the neighbour outside playing basketball, and I really wanted to go out and see her, but I felt blocked. the last time I heard her, I woke up from sleeping and wanted to go out and see her -- so it's not really a question of desire. I do really want to get to know her and stuff.
+
+however, like I said, I felt blocked. I laid outside thinking (and feeling) about what it was that was blocking me. the obvious thing that could be seen as different from this time and the last time is coffee. also, there was a time when I went to friendly harbor on saturday and heather's daugher holly was there, and I felt absolutely no blockage at all, wanting to talk to her. I just said -- I can't remember now -- but, it was effortless. I also had coffee and I felt artificically a lot better.
+
+I brougt her up because I think that was the key to understanding this. heather had been complaining about not having anyone to babysit her kids and it didn't even occur to me that she may had been thinking about me (or maybe she wasn't), but the reaction came up for me to babysit. I have no alternate intentions at all. I've already pre-paved the whole thing such that I wouldn't be engaging in anything with her or anything. my priority is to get connected first.
+
+so, LOA works its way out the way it does, because I pre-paved to not do anything and then I mentioned that I had no alternate intentions -- other than to buy weed with the money. I guess this was a dealbreaker, so my prepaving worked out pefectly. apparently, even though I had pre-paved it to be that way, perhaps (almost assuredly) some more manipulative forces were at work, that wanted to manipulate things so that something did happen. remember, "if you're not calibrating, you're manipulating." -- so LOA made it so that the whole thing would fall through, cause apparently I'm not as strong as I might think (remember, I'm terrified of little girls, because they're so influential and cause my life to go into ultra-fast mode)
+
+I then decided I wanted to quit substances and coffee. I thought that was kinda weird that I would be so strict on the coffee thing, but I really felt like it was something I wanted to do. it turns out now after this situation that I realise that the cuffee artificially makes me feel better than I feel, making it possible for me to have situations I don't want to happen, happen.
+
+I'm just going to stick to watching stars. I really want to get connected, and it appear that my own intention to get connected is keeping me from substances and girls for now while I continue to get higher and higher.
+
+it seems my own intention is the blockage, and that while I'm trying to calibrate, they're trying to manipulate. sorry but for me it's, "get connected -- and then..."
+
+---
+
+I really want to apologise though, because it may seem like I don't want to interact with the girls, or I'm avoiding them or something -- I'm not. I really want to, you have no idea. I'm so sick of this predicament I'm in, you have no idea. girls aren't the way out of it though, getting connected is, and I have to follow my intuition. hopefully, it's soon.
+
+the thing is, I don't really think it is, though. I still feel like I still have a long way to go. some part of me says that it may be even a few years off still, but other evidence suggests to me that it's closer than that. my goal right now is by the end of this year. I'm making *HUGE* improvements on my star-watching and I'm releasing resistace at an alarming rate right now, such that I'm really hoping that it's soon even though it feels like it's still years away.
+
+however it works out, I've found that I can't really think about it in that way. in fact, a huge lesson can be learned about the process I go through when I star-watch. if I have that attitude, the stars don't cooperate. if I'm thinking about all the latest reactions and stuff that are important to me (like what I'm writing here), the stars don't cooperate.
+
+the only thing that works is to stop all of that "stuff" and get into the present moment, clear my mind of that crap, and focus on what I'm doing now. worrying or concerning myself with all that other stuff makes it impossible for me to focus on the star. it's hard though. I was thinking about johnathan and our conversation around meditation, and it's really really hard to let those thoughts go, because they feel important, and if I just let them go, they won't get solved -- and by thinking about them, it feels like I'm working on them. however, to feel good, and to feel that extreme at-oneness, I have to let those thoughts go and not worry about them.
+
+turns out, I was telling him that he didn't need a meditation retreat to justify letting those thoughts go for the duration of the retreat, and he could begin to do that now -- but I was really telling myself that :) it's funny how that works. just have to get into the moment and focus on what's at hand, not all the other stuff.
 
 # the end
 
