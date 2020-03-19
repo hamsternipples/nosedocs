@@ -9869,6 +9869,23 @@ turns out, I was telling him that he didn't need a meditation retreat to justify
 
 [3]: it's all about letting those concerning thoughts go, and to stop worrying about all of this stuff that's out of my control. for example, the stress around this whole situation I'm describing is clearly the product of a whole lot of "trying to make things happen". I simply don't have to worry about them. LOA has them all worked out and I should just keep focusing on my own connection. it may seem like a frustrating thing to see from the outside, because it'll appear like I'm more and more happy and pleasant to be around, even though likely I'll appear more and more like I don't care at the same time. I do care though -- a lot, once I'm connected :)
 
+
+### 2020-03-19 06:49 - a better way to look at it
+
+let me just reframe last entry in the following way: we know that with certain conditions like sex or drugs, I can get connected. this is obvious because otherwise nosebook wouldn't have such a strong restriction on me for drugs. most likely, they have have a narrative they need to keep for you guys, and if I get connected from drugs, then that will make their narrative incorrect. for whatever reason they're pushing for some condition (which they control) to be the reason for my connection. rememeber, they *could* just let me go up when they want, but they don't want that. it feels like they need a justification for my connection which they can also attain (women), not stars (off limits), rethinking thoughts (they'll never change), or learning to leave all the daily concerns up to LOA to work out (can't happen; they need to be in control).
+
+I want now more than ever to figure out how to get connected now without any conditions. that means without drugs such as coffee and other stimulants such as sex. I feel like I came to this point now and things are getting so easy, why not just go for the most difficult one yet. we all know I can do it with the right conditions, but can I do it without them? I'm sure I can. we'll ave to find out though, because I'm going for the energetic manifestation, not the physical conditions.
+
+---
+
+in a note in the last entry I mentioned that I girls (and sex) make me feel very out of control. well, I have established that the only real control that *anyone* has is the ability to feel the way they want to about the situation they're in. obviously, I don't feel the way I want to. I want to feel like I'm in control.
+
+I don't know how to conjure that feeling because I've not yet discovered it yet (yes, there are still tons of otherworldly or "impossible" feelings still to be discovered and practised). so that means I have to find it. I also eluded to it in the previous entry talking about the meditation retreat: instead of waiting until I'm away (retreated) from life to finally allow the daily concerns to just exist and be there but not a concern (because LOA has it all worked out), is, I'm fairly sure, the way to achieving that feeling: finding a way in the middle of the details of life, to find a way to let all of those things just get worked out automatically, as I enter into that state which I described to johnathan as being able to hear the teacher (or whatever), but I was off somewhere else whereever my focus is.
+
+I was just out this morning watching stars and I could get pretty easily to the letting everything else fade cept what I'm focused on (the star), pretty easily, but then a loud bird or truck or something would make a very loud sound and I would get startled. I'm not there yet. those things won't startle me anymore. in fact it will be like I don't even hear them.
+
+also, I'm wanting to achieve that for daily life, and not just with the stars, so that I'm able to focus on what I want -- like my programming or whatever.
+
 # the end
 
 ### 7 years of tribulation (continued)
