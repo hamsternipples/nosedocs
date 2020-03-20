@@ -9886,6 +9886,47 @@ I was just out this morning watching stars and I could get pretty easily to the 
 
 also, I'm wanting to achieve that for daily life, and not just with the stars, so that I'm able to focus on what I want -- like my programming or whatever.
 
+
+### 2020-03-20 06:53 - the political clones
+
+yesterday when I woke up I had a kind of aha momement. the day previous, I was talking with mom and I told her that I had a theory which the politicians and lots of people in power are actually just AI controlled humans, designed to be as bad as possible. I figured they had to be operated by some alien race or something else that was interested in our evolution. the reason being, if you consider that perhaps humans may have bad ideas, but because of the LOA works, you cannot ever get rid of anything. so, in order to evolve us to something greater than the worst, you need something worser. I always thought of them as a kind of launch pad for us wanting to really go fast -- because, there's no way they can go that fast and continue to have those kinds of bad ideas. anyway, that idea became a bit more refined yesterday when I woke up.
+
+I was thinking about the future version of earth where we would have contact with this planet and would be able to put consciousnesses through the -- let me just name them here for clarity: E is earth, and E' is the timeline that they're going to create where I never get connected, and they can setup their super-system where everything is under their control.
+
+I'm pretty sure that sometime soon we're going to have the ability to transfer conscousness into he body of another timeline, cept it won't kill the body. I was thinking about this, and it would sort of be like neo on the matrix where he learned kung-fu "I know kung-fu!" -- it would seem like a second (or perhaps closer to instant) to us here on this planet, but to the person taking the journey it would feel like they lived out the life from birth to death on the other timeline. similar to a dream, a powerful vision, or a strong psychedelic experience, time would be compressed in such a way that it would feel instant. the mechanism would be quite simple actually.
+
+when you are born and when you die, there is a tremendous amount of DMT in your system which means that those are the moments when you are least resistant and are "channeling" (or in tune with) the source version of you (the one without resistance, only focused on improvement "pure positive energy") and in those moments of extremely low resistance (birth and death), you'll be able to move consciousness in and out of the body with relative ease. so, you just setup that at the death of the body in the other timeline, you're conscoiusness is adjusted back to the body in the present timeline. obviously the "traveler" would have to be in an induced dream-like state already to begin with, so the traveler has full control of being able to get back into their body.
+
+to the traveler, it would feel like they just had a very very intense and very long dream. however, the dream would have all sorts of benefits to it, because you could test your ability to get connected in a world where things are the designed to keep you away from that. certainly new and novel ways of figuring that out will continue to happen as both sides get better and better at it. there are infinite different situations that could take place and likely groups of people will go together to share a really great experience together in a difficult environment.
+
+from the perspective of E', it's a bit different. they have to keep finding ways of controlling the things better, because each of us that comes through and gets close to or gets connected, threatens their fragile setup, so that person would have to be "dealt with" (probably killed or consciousness transferred over to somewhere else) -- meaning they just return back to their body. well, as more and more people get good at this, they can't possibly just kill anyone that's energetic. that's completely unsustainable and their planet will run out of people in a hurry, so they have to find a way of controlling and taking advantage of the energetic kids for as long as they can before getting rid of them.
+
+they have to actually learn how to do this properly, but like I was saying to mom, knowing how LOA works, there's no way the US govt could possibly be still operational. it should have broke down and failed a long time ago with so many bad ideas. this situation would be even worse -- LOA's effect on them would be so storng, focusing on trying to control and get rid of stuff, that that this operation surely would fail or not get very far at all. there's no way it could last for any period of time, I reasoned.
+
+well, when I woke up, I realised that it's probably not an alien race doing this, but actually fwh (my "future" self). because we think so much alike, I don't at all find this improbable. I would definitely do something like this. E' needs a source of sheep (E), but also a source of wolves (planet hope: H). in the same way that people on E' would continually get stronger and stronger, beating ever more difficult levels, the people on H would have to continue getting more and more controlling and unchanging in their ways.
+
+---
+
+let's take the subject of preparation for disaster. I have the perspective that preparation for disaster is exactly what attracts the disaster. funnily enough, if you skip the fear based sections of the gospels, written IMO after the timeline had split, where he talks about the "end of days" and gets people scared about that -- jesus exhorts us to "not worry" (mat 6:25-34). worry and preparation for those disasters is what brings those disasters
+
+you can see that from the point of view for us her on E, we'll get better and better at creating our own reality, not letting circumstances, conditions, or the bad ideas that other people tell us to believe to interfere with our own craetion of reality. eg. if you're tuned into wellness, disaster can't become a part of your reality. those tuned into disaster will arrive on the scene attracting disaster, experience it, and then tell everyone, "see told you so! you need to prepare for it."
+
+from the perspective of E', they will need to continue to try and avoid disaster and to prepare for and try and avoid the worst. you can see why this dream-life on E' is so compelling -- because we'll, through practice, get so good at knowing what we want to tune into, that creating whatever will become so easy and second-nature. anyone who can make it through the dream and get connected will be basically at the creative capacity of jesus (and much more) -- meaning that our desire to focus on well-being will be so strong, that anyone wanting to focus on disaster must create a time split.
+
+---
+
+so, you can see how this will become a problem over time for E' eventually the people being born there will be getting so powerful that they'll be getting more and more difficult to control. at the same time, you could imagine that because they have access to our timeline, they'll be able to track it (through my timeline) and see that we've gotten energetically so far ahead of them, there's no way they can possibly do a whole lot about it. I find it likely that depression will set in eventually as they realise the fuility of it all and begin to make their own choices about what it is they really want. these are the "souls" on H and H'. they'll eventually get there, but from the opposite direction. each iteration that they make, those consciousnesses who eventually give up on trying to control others' realities will likely be replaced by AIs who have been learning from them the whole time.
+
+eventually, machines will run the world of E' making for a place where we can all continue to improve our creative capacity.
+
+---
+
+I'll be honest, I don't really understand the whole H and H' thing. I know there has to be an H' because fwh would have made a time split, too, and it's likely they're using their other timeline. I dunno.
+
+also, now that I think about it, we're possibly H' and all of the hotshots from over there are the ones that want to go to the new timeline (E') because it'll be exactly what they want: a place where anyone can be manipulated to do whatever is wanted. there's no need for rape when you can manipulate them to consentually make your fantasies come true. so that world is really compelling for them. in the broader perspective though, that's really short-sided and totally misses the joy of creating the new thing that you want, instead of trying to manipulate what already exists.
+
+I don't see it 100% clear yet, but it seems to me that probably the source of most of these hardasses are the "clones" that fwh talked about so often (and probably "controls") -- and repeatedly puts them in the situations which will create for us more contrast, so that they'll be "forced" to create their own timeline where they can control everyone. their timeline where they control everyone will continue to exist likely for a long time, and will probably be used as a "rite of passage" -- and they'll have an entire world (maybe soon a whole galaxy) where they control everything and maintain their technical superiority by stealing it from craetive people going through their dojo.  I'm glad someone wants to run a world like that becauso to me, I just don't thing it would be as fun as you might imagine it to be.
+
 # the end
 
 ### 7 years of tribulation (continued)
