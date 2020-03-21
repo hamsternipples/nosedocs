@@ -9927,6 +9927,37 @@ also, now that I think about it, we're possibly H' and all of the hotshots from 
 
 I don't see it 100% clear yet, but it seems to me that probably the source of most of these hardasses are the "clones" that fwh talked about so often (and probably "controls") -- and repeatedly puts them in the situations which will create for us more contrast, so that they'll be "forced" to create their own timeline where they can control everyone. their timeline where they control everyone will continue to exist likely for a long time, and will probably be used as a "rite of passage" -- and they'll have an entire world (maybe soon a whole galaxy) where they control everything and maintain their technical superiority by stealing it from craetive people going through their dojo.  I'm glad someone wants to run a world like that becauso to me, I just don't thing it would be as fun as you might imagine it to be.
 
+
+### 2020-03-21 07:28 - doing things my way
+
+I'm in the process of beginning to feel the way I want to feel about things. how is it that I want to feel? I want to feel like I'm in control of my reality. I decide what I want to attract with my focus and therfore I'm in control of how I feel.
+
+I realise that some people my disapprove of the way that I am going about it, but I don't really «give a rip» -- and the reason for it is, I don't really have anyone that can help me, and neither do I really want it. I know I can get there the way I'm going to go about it. it's probably not the fastest or the most optimum way either, but I think «you are addicted to the drama» anyway, so just let it play out. it'll be fine.
+
+the thing is they are doing everything in their power to make sure I don't find a way to feel good. I can almost always be assured that any advice or help that people are giving me is to try and take that power away from me. let's take the example of cleaning my room. it's a total disaster. I hate living in such an untidy place. I really do. also, have you noticed that every time that I get stoned, I begin to start cleaning?
+
+what's happening is, I feel good, so I want to be in a space that feels good, so I naturally begin to clean. when I feel good, I like things tidy and organised, I promise you. mom offered to help me to clean my room, and I think it's an OK idea, but I want to have the room relatively clean before she begins to help me. I think that nosebook wants me to rely on other people (females) to do things for me. you see, if mom were to come and clean up the room for me, but I never changed the chaos in my head -- my living environment is a reflection of the way I feel -- then, my room would go right back to chaos in a very short time.
+
+for me, making action to change the way I feel almost never works. having a clean room, then going back to having a dirty room again is sorta like doing drugs (or going to a mediation retreat) to feel better, then when they wear off, life returns back to the chaos that it was previously. the only thing the drug did was to illuminate the contrast between the two states and produce stronger desire in me for what I want (which is a clean room).
+
+I must first find my way toward feeling good. I have to become in control over the way I feel. I am taking steady progress toward that, and I am confident that I can get there. I prefer self-controlled contrast. if I control the contrast, then I can gain control over it. what I really want is control over my reality.
+
+---
+
+you may remember the picture illustrations that I made when I was at augustos house. in the first picture you can see a very stressed out version of me representing my left-hemisphere. this is where I'm at right now. that is me. that image symbolises the balance and equalisation of my two hemispheres (which is something that nosebook does not want me to have). the next picture, I say "it is done" and there is the headline "this is *my* reality" -- not "this is the reality nosebook wants me to have" or "this is the reality that people want me to have" or "this is the reality that someone else is in control of" -- this is *MY* reality.
+
+as I begin to get better and better at feeling the way I want to feel, you will notice a whole different version of me. me and my entire reality (including everyone in it, because it's only attraction), will feel good, look good, etc. being around me will be like entering into an alternate dimension where everything is of such extreme quality and detail that everything feels visceral and delicious.
+
+I'm obviously not there yet. I have to gain control over the way that I feel in order to get there. I anticipate that this is only the beginning of the difficulties, because what I'm essentially saying is that I will begin to feel the way I want to feel (amazing, good, successful, etc) -- not the way that nosebook wants me to feel which is powerless, in their control, and dependent or reliant on others, so they can control the way I feel by controlling the others. surely they will not respond to losing control like this, and much like a parent trying to fight with their child's desire, will try more and more physical methods to try and control someting that is way too strong for them to control.
+
+---
+
+I do feel pretty disconnected. I can't really feel anything anymore. I really don't know what to do about stuff because I just can't really feel much anymore. I consider it to be similar to flying an airplane in a situation without any visibility. you have to rely on your instruments, not your feelings. I'm essentially all logic based now because I don't have a very good sense (or I haven't found a way to reliably get the sense I'm looking for). when I don't feel the way forward, I don't make any action. I have to go on pure logic and my knwledge of how the universe and LOA works until then I regain my guidance system.
+
+to all the girls that are going to make an effort to get included, for now let's just remember you, and I'll revisit at a future time when I've got my senses back. that's probably to your advantage anyway because probably by that time I'm going to see really only see and attract the things I want (positive) aspects in those around me. so, for now I'll just say ok, remember that one or something like that.
+
+I have tremendous confidence in the my understanding of things, and I'm really doing a lot of advanced techniques because I'm so sure of how it all works, but I just don't yet have the surity in what I feel right now. too much chaos still. you'll know when Im getting out of it, because my environment will reflect it. my room will probably be clean :)
+
 # the end
 
 ### 7 years of tribulation (continued)
