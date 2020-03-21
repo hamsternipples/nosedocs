@@ -9954,9 +9954,11 @@ I'm obviously not there yet. I have to gain control over the way that I feel in 
 
 I do feel pretty disconnected. I can't really feel anything anymore. I really don't know what to do about stuff because I just can't really feel much anymore. I consider it to be similar to flying an airplane in a situation without any visibility. you have to rely on your instruments, not your feelings. I'm essentially all logic based now because I don't have a very good sense (or I haven't found a way to reliably get the sense I'm looking for). when I don't feel the way forward, I don't make any action. I have to go on pure logic and my knwledge of how the universe and LOA works until then I regain my guidance system.
 
-to all the girls that are going to make an effort to get included, for now let's just remember you, and I'll revisit at a future time when I've got my senses back. that's probably to your advantage anyway because probably by that time I'm going to see really only see and attract the things I want (positive) aspects in those around me. so, for now I'll just say ok, remember that one or something like that.
+to all the girls that are going to make an effort to get included[^1], for now let's just remember you, and I'll revisit at a future time when I've got my senses back. that's probably to your advantage anyway because probably by that time I'm going to see really only see and attract the things I want (positive) aspects in those around me. so, for now I'll just say ok, remember that one or something like that.
 
 I have tremendous confidence in the my understanding of things, and I'm really doing a lot of advanced techniques because I'm so sure of how it all works, but I just don't yet have the surity in what I feel right now. too much chaos still. you'll know when Im getting out of it, because my environment will reflect it. my room will probably be clean :)
+
+[1]: yesterday, there was the one on villa st(?), the two on briargate (the house where I looked in their backyard after the wind blew their fence down). then, I felt something also with thad's neice too -- then most bizarrly of all when I was watching stars I kept feeling inclined to say that 10 (why ten, I dunno) french girls (selected by them), too. you can understand now, my aprehension to try and figure this out. logically, it would seem that some of that *has* be noise, rather than signal.
 
 # the end
 
