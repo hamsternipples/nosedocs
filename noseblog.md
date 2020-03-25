@@ -9960,6 +9960,35 @@ I have tremendous confidence in the my understanding of things, and I'm really d
 
 [1]: yesterday, there was the one on villa st(?), the two on briargate (the house where I looked in their backyard after the wind blew their fence down). then, I felt something also with thad's neice too -- then most bizarrly of all when I was watching stars I kept feeling inclined to say that 10 (why ten, I dunno) french girls (selected by them), too. you can understand now, my aprehension to try and figure this out. logically, it would seem that some of that *has* be noise, rather than signal.
 
+
+### 2020-03-25 10:40 - iterate it real good
+
+last night after I came back from the last time losing consciousness in the field, I returned to watching stars and I had a funny sense come over me which was likely a reaction to whatever they are doing while I'm asleep. I assume they're working on their new timeline based on the reactions, but anyway... the feeling I got is that they're going to have to do a lot of iteration on their timeline until they get it. it felt to me like it was some sort of punishment or some form of hell, where they're forced to live out the conseuences of their situation until they fix it, in order to move forward.
+
+imagine their case. this is just an example, and probably not the real version of it, so just go with it for the sake of example. imagine they can make their new timeline such that at the "end" of their new timeline, they decide to make a new timeline again, and go back to try again.. the reason why they would want to go back and try again would be because they want to optimise their situation and avoid some form of catastrophe.
+
+you could say that the catastrophe will be caused by our solar system passing through the galactic current sheet, but I believe it's actually much more insideous than that. I think their difficulties arise internally, from such an accumulation of bad ideas.
+
+imagine they get everything all setup and they're capable of making it through the galactic current sheet and everything. now, they're forced to face the reality of their own internal difficulties. each iteration, they're going to need to continually find their way around one corruption scandal after another, working thier way up to.. what? up to what? what is their end goal? certainly, if it's for the continuation of the organism, some bad ideas will need to be given up on so that the organisation can survive.
+
+---
+
+the situation I envisioned last night was kind of a funny one (not really though), but imagine that the noseboys were able to iterate so much such that they could get so high up in their form of perception that energetically, if they were to have sex with anyone not on their power level, the amount of electricity contained in their body would become harmful to the other person? I imagined the worst case: I imagined that it would cause death[^1]. in that far-out situation they would have to either stop having sex with humans, or just become ok with the idea that they must now have victims of their pleasure. or -- they would have to begin allowing the humans to rise up to a level so they can have sex with them. or, to select only certain authorised females which they could have sex with and allow them to be on a similar level with them -- but that would setup a group of females with superiority (which enevitably will expand).
+
+this whole thought experiment was a test to try and see if I could come up with the worst possible outcomes in my brain. even though, it likely won't manifest in this form at all, I do know that the vibrational bit is sound. things will have some form of balance -- or, in other words, desire would never allow that to happen. it would create too strong of desire for that to continue to be a reality.
+
+however though, there is a solution, and I think they'll arrive to it naturally, because I doubt there's even a chance that these guys will decide to change their ways; that's just impossible. so, each iteration, their version of reality will have to be more and more controlled by machines. this will help them to avoid the obvious corruption and infighting that will certainly take place. machines will have to be setup to run the entire world, in order to avoid these circumstances.
+
+think about it like this: imagine that everything works out well, up until 2030, or something but in 2030, one of the main guys gets some idea that he needs to be paid more or receive more money because he's unhappy and this causes some huge problem. next iteration, they'll have to find out a way to ensure he doesn't get unhappy, so they make more ideal circumstances for him. similar things continue to happen until everyone in the company has to be put in some form of super ideal circumstances in order for the company to continue to function. the trend is to "buy off" (a technique used in a lot of corporations to get rid of problematic people) the probematic ones and put them into a situation where they're comfortable and not making problems. this will leave a core remnant of guys and means that team size is shrinking with each iteration, not expanding -- which means, more and more is being automated.
+
+---
+
+I think this is a good thing, because consider another reaction I had a few days ago, upon their begginning to realise that they are only able to control their small (infinitesimal really) "insignificant" slice of reality. I contest that it is insignificant so long as they look at purely from a numbers standpoint: 1/infinitiy = next to nothing, but if they're able to make an environment where *everything* is out of the humans control, and machines do the bidding of these godlike superhumans running the entire show, that *is*, something significant! why? because that means that an infinite number of us can continually use their planet as a sort of dojo to learn to value our connection above all other things. with everything out of our control, we'll gain tremendous practice to find that control inwardly.
+
+also, it has a nice reciprocity to it. each of us will having experienced the contrast between connection and no connection, we'll learn to desire it more and more until it's a part of our makeup to search for that first. likewise, the core noseboys, will have a similar thing happening, where each iteration their realisation of something going wrong could theaten to take away their mega-perception, they too will gain stronger and stronger desire to find their connection. we'll eventually all be on the same page again, but have gotten there by different paths.
+
+[1]: I imagined this as the most far out situation possible, which may or may not be a possibility, but just for extrapoation sake, it was what I came up with. the idea comes from what I believe was thoth's difficulty here on earth, and why he became so much of a loner.
+
 # the end
 
 ### 7 years of tribulation (continued)
