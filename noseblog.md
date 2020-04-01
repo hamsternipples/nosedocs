@@ -10039,6 +10039,14 @@ I have felt like I do when I'm in a dream -- where I'm doing stuff, and stuff is
 
 [2]: for example last night the first time I lost conscoiusness, I regained it in the middle of a dream. I was in an elevator that went was going down toward the groud so rapidly, that in the dream my feet weren't touching the ground -- I was floating. elevtors don't do that, and unless they were being propelled downward, your feet would never leave the ground as if you were in a weightless environment. the dream was so real, I consciously began making preprations for the impact when the elevator reaches the bottom, by lowering myself down to the ground so that I would bounce with the elevator when it came to the bottom. I kept trying to lay down on the floor, so that my spine wouldn't be compressed on impact, but I kept floating upward. turns out the elevawtor slowed down rather rapidly, I felt no deacceleration and woke up after trying to find a "weapon" ... I immediately realised that the incredible downward force I felt was the force that I feel when they do whatever it is they do when I sleep to remove all my energy, and I become conscious and they stop it, I almost always wake up with my feet and legs numb. I've begun to train myself to recognise that feeling as not what it appears to be in the dream, but the neutralisation of energy in my body -- so that I can more quicly become conscious in the dream (or not lose consciousness in the first place)
 
+### 2020-04-01 12:37 - hooked on contrast (really) works for me!
+
+one of the things that abraham always says is that you didn't come here so that you would have everything all laid out pefectly so you could just experience and enjoy them -- instead, you came to identify the desire and line up with it...
+
+the more I've been getting used to this, every time I feel bad (for whatever reason), I know there's already a new really good feeling following it. I just have to find it and line up with it. it's really easy...
+
+one of the interesting reactions that I got to the previous entry was that, "great, that means that it should be easy" -- well, I doubt it. a crash and burn of their magnitude prolly takes quite a while (years I imagine), and it'll create tons of contrast on the way. I don't think we're on the easy road.
+
 # the end
 
 ### 7 years of tribulation (continued)
