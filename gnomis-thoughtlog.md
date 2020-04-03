@@ -288,3 +288,34 @@ so, here's the idea. in the dream I could see that some of them were coloured di
 from a LOA standpoint, these "experts" will influence people's belief much stronger than someone without some authority in the area, so it'll cause people to believe them to be right -- and they may very well be, but like the coronavirus speculators, it's not the vortex version of them. they're speculating about old news. outdated concepts that education or statistics has given them as a guideline to predict the future.
 
 this will create a huge tug on the girls to conform to people's belief of them, and also give the most opportunity to "prove them wrong". there's a lot of resistance in that sentence (on purpose). I've (personally) found that I really enjoy giving a good yank on he contrast chain before turning my attention toward what's wanted. we'll find the right way :)
+
+
+### 2020-04-03 12:52 - another idea
+
+I've begun to think to myself how I want to structure things, and I really think teamwork is kinda hogwash. I have been thinking of a motto or short phrase that can say it easily:
+
+> be considerate or efficient with others, but you really are the only one responsible for how you feel.
+
+for me, I think being considerate feels good to me. what feels best for me is actually the most optimal or efficient. when I'm walking, for example, I tend to walk slow, so to compensate for my preferred slower pace, I go a lot of diagonals or cut through places to shave a few seconds off of my time. it makes me feel like I have extra time that I can now use to stop and look at something, or to go explore or do something different. however, if I believe that the more optimal route isn't being considerate, then I don't do it[^1].
+
+maybe something like that. I really don't know yet, cause I was just brainstorming anyway. I can say where I'm coming from on the idea though: yesterday, I made a comment that I thought that abraham's message was a bit "airy-fairy" for me, because I really like contrast; I really like my now reality. I love the idea that there's a vortex version of reality. I am aware that it exists, but I love that I can focus in a way which doesn't feel good for a moment, which brings more contrast and desire, then line up with what feels good.
+
+if you think about the nature of our reality -- everything is built upon source energy. long before there is anything physical there is a whole lot of consciousnss the constructs the primitive structures upon which everything is built. for example maths, axioms, concepts, etc. then how they relate to us in a physical way through chemistry or electricity. if you were part of the "source" for a large game like world of warcraft, then the "source" of that game would have to continually improve. both the source for the "good" and the "bad" guys would have to bo improved upon. they are only focused on improvement.
+
+they go further to explain that the three intentions upon which everything is built by source is, «freedom, growth, and joy». if you again put this in WoW universe sense, the growth and joy bits are obvious, but what about the freedom part? it means that *nothing* is off-limits. nothing is bad or wrong. however, for the format of the abraham message, there are quite a few things that they cannot really do, because of the attraction power they have. they must, in keeping with only improvements, not really touch certain subjects in a non-general way. imagine that one day they were to get canonised into some sort of religious document or turned into some form of instruction manual -- they have to always present the general case.
+
+those three intentions seem kinda like the CAP theory here in the physical world: choose two, knowing that the ideal is all three. they clearly choose growth (growth is inevitable) and joy. their message is always framed in a way that is always toward feeling good. they sacrifice some of their freedom in some topics to maintain the joy level.
+
+---
+
+we're out here exporing really detailed and sepcific stuff though, so that makes things a little different in the sense that we, are not likely to always have things always feeling great. actually, it's sort of impossible if you want any sort of expansion to have everything always feeling good. so we'll have things that don't always feel good. in our case we "sacrifice" always being joyful for increased "freedom"[^2] -- in the sense that there's no wrong or bad way.
+
+the thing that I was wanting to recognise as important is that if all of us are only concerned with how we feel indiviidually, I think we'll have a lot better result than trying to do something as a "team" or to try and get everyone on the same page. I really hope there are so many different ways of doing things, but all of us are really good at feeling the way forward.
+
+---
+
+this whole entry didn't at all come out the way I wanted it to. I wanted it to give the impression that we should embrace our diversity and not really worry too much about stuff, and only on how it feels. whatever, my head feels like mush right now. peace out.
+
+[1]: for example, I saw a kid cross through the front yard of the house on 164 massari, and while that is the most optimal route, I don't believe that walking diagnoally through their front yard would be very considerate.
+
+[2]: not totally, just go with it for a bit.. it's possible to have all three, but unless you're in full alignment with source all the time you won't have it
