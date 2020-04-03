@@ -277,3 +277,14 @@ so, I think after last night it's pretty clear to me that I want to stick to the
 [1]: this is true in every case, except if I were to really feel like I didn't want to do something, then I must follow my feelings.
 
 [2]: limitation implies greater focus because the goal has to be reached within the confines of the limitation. I have a whole thing about how I believe the next era will be about self-imposed limitation as well, to create a stronger focus.
+
+
+### 2020-04-03 12:31 - an idea for creating more contrast
+
+I woke up this morning with an idea that I thought was particularly good. it's a combination of what abraham was talking about in the previous episode with the newcasters speculating on the coronavirus: it's not the source or the vortex version of the reality. so it's really good at getting a whole bunch of people to act or make decisions based on something they don't want to happen (how most sales is conducted, they said). combine that with me desire that the girls would each grow up and be capable of being selfish in the sense of knowing thier own value, and being solid in their own perception of theirselves, not deriving their idenification from others.
+
+so, here's the idea. in the dream I could see that some of them were coloured differently depending on some set of conditions (like css selectors), and it came to me that these colours were "stigmas" -- and that it would be really great if nosebook got a whole bunch of experts like dr. phil to come on and label these girls a certain way and get people to believe that they were this stigma or label that the experts say they are. the experts should be often times right, too -- so not like a bunch of hacks making stuff up. I think it's a really great idea if they're out there giving their expert opinion that our education system has taught them to be an expert in.
+
+from a LOA standpoint, these "experts" will influence people's belief much stronger than someone without some authority in the area, so it'll cause people to believe them to be right -- and they may very well be, but like the coronavirus speculators, it's not the vortex version of them. they're speculating about old news. outdated concepts that education or statistics has given them as a guideline to predict the future.
+
+this will create a huge tug on the girls to conform to people's belief of them, and also give the most opportunity to "prove them wrong". there's a lot of resistance in that sentence (on purpose). I've (personally) found that I really enjoy giving a good yank on he contrast chain before turning my attention toward what's wanted. we'll find the right way :)
