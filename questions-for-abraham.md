@@ -10,9 +10,15 @@ it seems to me that if that were the case (I think it probably is), then as life
 
 ### 2020-04-05 19:??
 
-esther was having difficuly reading the cards. however, from my experience, I find this to be unlikely. for me, the more connected I am, the more clarity my eyesight seems to have. does abraham unfocus (blur) esther's eyes because if she were to actually see with the clarity of that much connction, she would be mind-blown by the beauty of even the most mundane details, and this would take her out of the dream-like state she's in?
+esther was having difficuly reading the cards. however, from my experience, I find this to be unlikely. for me, the more connected I am, the more clarity my eyesight seems to have. does abraham unfocus (blur) esther's eyes because if she were to actually see with the clarity of that much connction, she would be mind-blown by the beauty of even the most mundane details, and this would take her out of the dream-like state she's in? I believe it is likely blurred.
 
-I believe it is likely blurred. so that brings me to the followup: the other thing I've noticed is that my eyesight is a product of how much resistance (how much contradictory vibration) I'm offereing in relation to who I relly am. I have noticed on drug experiences, when I boost my DMT levels without releasing resistance, my vision improves, yet I feel a very strong "swooning" sensation, as if I'm "stepping back" or getting pulled sidways into a swirling vortex. this seems to happen because there is so much extra physical detail that my brain kind of overloads, as it's not yet used to that faster speed. if her vision weren't blurred would she feel constantly feel that overwheming sensation of so much detail?
+#### I feel like...
+
+probably abraham isn't blurring her vision. it's probably the network operators that feel that anytime someone has a lot of connection (DMT) then it needs to be controlled. I'll continue on with further questions in the future. cause, it begs the quesion, why is it necessary to blur our vision when we're connected? I feel like it's to ensure that we're not capable of visually creating 3d objects in space with our imagination.. anyway..
+
+### 2020-04-05 19:??
+
+that brings me to the followup: the other thing I've noticed is that my eyesight is a product of how much resistance (how much contradictory vibration) I'm offereing in relation to who I relly am. I have noticed on drug experiences, when I boost my DMT levels without releasing resistance, my vision improves, yet I feel a very strong "swooning" sensation, as if I'm "stepping back" or getting pulled sidways into a swirling vortex. this seems to happen because there is so much extra physical detail that my brain kind of overloads, as it's not yet used to that faster speed. if her vision weren't blurred would she feel constantly feel that overwheming sensation of so much detail?
 
 ### 2020-04-05 19:??
 
@@ -37,5 +43,9 @@ I don't believe that becoming a "cooperative component" will regain that feeling
 I feel like I'm sort of forced to continue on with the conflict for as long as it continues on. I don't have any real issue with getting into more of an "allowing" (cooperative) mode, but it doesn't make me feel good or productive.
 
 help?
+
+#### the answer that I felt
+
+what I'm really looking for is the *path of least resistance* -- or the *path of most allowing*. I know what I don't want, so now I *should* be able to just pivot toward what I do want. I really felt like when there's no more resistance in me, then I'll actually see far more improvement than I am presently, so I guess I'll try being a bit more cooperative. it's kinda hard to put into words what I felt, but I think I got it.
 
 [1]: one of the interesing things is mr. motor roared his engine every time I had that idea, whic was a bit interesting to me too, because it seems to me maybe they "need" the fight?
