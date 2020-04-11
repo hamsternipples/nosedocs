@@ -2,7 +2,7 @@
 
 ### inspiration
 
-1. watching Daði Freyr play his songs in his room (or often I see DJs finely adjusting the volume), but it looks like he's trying to transmit some sort of feeling into the music while it's playing that part and doesn't really have a good way of modifying something that's already predefined, much more than slightly adjusting the volume.
+1. watching daði freyr play his songs in his room, but it looks like he's trying to transmit some sort of feeling into the music while it's playing a part that doesn't really have a good way of adding something extra to a predefined part of the song (or often similarly I see DJs finely adjusting the volume because it's a whole lot better than just standing there and letting the record play).
 2. watching the kid in @[youtube](https://www.youtube.com/watch?v=VFZNvj-HfBU) hitting the joystick to the beat.
 3. watching the different interactions of magnetism on aluminium with professor eric laithwaite: @[youtube](https://www.youtube.com/watch?v=0tJfqMYHaQw) and @[youtube](https://www.youtube.com/watch?v=OI_HFnNTfyU)
 
