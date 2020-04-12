@@ -10047,6 +10047,18 @@ the more I've been getting used to this, every time I feel bad (for whatever rea
 
 one of the interesting reactions that I got to the previous entry was that, "great, that means that it should be easy" -- well, I doubt it. a crash and burn of their magnitude prolly takes quite a while (years I imagine), and it'll create tons of contrast on the way. I don't think we're on the easy road.
 
+### 2020-04-11 22:43 - the magic of mushrooms (and source)... lol
+
+I wrote this whole long question thing out before listenening to the broadcast of the 9th, asking about mushrooms. I individually came to the conclusion this morning that I would attempt to grow the mushrooms, and if they didn't grow that's cool, and if they did, that's also cool, too. I had nothing to lose. I also decided that I wouldn't be trying to pin everything on one day, so instead of putting all of my eggs in my birthday basket, I would instead just try and grow a lot of mushrooms and use them as an accelerant, just like I do with the stars.
+
+assuming I could get the mushroom production up and running, I reasoned that I would have to find ways to release resitance really rapidly because I would continue to increase the dosage until I'm stable at extremely high dosages. then, when I came back down, nosebook would ensure I didn't get that high again, which just like my star-watching, actually increases my capacity. I think the most safe and productive route will be to gain levels as rapidly as possible.
+
+so I go outside later this evening to check on the cloud situation to see if I can watch stars, and I notice a bunch of mushrooms grew in the backyard. you have to understand how impossible this is. they grew in some woodchips that had been covered with dirt, pushed their way up through the dirt and all of this without a single bit of moisture. it hasn't rained or showed in a few weeks to a month now and the climate is quite warm. these aren't a suitable mushroom growing environment. I don't know how they grew, honestly. there's no way they should have been able to grow, I assure you.
+
+it's a funny sign for me though, so I guess that solves the question I had... I'm going to try and see if I can grow a bunch more, and also eat the ones I have, hopefully accelerating this thing tremendously :)
+
+sweet.
+
 # the end
 
 ### 7 years of tribulation (continued)

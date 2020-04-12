@@ -174,7 +174,7 @@ it seems like to me like there's this constant passing of the baton between thot
 
 so many sidebars... I know, it's just hard to express (and I did a very poor job), the incredible expansion of my consciousness and perceived to be very bizarre and other-worldly (non-physical) influence on my experience... energy is rising really really *REALLY* fast.
 
-whew... oops, I actually missed a key compoenent here: the idea is that I don't really want to begin the whole girls thing until I'm actually connected, and so the idea would be, that by eating a massive dose of mushrooms, I would push the DMT levels up in my brain to such a high amount so rapidly, it would be like the water pressure building upon a dam in a flood situation, such that the increased pressure would surpass the ability for the dam to contain the water, causing the dam to break, and an irreversable result would happen.
+whew... so, I actually missed the key compoenent here: the idea is that I don't really want to begin the whole girls thing until I'm actually connected, and so the idea would be, that by eating a massive dose of mushrooms, I would push the DMT levels up in my brain to such a high amount so rapidly, it would be like the water pressure building upon a dam in a flood situation, such that the increased pressure would surpass the ability for the dam to contain the water, causing the dam to break, and an irreversable result would happen.
 
 ### thoughts on meditation (09:49)
 
