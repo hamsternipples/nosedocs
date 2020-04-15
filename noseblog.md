@@ -10059,6 +10059,41 @@ it's a funny sign for me though, so I guess that solves the question I had... I'
 
 sweet.
 
+
+### 2020-04-15 14:11 - things might take a while...
+
+this afternoon I went out to go take a walk and one of the things that I felt like I was feeling was the reaction that some girls should have some sort of priority. a little bit ago (I can't remember how long ago it was now), I felt like one of the responses to my previous questions about "go big or go home", it seemed to me like some sort of plans were beginning to be made.
+
+I didn't really mind at first, because I don't really have much in the way of plans at all. my *only* objective is to get connected beforehand. there's no other real prerequisite than that.
+
+so, with that in mind, when there were ideas coming into my head about some with more priority than others, I didn't really feel much resistance, and I went with it for a bit, but it became obvious that there would be quite a few with "priority" -- and I left it at that. I don't really think it's much of a thing to worry about, because I don't really think I'll be getting connected anytime soon.
+
+if I had to guess, I would guess a year or so from now. however, as with all my time estimates, a good rule is to double it -- so two years or so, I guess. I really can't see that far ahead, and I don't really want to try, either. when I look out, there still seems to be so much to accomplish that I just don't see it happening anytime soon.
+
+however, I will say there is one factor that may play a role here, and it's that I've been noticing that nosebook has been making a whole lot more mistakes recently. they simply don't have the iron grip on my energetic output like they used to, and I've had more and more frequent instances where I become conscious in dreams or whatever that they don't want me to have happen. so who knows, there... but even still, their rate of making mistakes isn't accelerating at such a rate where I could possibly believe they could make a huge mistake anytime soon, and certainly not in the next half of a year or so.
+
+I do know that this summer will be a *huge* expansion of my consiousness, and I'm really not worried about it. I'm really enjoying where I'm at right now and the programming that I'm doing is quite a lot of fun, actually. I really don't feel like there's any need to try and rush anything.
+
+after my last big programming stint, I slept like 20 hours straight, pretty much -- and one of the main influences upon my consciousness was initiated by this video @[youtube](https://www.youtube.com/watch?v=CameSDK-2m8), because it's the line where jesus (christ superstar) says, "whyyyyyyy must I die" -- which immediately puts in my brain the picture that terence mckenna puts with his quantum soliton of improbability -- where two timelines are created, one where jesus dies, and one where ho goes on to be the influence that propells humankind into a sort of super future of incredible growth and exapansion, while the timeline where he dies, things kind of go downhill.
+
+I beiieve I'm in a bit of a similar situation, where two major timelines are being created. I have no idea what timeline my perception is on, and it doesn't really matter to me. the feeling that I kept getting when I would wake up during those long hours of sleep is that the manifestation (of the girls) simply woudln't take place.
+
+you know, that doesn't really bother me all that much. abraham always says to, "not need the manifestation" -- and I've totally gotten there. if it happens, great, but it if it also doesn't happen, to be quite honest, it would be a bit of a relief for me. I honestly don't really have any confidence in things working out very well, unless I'm connected and can stay that way.
+
+it may be a while. don't let it bother you. try to find yourself, like me where you're so much more enjoying the absence of the manifestation.
+
+then, while the manifestation still feels overwhelming, that just means that it's bigger still than you're allowing right now, so then just enjoy the expansion...
+
+this is what I mean by I'm sure that there is still quite a bit more expansion for me to go.
+
+---
+
+putting that in practical terms, I would have to imagine that in order for this to work out, I have to first get connceted (a while away), then I think it would be cool (if not almost necessary) if I actually have this website running and going as well, then I think it would be a much smoother transition. finally, if that's also the case, getting a round of finance for the "website" also would mean we could do the whole thing, without a single bit of nosebook's "help" -- forgive me, but I don't find them very helpful, if you know what I mean. I would really enjoy if we could finance the whole thing ourselves, and the girls are all getting a piece of the thing we're creating. it's an idea that has come up a few times while meditating now, and I know (for sure) that nosebook isn't putting that thought there.
+
+maybe we want to hold out a bit until we can do the whole thing without their "help"...
+
+maybe that's what's taking so long. if I think about it from a culmination of multiple different timelines, point of view, it means that all of our "future" selves are continuing to push us further and further down the timeline toward something all of us are collectively wanting to manifest. it may be this, or it may be something more... I don't know yet. we'll have to see.
+
 # the end
 
 ### 7 years of tribulation (continued)
