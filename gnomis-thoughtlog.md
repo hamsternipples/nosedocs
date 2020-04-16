@@ -319,3 +319,42 @@ this whole entry didn't at all come out the way I wanted it to. I wanted it to g
 [1]: for example, I saw a kid cross through the front yard of the house on 164 massari, and while that is the most optimal route, I don't believe that walking diagnoally through their front yard would be very considerate.
 
 [2]: not totally, just go with it for a bit.. it's possible to have all three, but unless you're in full alignment with source all the time you won't have it
+
+
+### 2020-04-16 08:31 - some thoughts on some reactions
+
+yesterday I menioned in the noseblog, how I thought perhaps one of the goals would be to actually finance this ourselves, instead of relying on nosebook to do everything. there are a lot of advantages to doing it ourselves, such as we'll be able to get the house(s) that we want, the locations that we want and do things the way we see fit. it still spawned a few reactions that I thought were important to respond to.
+
+#### does that mean we'll be work focused? / does that mean that I will be required to work?
+
+one of the things that impacted me about pastor jim(?) of FWC was his empasis on how he grew up having to "work" for everything. I also had a similar upbringing, and I think a good work-ethic is important. work is also a great way to spend time before becoming creative.
+
+anyway, I have a different way of looking at it. first, I cannot really work on something I do not feel comfortable with or have the inspiration to do. traditionally, I have never really fit into the grunt labour category of things. I always thought it was because I was a bit more creative than those grunt workers, but later with time I found out, it was that I couldn't force myself to do something I didn't *feel* like doing -- and that's a good thing once you know how to use it to your advantage. people who don't understand it may call it "entitlement" or something like that, but once you know that you're motivated by feeling (or inspiration), then it all becomes easy.
+
+as such, I do not think that anyone should be required to work -- AT ALL. my experience tells me that I simply cannot get to feeling like I want to do something when someone is requiring or forcing something out of me. I have found that the best way to do get that feeling is to simply not do anything. work on how I feel, and then *slowly* begin the processo of turning that feeling into productivity/creativity.
+
+you will noitice that kids generally are really helpful by nature. they want to help out, unless it's not something they're interested in doing. they also gravitate naturally toward the things that interest them.
+
+---
+
+next about the work focus: I've found out that there are essentially two modes of work for me: creation and maintenance/perfection. ok I'll actually change that to three modes, now that I think about it. the maintenance bit is actually very not very time intensive. I found it takes up only about 5-10% of the time, and most of that time is mostly spent in "emergency" situations of a failing component. the perfection bit is usually kinda fun work. it's tighnening up the loose ends and squeezing out the last drops of optimisation.
+
+however, where I really enjoy spending my time is in the creative part. however, I simply am not very creative unless I feel good. I personally think that all people enjoy all of these tasks to some extent, but some more than others. my least favourite is maintenance, but for others, knowing that the thing is operating smoothly and everthing is organised and in its spot, gives them a good feeling.
+
+lastly, I guess the fourth cantegory I suppose would be outreach, that is publicity, support, sales and marketing. again, not my favourite thing at all. like tesla, I always believed that the product should speak for itself. however, I have come to realise that these things are also quite important, too. these are what builds a strong community around the product and makes it approachable and/or easier to interact with.
+
+of all of these things, I would say that only the creation and outreach bits are the ones that consume the most time. the creative bit is usually most productive when done in isolation, and the outreach bit is never done in isolation. so, there's stuff for everyone.
+
+#### am I (kenny) trying to make money off of this / these girls?
+
+personally I don't want money. if I were to make money, I would just reinvest it into the endeavour anyway. you have to see that from my perspective, money seems irrevant. I'm going to be flying around creating things all over the world with a bunch of girls. my credentials will more than surpass my ability to explain them in words right now. I'll be plenty busy with projucts to have need for money. people with money will more than likely be throwing money at me and what we're doing.
+
+money (in the way that most people look at it) is just a way to purchase survivability, and then once that's covered, it becomes a way to purchase a good feeling (or so you think). the other thing to do with it is fund creation or destruction.
+
+the only thing I would use money for is to purchase some mind expanding drugs, but I'll likely have access to them anyway, and and I continue to go up, they'll have less and less effect, so it won't matter there -- which leaves funding creation. that's the goal of this whole thing. I'm sure we'll be more than busy enough creatively to need to worry about money.
+
+to kind of throw a bit of a curveball here, I think this question is actually largely irrelevant, because I (and this is probably a pretty bold claim), would imagine that the "economy" as we presently know it won't exist in the same way at all, and likely our effect on what we perceive as "value" will change pretty greatly.
+
+I would be more shared of the tremendous impact we'll have on "traditional economics" and the power structures derived from it.
+
+to be continued..
