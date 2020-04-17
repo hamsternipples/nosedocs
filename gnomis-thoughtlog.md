@@ -360,13 +360,15 @@ I would be more shared of the tremendous impact we'll have on "traditional econo
 
 ### 2020-04-17 11:06 - some thoughts on raising children
 
-one of the things that I don't think I made as clear as I wanted to in the last entry was the importance of doing nothing, and not trying to force things on to kids, letting thec gravitate naturally.
+one of the things that I don't think I made as clear as I wanted to in the last entry was the importance of doing nothing, waiting for the inspiration to come, achieving the feeling first, and not trying to force things. kids, you will notice already gravitate naturally toward the things that they want. it's only some sort of pushing or trying o control that puts them otherwise.
 
 so, let me just give an idea of how I would "raise" a little boy. I say boy so that it would be easier for me to identify with him, and also I think boys are much more difficult than girls. I don't really suppose I would treat a girl much more different, at all.
 
 as he grew up, I would pay attention to the things that he notices and observes, because these are indicators of what's interesting to him. he would never be required to do any work at all, but frequently I would ask him if he wants to help out. probably at around 3-4, I would begin offering money in exchange for his efforts, and teaching him to save up (and consequently think and dream about while he sttill doesn't have enough money), his next big purchase. this, I believe is a very powerful tool in teaching kids about desire and how, it's always possible, just not at this "red hot moment". I would never tell him, no he cannot have something, just help him to find more odd-jobs he can do to earn the money to make the purchase.
 
 the next thing I would be most careful to teach is to -- well, similar to how I am with jaron in a lot of ways. most of our interaction woudld be joking or playful. I don't want to try and give off this idea that being older is to somehow attain the presence of seriousness. I certainly would do things for him, but I wouldn't be trying to do things for him in a way where he begins to feel some sort of need or dependency on me to get something done. in fact, if you have paid attention to all of the people that I have worked with, I (almost) always am giving explanations and ideas instead of commands. sometimes I get impatient with the other person and want to just go to the solution quickly myself, but I have learned in those situations, it's better to walk away and let them struggle instead of butting in and doing it for them.
+
+however, the most important thing that I always try and do is to work myself out of a job. for whatever reason, and I think it's that I so much enjoy people more when they're not dependent on me, that I always try and get them to be able to do it theirselves. the expression is, something about teaching someone to fish, rather than just giving them fish. this is why I like so much to explain things, to try and transmit the concept.
 
 my forms of explanation usually centre the focus of the matter on to how it feels. surely he will ask me about why some things (good and bad, but kids usually ask this question regarding the bad things) are happening to others -- to which I would point out consistiently the emotion state upon which the action is performed.
 
