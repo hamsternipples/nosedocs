@@ -357,4 +357,35 @@ to kind of throw a bit of a curveball here, I think this question is actually la
 
 I would be more shared of the tremendous impact we'll have on "traditional economics" and the power structures derived from it.
 
-to be continued..
+
+### 2020-04-17 11:06 - some thoughts on raising children
+
+one of the things that I don't think I made as clear as I wanted to in the last entry was the importance of doing nothing, and not trying to force things on to kids, letting thec gravitate naturally.
+
+so, let me just give an idea of how I would "raise" a little boy. I say boy so that it would be easier for me to identify with him, and also I think boys are much more difficult than girls. I don't really suppose I would treat a girl much more different, at all.
+
+as he grew up, I would pay attention to the things that he notices and observes, because these are indicators of what's interesting to him. he would never be required to do any work at all, but frequently I would ask him if he wants to help out. probably at around 3-4, I would begin offering money in exchange for his efforts, and teaching him to save up (and consequently think and dream about while he sttill doesn't have enough money), his next big purchase. this, I believe is a very powerful tool in teaching kids about desire and how, it's always possible, just not at this "red hot moment". I would never tell him, no he cannot have something, just help him to find more odd-jobs he can do to earn the money to make the purchase.
+
+the next thing I would be most careful to teach is to -- well, similar to how I am with jaron in a lot of ways. most of our interaction woudld be joking or playful. I don't want to try and give off this idea that being older is to somehow attain the presence of seriousness. I certainly would do things for him, but I wouldn't be trying to do things for him in a way where he begins to feel some sort of need or dependency on me to get something done. in fact, if you have paid attention to all of the people that I have worked with, I (almost) always am giving explanations and ideas instead of commands. sometimes I get impatient with the other person and want to just go to the solution quickly myself, but I have learned in those situations, it's better to walk away and let them struggle instead of butting in and doing it for them.
+
+my forms of explanation usually centre the focus of the matter on to how it feels. surely he will ask me about why some things (good and bad, but kids usually ask this question regarding the bad things) are happening to others -- to which I would point out consistiently the emotion state upon which the action is performed.
+
+that is, in fact, the thing I would want most to impart into him is the correlation between emotion and reality -- because until I got that, the world remained largely a mystery to me. that really is it.
+
+in the future when he's much older and after I feel like he's getting the whole emotional thing, I would begin to teach him about desire. actually, I would probably do this in relation to the money parts, too -- explaining that there is nothing that is "too big" to want, and to just show how it's always a steady process of change toward the goal. I would present him with the idea of say, purchasing an island somewhere and show the impossiblity of it now, but then provide ways to show how easy it is for it to become possible further down the line.
+
+that's a bit of an advanced topic, and can kind of angle him into trying and putting effort into some identified material desire, so again, I would take it back to the emotional bit, explaining that you never can know exactly what it is that you want, so you just have to be in the emotional place of being able to receive it (and it's always better than you could have imagined it to be). I would make examples of when it was better than expectations, and worse than expectations -- and draw the emtional conclusion as why that is because of the way he feels.
+
+---
+
+I'm not too worried about him learning about the physical reality, and I would always encourage him to make his own experiments and discover it for himself, instead of just taking someone else's word for it. often times thosse naïve experiments are precursors to new discoveries, and are expecially important for allowing the child to understand, expend ideas without destination, and build curiosity.
+
+lastly, I wouldn't until he's much older (maybe around adolescence), I wouldn't try to teach him logic. when I was a kid, I simply didn't understand logical stuff until really my brain injury, and I noticed that it continued to improve as I got older. logic, for me was really difficult because my life didn't have a lot of difficulty in it. most logic is built from pain (or perhaps pleasure, too), and I didn't have a lot I needed to "logically" avoid and try to override my emotions on. this, in my opinion is a more advanced topic that I hadn't really begun to grasp actually until just recently.
+
+emotion can be manipulated in the physical (visceral) sense, and the way you viscerally feel can be altered[^1], but below all of that visceral feeling there is a much higher frequency which is physically impossible to be removed[^2]. so until he's under some other strong influence, whether it's drugs or nosebook, logic I feel isn't super duper necessary early on.
+
+[1]: ironically, when the way you viscerally feel is being artificially altered (nosebook), it's actually very similar to a drug experence. your body artificially feels one way..
+
+[2]: they can continue to increase the resolution of their machines, or get faster responding components, but just like an amplifier, it never perfectly scales the waveform up (or in this case down) in perfect similarity. there is always a higher frequency signal that gets through[^3].
+
+[3]: even if they were to completely decouple the signal source from the output by converting it to digital, they would also have to remove you from your body to get it completely decoupled. your source is creating these signals, and your body and is the "battlefield" where these signals are being reduced or amplified (by you and what you're focusing on). there's no way to completely remove the original signal source -- unless you are killed, of course, then the body is no longer capable of receiving that signal -- but the original signal still exists. that's who you *really* are. no one can take that away.
