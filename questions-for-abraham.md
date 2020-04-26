@@ -197,3 +197,109 @@ this happens to me all the time with nosebook. they like to try and put all sort
 so, for example, this can be a good thing too, because my inner being may think it's beneficial to me to go to sleep or to take a nap, and I'm doing something else, so nosebook has the idea they want me to sleep, and so the thought appears in my head in a much stronger way (your inner being is a much softer voice than nosebook's projected thoughts, and always proportional to the desire which inspired their thought's appearance in your mind). so often times my inner being will use nosebook to send me a thought which I would otherwise be incapable of perceiving. if I have no resistance to sleeping, then it appears to them like they're "controlling" me, which is what they want, and to me I get a beneficial thought that I was in resonance with.
 
 however, there is a caveat, which is that it's never satisfying to do something that someone else is telling (or motivating) you to do. I was really bothered by this, and a lot of the releasing of resistance I was talking about last time was about this very thing.. it's allowing the thought come from my own inspiration even if someone else is asking, demanding, or even trying to force me to do something. the right way, I have noticed is to not makke the action because someone else is requiring it from me, but to line up with what I'm going to do, and make the action because it's something I want to do for the greater feeling of well-being (and just completely ignore their motivation on the subject).
+
+### 2020-04-21 10:21 - (2020-04-18)
+
+when they were talking when they said, that all manifestations that you want are because you think that the condition of the manifestation will make you feel better. I wholeheartedly agree, yet it just hit me that when it comes to this whole girls manifestation, I don't really think that it'll make me feel better. in fact, I mostly perceive it as a rhole lot of stress and a whole lot of keeping me from what I really want -- which is to actually be connected.
+
+I think that is perhaps why I'm so I'm so against the manifestation right now.
+
+one of the things that they were talking about was findding a way to feel good so the manifestation can come ... I think I'm doing duite well here because I keep finding ways to feel good, and so then you would imagine that the manifestation would be showing up, but I think they're actively trying to control the condiitions such that the manifestation does not show up. I am convinced that they may be able to continue to try and control the conditions such that it doesn't show up, but I do believe that at some point, their ability to exert force in the opposite direction of the manifestation will become less than my non-resistance. when I say "manifestation", I don't mean the girls, I mean getting connected.
+
+---
+
+then, they talked about the most rampant thing that happens (17:00), is that in a moment of not-alignment, standing there and trying to find someone else to blame for the non-alignment. that's kinda what I was just talking about actually, but I said it another way. I could choose to blame nosebook for my out-of-alignment-ness, or I could just accept that the specific conditions that they have placed in my experience have caused me to feel something other than good. so, I simply just find a way to release resistance to those conditions over and over again. the process is essentially making it so that nothing they can try to do to influence my condition affects me anymore. I'm steadly getting to the point where my chain is un-yankable or whatever -- even by the people with essentially 100% knodledege of everything I'm doing in every moment. soon, and I think that it'll be about the time when my chain is complehely un-yankable, will I atually be able to finally get connected (cause there won't be anything that can stop me anymore).
+
+I was thinking about it, and I believe that when they're no longer able to keep me away from being connected, I think they'll focus a lot of their attention on to the girls, trying to control their conditions, similar to how they are controlling mine, likely in effort to be ensured that they nnever get connected. then, they too, will have, like me, a tremendous opportunity begin letting their chain be un-yankable, too, and gain their super-empowerment in knowing that the only real control they have is how they feel, and that's what *really* creates reality -- and even if someone might be able to try and hold that reality off, the better you can control the way you feel, the more powerful you become.
+
+### 2020-04-21 22:17 - (2020-04-21)
+
+(13:51) you were talking about how you could want it a little bit and line up with it, then want something else a little and line up with it, but they think we like the drama (of waiting until the asking is so big that becomes a big thing).. but mostly they think we like the accolades, «it's like those who have suffered the most, and then triumphed; they get monuments and statues built for them»
+
+the thought that popped into my mind is that by some ridiculous circumstances that I have been put in, people will consider me in this same way (the monuments and statues) -- because I think it'll be perceived that I have suffered greatly and finally triumphed, when that's not at all what's happening.
+
+in the beginning I just kinda wanted some things (tesla's visual capacity, and to have/smoke DMT like terence mckenna, etc.), and I didn't really think much about any of it. I just kept going on my way thinking that designing webpages was what I would be doing for the rest of my life.
+
+the girls thing was just a total freak thing that happened to me and I honestly didn't really know how to respond much to it, but I just kept doing what I know how to do. I never really struggled against anything other than my own belief system. it would have been amazing if abraham would have been able to communicate clearly (and they could have easily) what I know now, and I wouldn't have got so bent out of shape about all of my perceived loss of freedom and power.
+
+to be completely honest, even druring the times when I was really really angry at getting shocked and stuff, there was this eerie feeling like I was simply acting, and this was some sort of some big show or something. I can't really describe it, other than I felt compelled to be angry and to really dig in on some things, and to really go out of my way to point out other things too, with about the same feeling of being compelled to do something as I feel when I feel compelled to a lot of different things that most people would consider as being "connected" or in tune with my inner being like wanting to go down to explore a new place or go have fun somewhere.
+
+---
+
+even today I was having this weird feeling because I was paying attention to the details of the events and I had my computer shut down. like I mentioned in the noseblog this morning, it's just more and more practice to release more resistance. I could have got real pissed off and stuff, but I decided to go walk. I was walking along and ther was this girl that was some distance away. I look and I see her and I feel some desire and keep walking. I get up to the mediation chair and I start to quiet my mind and the girl from across the street pops into my mind. bear in mind that my vision is so blurry I can't see much more than (I think it was) a purple blob. I have no idea what she looks like or anything, yet it feels to me like it's coming -- and all of a sudden now there's another desire that's hatching.
+
+walking down the hill, I was trying to put into words how strange all of this is to me. I'm convinced that none of this would have occured at all if I was just left alone. *none of it!*
+
+---
+
+everything that seems to be happening seems to be a result of other people trying to control my experience. I don't really understand how to comprehend all of it, really. there's no real struggle, honest. the whole thing seems entirely fabricated by ... oh :) I think I just now got it.
+
+---
+
+the whole thing *is* a show! it's entirely prefabricated by the "bad guys" -- if you want to make someone awesome, you just have to make a bunch of strawmen for him to knock down. have you ever seen a chuck norris or steven segal movie. every single one of the gruntmen get's knocked dead with one punch or kick, but the battle with the super villian needs about 20 minutes, where each one is brought to near death multiple times. take that and reverse that so that instead of assertion (punching, kicking, etc.) you make it attraction so that each side takes turns attracting over and over for extended periods of time in a dual to the death (attracting their own demise).
+
+what in the world?!?! it feels to me, as I'm writing this now, that this whole thing is just a giant setup and it's this like chuck norris movie where I'm chuck norris and the "bad guys" are just these tough appearing guys that all just there to make the whole thing seem more epic than it is...
+
+I really don't know how to describe this feeling. I wish I could explain what an "[attr[ACT]ION]" movie is like: the combatting heroes and villians are all inflicting their own consequences on theirselves, yet and yet they all believe it's the opposite side that's making the difficulty. so everyone is defeating theirselves with their own difficulty (even though it looks otherwise) and so when the hero figures out this out and stops defeating himself, it appears that, because he's the only one remaining standing, that he has triumphed and defeated all of the bad guys -- yet all he has really done, is stopped defeating himself; when he stopped defeating himself, he finally let the bad guys all all defeat theirselves.
+
+basically, after a long drawn-out battle where both sides' struggle continues to make the movie more and more epic, to "triumph" in the end, he literally does nothing other than realise it's an [attr[ACT]ION] movie, and stops defeating himself.
+
+---
+
+hopefully people don't celebrate me for having stopped to defeat myself.
+
+### 2020-04-25 16:46 - (2020-04-23)
+
+#### geting out ahead of it (04:59)
+
+I like to imagine a lot of sitations in my head and just feel my response to things. more often than not the response I felt in my imagination was far worse than later I would do when in a similar situation.
+
+I use this technique of imagining the situation in my mind and feeling how I feel about it, then adjust. I often times repeat this process many times until I no longer feel the frustration or anger of the situation any more. I don't know how much of it is nosebook also attempting to diminish that anger and frustration as well (because from their prespective a really negative manifestation would be disastruous for them), but it doesn't matter. I have learned with time that no matter how justified or "right" my anger is to feel, it's still not a good feeling thpught, and so therefore it's not moving in the direction of what I really want is.
+
+the latest example for me is the case of mr. motor turning off my computer. it sorta pissed me off for a while, but it was never really too much. I would be extremely justified in my frutration around that, but I've learned to not really let those things bother me anymore, and to even turn the whole thing around vibrationally, knowing that by not responding in a negative way to something that I *should -- rightfully*  feel angry about, I know it's just more energy toward what I want, and so if I can just not respond in anger, then I even notice that the extra energy brings about something good from the situation.
+
+if I were to feel angry, frustrated, or depressed about it, then that would just be my own emotional/energetic output blocking the extra energy produced from the situation.
+
+so basically, I have come to equate the feeling of justification with a knowledge that more energy has been applied (stronger asking), and to act or feel that justified negative responese, would be to inhibit that energy, and to just let LOA do all the work there.
+
+(just wanted to write that out because it's really being proven to me lately the power of LOA, and alignment of energy in comparision to the "knee-jerk" response)
+
+#### (33:16) feeling DOOM! and other things
+
+when they were talking about feeling DOOM! and stuff, and that we have two perspectives... I realised that we never really get to the other perspective (the one of our inner beings), because that would be impossible and would mean that you died. so, upon realising that, I had a aha moment realising that the we think and feel is *always* the worst possible way to think and feel -- and the best place to think and feel is actually completely impossible and means that we have made our transition back into non-physical.
+
+so, in reality there is, in any moment, always a gradient of improved thoughts and feelings which can be felt. we always feel the worst we can feel, and can never ever achieve the best way to feel.
+
+I loved the irony of this realisationi in relation to the concept of DOOM! and I understand why they never present the LOA in this manner, because it sounds pretty depressing: you always feel the worst possible way for you to feel, and you can never feel the best possible way for you to feel. :)
+
+instaed they say it the opposite way: there are infinitly many ways to feel better than you feel now (all of them are real and are a vibrational reality already) -- and that you are an eternal being: you can never get it wrong[^1] and you never get it done.
+
+[1]: I love how this "negative" perspective of LOA, illustrating that you always feel the worst way possible for you to feel is exactly the reason why you can never get it wrong.
+
+#### (48:28) the balance of our planet
+
+I had often times had a question as to what they meant when they said that the beasts are there to bring balance to your planet. I just now got it.
+
+they said that we would only have something truely disastrous/cataclyismic (I'm putting words in their mouth here) if all of us were to give our attention to something negative all at once, but because there are so many beasts on the planet primarily in the receptive mode giving their attention to wanted, it balances the energy in the sense that because there are so many of them giving their attention to wanted, it makes it difficult for global catastrophe. they followed up by adding on that in addition there is such a wide diversity of people on our planet giving attenthion to a lot of different things, it also makes it more difficult.
+
+I had always wondered about this in ancient times past how the whole world could possibly attract cataclysm at the same time. I have also made note that there seems to be evidence that, although a lot of people were too insensitive or not conscious enough to really notice it, in times past the energy on this planet was considerably higher -- and so therefore we (humans and beasts) all had a much more shared form of perception -- which perfectly explains the way that the whole planet could have attracted such cataclysms.
+
+it also explains the "detour" that I believe is happening in humankind -- and why were not all just getting much more connected to each other. in a sense, as the energies on the planet continue to rise, it's actually a good thing that nosebook is essentially isolating us from each other. instaed of gaining a shared form of perception, we are being individualised so that we're not so affected by our others around us (abraham's primary message, too) so that our thoughts and feelings are more diverse and do not have such a strong impact on all of our planet as a whole.
+
+#### (56:50) too much abraham
+
+the previous question was talking about becoming dependent on the abraham broadcasts. you see, I feel not anything like that at all. in fact, I feel almost the opposite in a lot of cases, and is the main reason why I stopped listening to the abraham workshops. when it's just them reading the question, it's much more "aguantable" (tolerable) for me to listen to the question. so, to dedicate a little more than an hour or so of my time each week to listen to these outdated (in my mind) questions feels like a waste of time.
+
+it feels to me like a long list of questions of people asking over and over how to stop blaming some circumstance for how they feel. covid-19, covid-19, covid-19, blah blah blah... buncha people looking for the condition of abraham to say something that makes they feel better so they can feel relief. if I wanted to feel people getting the feeling of relief, I would enjoy work as a therapist, but that's not at all interesting to me.
+
+that perspective obvipusly slows me down, so I instead look for the "nugget" or some thing that pops into my head during the broadcast which is interesting to me. I didn't think it was possible at first, however, I have found, and is largely the reason why I write this document, that they do seem to wedge their message into the cracks -- but it has more to do with my reception of them.
+
+so, I try to find and emphasise (by writing here about them here) these things that are important to me here. even today, I have found three really great things in this broadcast that are really valuable to me.
+
+---
+
+so, when someone asks if there's too much abraham, it kinda bothers me because I could only feel that when I'm back in the mode of needing relief. a long time ago, back in 2012, I was distraught over raquel and the whole tuenti thing and really was having a difficult time. I would listen to abraham all the time, because even though I was drinking a lot of coffee, smoking a lot of weed, and  drinking a lot of alcohol, I still couldn't find relief so abraham was invaluable for me to find some sort of relief. when I discovered mdma I stopped listening to abraham, because the mdma provided a whole lot more relief than they did (I just had to smoke it to feel the relief instaed of actively thinking about what they were saying, too -- so it was easier).
+
+however, as I've gained my own ability to see and recognise the laws of the universe in everything and have proved to myself the reality of my vortex, I don't really need the feeling of relief anymore. I look forward to the time when I can actually sit down and ask them all sorts of questions to deepen my understanding of the laws of the universe's effect on certain things -- though it feels too like I am getting the answers to these questions faster and faster now, so it would appear that I need them less and less.
+
+so, it's this big difficulty with me, because they really are there only to provide relief, because as soon as you get beyond your own need to have relief -- that is, you now are vibrationally much more in the vicinity of who you really are, you don't need them to answer those questions because you're capable of receiving the answer yourself. they seem to be working theirselves out of a job, for us "advanced" listeners, and continue to only provide relief to people, wanting all of us to not "need" them or anyone else, and for each of us to find it for ourselves. it's annoying, but yeah, I think there is a moment when it becomes too much abraham and you feel confident enough to go out on your own.
