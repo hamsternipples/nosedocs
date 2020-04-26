@@ -10094,6 +10094,45 @@ maybe we want to hold out a bit until we can do the whole thing without their "h
 
 maybe that's what's taking so long. if I think about it from a culmination of multiple different timelines, point of view, it means that all of our "future" selves are continuing to push us further and further down the timeline toward something all of us are collectively wanting to manifest. it may be this, or it may be something more... I don't know yet. we'll have to see.
 
+
+### 2020-04-26 12:37 - appreciating the contrast
+
+scruple: a feeling of doubt or hesitation with regard to the morality or propriety of a course of action.
+
+jaron just got a new board game called "scruple" and I was looking through it because I found it fascinating. there are these dilemma cards which you're supposed to ask another person and then the person is supposed to lie about their response to the dilemma or to tell the truth. your goal is to get rid of your dilemma cards to win the game. that style of play makes your answers more loose in the sense that you never have to reveal how you really feel about the dilemma.
+
+I find the dilemmas to be quite a funny thing because thanks to LOA I essentially don't need to worry about the majority of them showing up in my life, so I'm pretty much saved from having these dilemmas come up in real life. I realised then that by reading and focusing on these dilemmas, I am actually attracting these sorts of things into my experience much more than I would if I just lived life normally.
+
+I started to read them, and I kinda got addicted to answering these questions. they revealed to me a whole lot that I hadn't really paid much attention to previously.
+
+#### I have an extremely low opinion of law enforcement
+
+in quite a few questions I would leave the person stranded or, simply not get involved just to avoid having to spend time in a police station or givng a statement...
+
+in my experience, the police have no interest in actually providing any form of justice (I mean the system as a whole; not the individual police officers, which I am certain because I've met quite a few which are actually really decent dudes). actually to give a great example of this, when I gave my money to a cocked out guy the police that interacted with me were quite great guys. we chatted for many hours in the car on the ride up to san sebastian. I have no doubt that there are tons of great police officers; that's not my point.
+
+my point is that the system in which they operate is terrible. when I had my laptop stolen, they knew exactly the guy who did it, and I'm sure they recovered the laptop from him -- however, because they had to keep their secrecy that they could not see through my eyes, I never got my laptop back. it's fine because I still had enough money to buy another one, but even still later when I didn't have money, their secret was still far more important than my well-being. agsin, it's fine because they're not the source of my well-being -- and just when I needed it marcos totally came through for me.
+
+my point is, they aren't the police that you see on tv. that's a totally idealised (fictional) version that is almost entirely created in the writer's head to make an entertaining program which appeals to the audience's sense of justice. it has no basis on reality.
+
+I've sat in the police station for probably more than 20 hours or more giving reports and stuff, and there has never been anything returned to me. their entire goal right now is to make sure that I *don't* have any money. I don't ever imagine that they will ever wish that I have any success either and probably perceive me as a huge liability, even though I am the reason why they have all of you in their network and tracked so well. they make who knows how much money off of me, and there's no way I'll ever see any part of it -- which again, is quite fine because they *arn't* the source of my well-being.
+
+#### I will avoid helping someone or ensuring some sort of justice to avoid interacting with law enforcement
+
+once again, for a lot of the same reasons, and I've always kinda been this way, but knowing what I know now about everyting being attraction, I simply do not want to get involved in something like that. if I am witness to seeing something, then I have to wonder what it is in my vibration that is attracting an experince such as that. I simply do not want to help people because the penalty for it is thrice:
+
+1. focusing my attention on the problem attracts more of it into my own experience.
+2. the other person has attracted the situation in the first place, and there's nothing that I can do about that.
+3. I attracted witnessing the situation, so that is illicitiing a response from me. in those cases there is something then that I can do (or else it wouldn't have happened in my experience, because no longer do I have the vibration of a helpless bystander of some attrocity)
+
+#### most of the situations I actually would react in response to what I feel
+
+I began to notice that a lot of the situations, I can't just hear the "hechos" (deeds/actions) and make an immediate decision as to how to respond. I instinctually follow how I feel now and in a quite a few (most) of the cases, I don't think I would do the response I was asked about, but do something entirely different. meaning, I don't think they offered the best response, and were forcing me to say yes or no I would make action on what I think is a mediocre response.
+
+---
+
+the game is a long slog of trying to solve something with limp action, when energetically it makes no real sense at all. the game kind of inspires me a bit to reframe the ideas a bit and to take a more feeling approach to some of the questions. I'll experiment with the idea on jaron next breakfast and see how it goes. until then, enjoy reacting to, and the resulting contrast provided by of some of my extreme responses :)
+
 # the end
 
 ### 7 years of tribulation (continued)
