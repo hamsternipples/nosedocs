@@ -303,3 +303,33 @@ so, when someone asks if there's too much abraham, it kinda bothers me because I
 however, as I've gained my own ability to see and recognise the laws of the universe in everything and have proved to myself the reality of my vortex, I don't really need the feeling of relief anymore. I look forward to the time when I can actually sit down and ask them all sorts of questions to deepen my understanding of the laws of the universe's effect on certain things -- though it feels too like I am getting the answers to these questions faster and faster now, so it would appear that I need them less and less.
 
 so, it's this big difficulty with me, because they really are there only to provide relief, because as soon as you get beyond your own need to have relief -- that is, you now are vibrationally much more in the vicinity of who you really are, you don't need them to answer those questions because you're capable of receiving the answer yourself. they seem to be working theirselves out of a job, for us "advanced" listeners, and continue to only provide relief to people, wanting all of us to not "need" them or anyone else, and for each of us to find it for ourselves. it's annoying, but yeah, I think there is a moment when it becomes too much abraham and you feel confident enough to go out on your own.
+
+### 2020-04-26 03:27 - (2020-04-25)
+
+#### (45:52) any taking score is sorta too soon
+
+when I was younger, I often heard the fable(?) "don't count your chickens before they hatch" -- and I noticed that it seemed to have some sort of relevance in my life. it did seem that when I would start to believe (or rather "take score") of the what the manifestation appeared to be, before it manifested, then it seemed to not quite happen as I expected.
+
+I noticed this most often when I was playing games. I would think to myself, "I'm going to win", or "I'm going to be top on the scoreboard" or I'll have whatever amazing score.
+
+my mom always told me also when I was younger, "pride comes before a fall" -- which is how I came to understand how this anomaly seemed to work. I just figured that my "taking score too soon" was actually pride or haughtyness -- and that's why it didn't work out as I expected..
+
+there was another thing that I never really understood as a kid either because (again using the example of playing games), sometimes I just *knew* that I was going to win or get some amazing score -- and I did, but other times it felt as if I was looking at the present condition and extrapolating or prejecting into the future what my score would be (given my progress), and in those cases, it seemed that the moment that I made that projection, my preformance seemed to be reduced, and I didn't get what was expected. this always bothered me, so it kinda made two questions in me here... but first...
+
+so, when I take score too soon, it felt like I was amping up my belief in some expected outcome -- an expectation. however, an expectation is a belief and a desire, so that must mean that I didn't really believe it because the desire wouldn't have changed it. that's the problem.
+
+I just remembered another thing that I know is that talking about something before it has manifest, can abort the manifesation if you're not fully lined up with it because it intruduces the vibration of the hearer of those thoughts into the mix.
+
+so, what I postulate to have happened often when I would proclaim victory before it happened, is I would send out a thought vibration, and even though those others were playing counter-strike in some place quite a distance from me, they vibrationally would feel their defeat, it would amp up their desire to win which would trump my fragile belief based on a projection or extrapolation?
+
+is that what happened? also, is that why it's never a good idea to take score too soon? it seems like someone who has a conflicting desire with my own, especially that we live in a place where there is a lot of perceived competition, someone's perspective of my belief in a manifestation, could trigger an increase in their own desire that I don't have the manifestation (because of the perceived competition), and therefore trump my manifestation.
+
+it seems like that's quite possible. even if they were able to trump my manifestation with their desire, it seems like they would walk away with the manifestation they wanted (in this case for me not to win, or to win theirselves), but I for sure walk away with stronger desire, and them with less. it seems like I won energetically, even when I didn't win the physical game?
+
+I know there's no energetic winning. I also know there's no energetic competition or comparing either. I'm mainly just trying to ask: do I walk away with more energy by "aborting" the manifestation?
+
+---
+
+taking score after the manifestation also seems to put a negative spin on things, too which again I equated to the pride before a fall thing. as a result I became less and less competitive. so, I think taking score in any way is about some sort of comparison to others or competition, so I am much more often in a state of appreciation about the things that have manifest -- and while I'm writing this now, I ignoring the mechanics of all of the details I was talking about earlier, instead if I were to appreciate my performance instaed of project it into the future, it seems like I wouldn't experience the degerdation of performance. in addition, even if it were the case that someone's desire for my anti-manifestation were to be boosted, they cannot overpower pure appreciation.
+
+so, then I have another question which is that nevermind... I already answered it. it's appreciation that I'm looking for :) I do wonder about the mechanics though.. that stuff interests me because what if, for example, I wanted to purposefully sabotage myself and abort the manifestation on purpose for a for some large period of time -- then, when I wanted to, I could just turn to appreciation when I thought the manifestation was big enough -- or something like that :D
