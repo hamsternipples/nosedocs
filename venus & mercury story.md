@@ -82,4 +82,7 @@ seems, we're approaching another 7th ray. I do remember the sirians said we're g
 
 ---
 
-the other problem with the thory I can't remember now. I'll add it when I remember it. it had to do with venus' capture timeline 
+the other problem with the thory I can't remember now. I'll add it when I remember it. it had to do with venus' capture timeline
+
+reference to the three orbits:
+http://grahamhancock.com/phorum/read.php?1,47200,47200
