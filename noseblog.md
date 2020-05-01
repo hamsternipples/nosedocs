@@ -10133,6 +10133,27 @@ I began to notice that a lot of the situations, I can't just hear the "hechos" (
 
 the game is a long slog of trying to solve something with limp action, when energetically it makes no real sense at all. the game kind of inspires me a bit to reframe the ideas a bit and to take a more feeling approach to some of the questions. I'll experiment with the idea on jaron next breakfast and see how it goes. until then, enjoy reacting to, and the resulting contrast provided by of some of my extreme responses :)
 
+
+### 2020-05-01 07:38 - bad feeling reaction?
+
+last night I was walking out to the field and I had this really good feeling thing pop into my head because I was noticing as I was star-watching last night that it seemed like the difference between "how real" the manifestation of the girls thing was at the beginning of the night and then, when I was walking out (~3:30), and I was really feeling like it was all kinda falling into place, and everyting was good.
+
+the thought was was coming to me was how much I just didn't need to try and force something, make it happen or even effort things into place. you see, I had just been having the thought on my mind about the whole computer shutting down thing, and I was thinking also about how I took a detour trying to get my database working the hard way, yet instead I have since decided that I'll just force myself to learn ecto, even though it appeared to me super complicated at first.
+
+anyway, so I was thinking about how I was going to try and effort the database into place and try real hard to get it all ready. when I was walking out there, I had this great feeling that even though it appears like the whole computer shutting down thing was a loss of time, it is more energy added into the equation, and there are some positive aspects to it too, most namely it's great practice for me even more to get better at getting into the "zone". I can do now in just a few hours what used to take me perhaps days or weeks, previously. it's also improving my capacity to hold the concept in my head, even through an interruption (and I'm sure there will be interruptions with so many different girls), so it's kinda ok -- actually.
+
+---
+
+anyway, so as I continued to watch stars, I noticed a lowering down of feeling, and I'm pretty sure it was various reactions in response to my monologue last night about not needing to worry about the timing. I (probably foolishly) gave an example of what I thought was the *worst case* scenario, which I believed with my current progress, I could pretty much guarantee that I'll be pretty well connected by the end of the year.
+
+I don't really know how it'll happen. I don't know if just at some point I'll surpass their ability to contain the energy in my body and it'll be like an avalanche, or if -- like esther -- source will just kinda take over and nuetralise their neutralisation. I don't know. I tend to think and acually believe that it'll be more of the first than the second. perhaps a combination of the two when all of the moving parts are in place... I really don't know.
+
+but, that's what I was saying last night -- it just gives me the feeling of so much freedom to know that I don't need to worry about any of it at all. I just need to keep following my good-feeling inspiration and that's it :)
+
+so, I guess, if my monologue made you feel bad in some way[^1], just know that your inner being isn't looking at it the same way you are. it felt good to me and I'm certain that everything is fine. I promise.
+
+[^1]: there was a whole lot of "he's going to drag this out forever" or "this is going to take foreever" -- and another one that had to do with coronavirus that I didn't understand, but I didn't care to investigate further, either.
+
 # the end
 
 ### 7 years of tribulation (continued)
