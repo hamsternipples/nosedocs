@@ -391,3 +391,37 @@ emotion can be manipulated in the physical (visceral) sense, and the way you vis
 [2]: they can continue to increase the resolution of their machines, or get faster responding components, but just like an amplifier, it never perfectly scales the waveform up (or in this case down) in perfect similarity. there is always a higher frequency signal that gets through[^3].
 
 [3]: even if they were to completely decouple the signal source from the output by converting it to digital, they would also have to remove you from your body to get it completely decoupled. your source is creating these signals, and your body and is the "battlefield" where these signals are being reduced or amplified (by you and what you're focusing on). there's no way to completely remove the original signal source -- unless you are killed, of course, then the body is no longer capable of receiving that signal -- but the original signal still exists. that's who you *really* are. no one can take that away.
+
+### 2020-05-01 14:14 - a possible implementation setup (& more)
+
+as I was laying down to sleep just now I wads trying to think about the different ways that this could possibly work, because there are quite a few at this point and there may be more even still... anyway, I was thinking about how important it will be to begin getting babies as soon as possible. fortunately, there have been various offers for the participaion of children that are not yet even born, and probably some are very young, so that means that already childcare will be on the list of things to do...
+
+I was then thinking about how it would probably work out, and to some degree, I was thinking that as the baby boys begin to be born, the different girls that are wanting one of the boys (one at a time at first, I suppose) to be the one that they select to be their --- ugh, for lack of a better word, boytoy. since the girls picking their boytoy at their age, the boys will be relatively similar in age. it seemed to me that girls that want to pick out their choice should be able to do it as young as they want to.
+
+this creates kind of an interesting dyamic that was the whole reason for writing this, because the boy would grow up essentially right along with the girl -- I mean, she wouldn't be really all that much older than him. cause think about it: let's say she selects when she's 5; when they're in their 20's, he'll be 20 and she 25 -- or perhaps for the older ones, maybe she'll be 30 and he'll be 20.
+
+it's a really interesting idea, because I would imagine that the girls that want to do this, will probably "attach" quite well to these boys. I have no idea what the boys will be like, but if they're anything like me, they'll find the companionship quite enjoyable. I remember thinking to myself when I was younger that I really wished that I could have a childhood girlfriend that was (I suppose) older than me, that could take me places and stuff. I didn't really want a mother, but more of a partner.
+
+when I was growing up, because I helped mom a lot with chores around the house and the other kids, we were kinda like partners. I think that's why she let me have so much more freedom than the typical mother might.
+
+so, from th girls' perdspective, I would imagine that if I had this opportunity to nurture a boy since very young, I would give him all the opportunity that he could have, and raise him to also be someone that I adored -- and I imagine that this feeling is mutual, because giving someone opportunity is kinda like buying their adoration, as well.
+
+---
+
+ok, so let's just say on really general terms here, the majority of the girls are going to be involved in raising some of the boys with interest in physical interaction with them later as they grow up. I don't know if they'll all lay claims specifically, or that'll happen more later as they grow up. I don't know, and I'm sure they can figure that out.
+
+so that leaves left any girls that are born (gnomitas). what to do with those? well, obviously they'll each get to decide for theirselves, however, it wouldn't be too far of a stretch to think that some of them may also want to have boytoys, too.
+
+so, I began to think about that. in the first arrangement, I was just assuming that the gnomitos will be similar to me, but in this case, it seems logical for them to adopt the boys that the gnomitas may want to grow up with. I don't know how other boys are, and personally, I find boys to be very difficult for me to figure out (girls are soo much easier), so this is all guesswork but maybe some of them will want more independence, or whatever... I have no idea. I guess that's the experiment anyway.
+
+I would hope that these girls are ambitious, and not just want one, but multiple boys from perhaps even various cultures and races to grow up with them. I could easily see that if I were a girl, I would want to have boys like accessories, one smart one, a strong one, a homely one, a extroverted one, etc. I'd keep them all busy and we'd build something great together.
+
+---
+
+I mean I have no way of knowing how big this will grow to, now. honestly I don't even know, but it appears to have gotten big enough that what I'm seeing is that this trend of young girls picking up a young boy early on, may kinda catch on a bit. it may be possible that this is kinda the beginnings of a matriarchical society, growing the men up to be the way they want them to be -- but with a slight twist: it's the young girls growing the boys up, not the women. I think that difference alone makes quite a bit of difference.
+
+musing on that for a moment, if something similar to the idea above were to actually gain traction in the coming years, in less than a few decades, the entire structure of what we call a "family" will be permanently altered. everyone would be "adopting" children from each other to create the desired arrangements. it's a lot more like a global village, actually :)
+
+---
+
+I think if a young child wants to pick a mate for theirself early on, I think adoption is quite a good idea. there are lots of children in 3rd world countries, and this may actually be one of the most effective way of reducing the diparity between our cultures -- by giving their children opportinuties with our children.
