@@ -333,3 +333,22 @@ I know there's no energetic winning. I also know there's no energetic competitio
 taking score after the manifestation also seems to put a negative spin on things, too which again I equated to the pride before a fall thing. as a result I became less and less competitive. so, I think taking score in any way is about some sort of comparison to others or competition, so I am much more often in a state of appreciation about the things that have manifest -- and while I'm writing this now, I ignoring the mechanics of all of the details I was talking about earlier, instead if I were to appreciate my performance instaed of project it into the future, it seems like I wouldn't experience the degerdation of performance. in addition, even if it were the case that someone's desire for my anti-manifestation were to be boosted, they cannot overpower pure appreciation.
 
 so, then I have another question which is that nevermind... I already answered it. it's appreciation that I'm looking for :) I do wonder about the mechanics though.. that stuff interests me because what if, for example, I wanted to purposefully sabotage myself and abort the manifestation on purpose for a for some large period of time -- then, when I wanted to, I could just turn to appreciation when I thought the manifestation was big enough -- or something like that :D
+
+
+### 2020-04-30 21:50 - (2020-04-28)
+
+I started watching this broadcast a bit earlier. I really liked two things they said so far:
+
+1. that when you focus on one thing, you are essentially "blocking out" or making the other things dissappear -- however, even though that is what is happening, if you were to try to "block out" the other things, now you're giving your attention to them, which makes you focused on what you're "blocking out" -- which means they're not really blocked out after-all.
+
+2. when you say, "mean what I say" -- you mean to say, "feel what I say"...
+
+upon the second one, the day before yesterday, I had a monologue when I was out in the field about why it's so important for me not to lie. I stated that when I have different appearances to different people, then it's really hard to change the feeling (release resistance) to something, because I have so many different versions of me that are all putting different "meaning" on what I'm saying -- and ultimately, the reason why I'm maintaining so many different versions of the "truth" between different people, is because I care what they think about me.
+
+caring what others think about me is mental baggage that slows you down, and is never useful -- because if you think about it, what you *think* someone thinks about you, impacts the way *you* feel, and so by caring what they think about something is producing a feeling in you, which is causing you to alter what you *mean* with your words to try and achieve what you think is the best feeling this person can give you.
+
+---
+
+then, they were talking about how to get to inspired action, and this is quite an easy thing for me to do now, cept it seems like when I "get in the zone" like they say, my computer gets shut down. I haven't worked out entirely what to do about that, other than to just continue to learn how to feel good anyway. they said something that inspired me to a thought about it, but I've since forgot it since my computer shut down...
+
+I'll get it back :)
