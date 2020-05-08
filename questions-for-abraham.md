@@ -352,3 +352,61 @@ caring what others think about me is mental baggage that slows you down, and is 
 then, they were talking about how to get to inspired action, and this is quite an easy thing for me to do now, cept it seems like when I "get in the zone" like they say, my computer gets shut down. I haven't worked out entirely what to do about that, other than to just continue to learn how to feel good anyway. they said something that inspired me to a thought about it, but I've since forgot it since my computer shut down...
 
 I'll get it back :)
+
+### 2020-05-04 23:41 - (2020-04-30)
+
+(45:05) - as they were giving their "rampage", for whatever reason I had a pretty sudden realisation, on something that seems terribly obvious: instead of looking at all of the things that have not been going the way I want them to with my program, (which is tuning myself to the problem), just tune myself to my desire.. 5head
+
+(47:31) - a few days back, there was this weird thing that happened where I was walking home and mr. motor was particularly angry with me that day. as I went, there were these two dogs out that are always quite a bit more ferocious when mr. motor is pissed off. they were again let out of their yard (it happened once before), but this time they were seemingly not going to let me go forward toward my home (they were between me and my house). I thought about going back, but for whatever reason I just thought I would wait for them to go away.
+
+anyway, later, I was thinking about how I didn't seem interested in going back and only wanted to move forward, even if it meant going slowly. the owner finally called the dogs and I could walk home, but because one of the dogs did actually bite me kinda on the leg[^1] I was thinking to myself, what I should do is probably just keep going no matter what and if the dog bites me, I should just sue so I can get some money and smoke weed and maybe fund some ideas I have. I dunno.. mostly I want to buy drugs with it though.
+
+I knew that I probably wouldn't *really* do that, because that would mean (for me to be able to sue), I would be pretty severely injured, and that may mean not watching stars or perhaps difficulty programming too, which wasn't really a cost I wanted to pay to smoke some weed. I sorta left the idea. there were a lot of reactions around it, but I decided I didn't want to make a thing out of it.
+
+---
+
+anyway, so they're talking just now about this woman who wants to sue, and right before they respond, the back of my leg immediately starts hurting where the dog bit me, and they say, «your source would never give you the impulse to sue someone» -- so I start thinking about that while they're talking about how disempowering it is to try and get your control (and receive resources) by suing someone, and I was thinking about how annoying mr. motor is, when they say, "it's not easy to all of a sudden begin to love someone and appreciate someone who has been unlovable and unappreciatable; we get that -- but don't do it for him, do it *for you*"
+
+it was really those last two words that made me want to write this, because this whole time, I've been beginning to appreciate mr. motor in a lot of different ways because he's like free energy being added into the equation and stuff. I had another realisation the other night out while watching stars, that really I'm not even sure if I would have been able to get as far as I have if it weren't for mr. motor and all of his efforts. I dunno it's hard to explain the idea, because it's part of a bigger concept which is what I think is beginning to happen to everyone. I may talk about it more soon, because you can feel how much pushing against the last thing I wrote in gnomi's thoughtlog, and other things...
+
+---
+
+wait, what?!? then, they talk about -- not just appreciating him, but «bring a new tribe fourth, in him,» then following up further saying, «there was the tribe of [the] old [mr. motor] and now there's the tribe of [the] new [mr. motor], and it's the same phsical being -- but, it's a different vibrational tribe coming fourth»
+
+wat??? I don't really know what to think about this actually.. I'm just going to leave it. I am pretty good at only seeing positive aspects in people who are not so desirable -- in fact just the other day, john michael was horrified to find out that I only look for positive (wanted) aspects in trump, even repurposing some of his antics I appreciated and making them my own.
+
+[1]: for some strange reason, even though it didn't break the skin, it still really hurts, and hurts actually very considerably more while star-watching
+
+### 2020-05-07 20:07 - (2020-05-02)
+
+#### 45:14 - step-5 children
+
+today I was thinking about the experience that I will have with the girls, and one of the things that my dad often told my mom was that it's ok to let me crash and burn. he's really right about it, because I have esssentially discovered a lot of things because of "accidents" or "failures" or other things. for people like me, wiping out is really importatant.
+
+I really want to convince them (the girls) that being protective or trying to make things too easy is not really a good thing. when abraham was saying «you don't want to ever deprive them of a step-1 moment», I realised that was what I was wanting to convey. there's a difference between being overpprotective and making things too easy vs. giving someone opportunity and allowing them to fail at it.
+
+another thing I want to mention is that in the previous question about the person with a 3, 4, and 5 year-old kids, is when they said that you could come back to find their antics as humorous -- you see, my dad perhaps was a bit extreme in this way, but he would *always* make jokes when I was having a hard time. I wanted to be sad and evoke his pity, yet instead he would always make fun, saying things like, "did you hurt the coffee table" (after I just did a face-plant into the corner) or when I was frusrated and angry, to call me "mr. sunshine".
+
+perhaps that's a bit extreme, but by doing that he taught me how recoverable things always were. my dad has had multiple business failures and all sorts of things in his life that were "bad" but he always[^1] made fun of the moment and then recovered from it, which is much more a step-5 sort of thing. I think it's really important to realise that the ability to recover is a much better attribute in someone, than the ability to find perfection.
+
+I'm more confident that I will be able communicate this sort of plasticity, now :)
+
+#### 48:21 - with pain, there's always gain
+
+in the previous question (about the woman with her son in a bad spot), and this one too with the mother in pain, I was thinking in both cases that you can't keep looking at he problem (their present condition) and be able to make headway on allowing them to improve in your own expectations for them. (this question is also resonating with my thoughts on mr. motor)
+
+so, what I'm saying is that you cannot look at their present circumstances and allow things to be different. I had a similar experience with my prediciment with nosebook, where the situation simply would not change. it's quite literally unchangable, and unlike the son or the mother, there was no place I could go where these situations that were causing me distress, weren't there. these conditions followed me everywhere I went, so I had to find a new way to look at them...
+
+this is when I began to learn how to "redefine" or to change my perception of something -- turn it from something that I perceived to be bad, to something that I perceived to be good. a lot of this was understanding that all of their influence on me, was actually just adding more energy (desire) into the equation, and that helped, but the problem still remained. there was no way to make the problem or the circumstances any different; I had to change my perception.
+
+so as I'm listening to these questions, the thought pops into my head -- "it's not 'no gain without pain' -- because that implies that all gain comes from pain, but it certainly is true that all pain produces gain (more energy into the situation)" -- but, of course you have to line up with the gain part of it to get the vibrational gain into physical terms.. so I think I'm going to redefine that term now in my head to be "with pain, there's always gain" -- and that may be a good way to begin redefining these diffrent situations.
+
+imagine again the woman that has her 3, 4, and 5 (the pythagorean kid triange) fighting over something... they're all just building up more energy; it's kinda like trash-talking before a match or whatever.
+
+[1]: actually, not *always* -- moreso when I was younger, because I did notice that he didn't bounce back quite as easily after my parents' divorce. but still the cencept stuck for me.
+
+#### 1:00:01 - music and feeling
+
+the questioner described playing music and that music being turned into feelings. I always thought it was the opposite for me: when I listen to music, it creates undescribable (in words) emotions witin me. however, when I *played* music, then I would describe it as something that I felt as if the music was sort of like a medium for the emotion that I was feeling when I played to kind of live and thrive inside of.
+
+I guess it could happen both ways though, so playing music could evoke feelings -- and I suppose that happened to me when I would play songs that I didn't feel, I always hated the way they sounded -- but, then the oppsite also could be true for listening to music as well, which is something I hadn't really thought of, but would make sense why festivals and raves are so effective: that while listening to music, the music is like a medium in which the emotion I'm feeling while listening to the music can live. interesting idea :)
