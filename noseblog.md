@@ -10154,6 +10154,40 @@ so, I guess, if my monologue made you feel bad in some way[^1], just know that y
 
 [^1]: there was a whole lot of "he's going to drag this out forever" or "this is going to take foreever" -- and another one that had to do with coronavirus that I didn't understand, but I didn't care to investigate further, either.
 
+### 2020-05-10 00:25 - coming enlighnenment
+
+I just watched a series of interesting videos on past times, which made me want to write a long comment about what I thought about modern "initiation" and "enlightenment" compared to times past.
+
+https://www.youtube.com/watch?v=RPixqRq-zXg 28:40 - in regard to the 16 figures with the heads of birds, and 32 with human heads...
+
+I have often wondered about why there are so many depictions of various "gods" with wings, and also with quite a few as birds (especially notable also in egypt). I think these figures represent a series of "rulers" -- 16 of them the original "gods" -- which are depicted as birds. then, there were 32 humans which are depicted with wings.
+
+there is a similar motif with the sumerians. ancient architects did a video on sumerians in south america here: https://www.youtube.com/watch?v=z8NnX2ObQwA
+
+the principal video that I think shows this can be seen here: https://www.youtube.com/watch?v=kvdrkSUVn70
+
+in it, he talks about how there were original "gods" that walked with the humans, and taught them things. they are always shown as the birds and hold bags in their hands. the initiation ritual is to open up the pinecone and the tree of life, which represents enlightenment and is said to give wings.
+
+this sort of thing appears in a lot of different sources, but it seems to me that, going by the theory of the different pacha stages of humankind, the earliest stage, the gods walked with the humans, and these gods were the birds. they initiated humans and taught them "enighenment" -- and so subsequently these initiated humans also had wings (were able to fly).
+
+it seems there are natural flying gods, and then humans rulers or gods which were initiated in some way to gain the ability to fly.
+
+---
+
+(sidebar) another interesting thing to note here is the reptile/bird symbolism. we know that numerous dinosaur birds (pteradactyl) simply would not be able to fly in gravitic conditions of today's earth and we also know that dinosaurs were likely feathered beasts and are the predecesors to the modern bird. I don't really know what to make of it, but it is noteworthy, considering that (following the pacha theory) that gravitic changes caused by the earth moving away from the sun god could easily explain the extinction of the dinosaurs (which later evolved into birds). science believes that earth's gravity is actuually a universal constant, but I believe that is geocentrism and very unlikely.
+
+---
+
+so, this doorway, I think could be symbolising the transition from the first (hanan pacha) where we had direct connection to the sun god, down to the second pacha.
+
+an interesting thing to note here too is that the megalithic work of the 1st pacha is very curved and natural, as if the stone were able to be moulded, then the second pacha, seems that things are now all right angles and straight lines.
+
+therefore, I'm going to go out on quite a limb here, it seems quite probable to me that in the 1st pacha, the bird gods, and probably the initiated humans were able to fly, mould rock and lift it effortlessly with their minds. I believe this is a function of the mind and is much more off limits to us now because of our distance from the sun.. so, as the earth transiioned to the 2nd pacha, this style of masonry and travel became more difficult, and so proper conditions needed to be met to be able to achieve these capabilities: now, angles and numbers and astrological conditions needed to be paid close attention to for those initiated in the secrets (masons) to be able to achive.
+
+I think that the pyramids and other such structures were methods by which to use angles and maths and sciences to create conditions in which humans could become gods and return back to this garden of eden-like environment of mental non-resistance of a dream-state-like reality. this was probably kept a big secret from everyone, and people were only given the watered-down version of this mental state in the form of religion.
+
+finally, we're now in the 3rd pacha now and we're considerably more separated from the sun god and all of this stuff is still possible but because the conditions (distance from the sun) and the other energetic conditions produced by the pyramids, etc.  all of this stuff is a complete mystery to us, but I believe that these sorts of mental states can be achieved within the person without the energetic conditions previously provided by our distance to the sun or the operation of these geometrically tuned structures.
+
 # the end
 
 ### 7 years of tribulation (continued)
