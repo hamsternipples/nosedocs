@@ -10158,13 +10158,13 @@ so, I guess, if my monologue made you feel bad in some way[^1], just know that y
 
 I just watched a series of interesting videos on past times, which made me want to write a long comment about what I thought about modern "initiation" and "enlightenment" compared to times past.
 
-https://www.youtube.com/watch?v=RPixqRq-zXg 28:40 - in regard to the 16 figures with the heads of birds, and 32 with human heads...
+@[youtube](https://www.youtube.com/watch?v=RPixqRq-zXg) 28:40 - in regard to the 16 figures with the heads of birds, and 32 with human heads...
 
 I have often wondered about why there are so many depictions of various "gods" with wings, and also with quite a few as birds (especially notable also in egypt). I think these figures represent a series of "rulers" -- 16 of them the original "gods" -- which are depicted as birds. then, there were 32 humans which are depicted with wings.
 
-there is a similar motif with the sumerians. ancient architects did a video on sumerians in south america here: https://www.youtube.com/watch?v=z8NnX2ObQwA
+there is a similar motif with the sumerians. ancient architects did a video on sumerians in south america here: @[youtube](https://www.youtube.com/watch?v=z8NnX2ObQwA)
 
-the principal video that I think shows this can be seen here: https://www.youtube.com/watch?v=kvdrkSUVn70
+the principal video that I think shows this bag, the tree of life, and pinecone motifs can be seen here: @[youtube](https://www.youtube.com/watch?v=kvdrkSUVn70)
 
 in it, he talks about how there were original "gods" that walked with the humans, and taught them things. they are always shown as the birds and hold bags in their hands. the initiation ritual is to open up the pinecone and the tree of life, which represents enlightenment and is said to give wings.
 
@@ -10187,6 +10187,41 @@ therefore, I'm going to go out on quite a limb here, it seems quite probable to 
 I think that the pyramids and other such structures were methods by which to use angles and maths and sciences to create conditions in which humans could become gods and return back to this garden of eden-like environment of mental non-resistance of a dream-state-like reality. this was probably kept a big secret from everyone, and people were only given the watered-down version of this mental state in the form of religion.
 
 finally, we're now in the 3rd pacha now and we're considerably more separated from the sun god and all of this stuff is still possible but because the conditions (distance from the sun) and the other energetic conditions produced by the pyramids, etc.  all of this stuff is a complete mystery to us, but I believe that these sorts of mental states can be achieved within the person without the energetic conditions previously provided by our distance to the sun or the operation of these geometrically tuned structures.
+
+
+### 2020-05-11 07:10 - a strange idea about the coronavirus
+
+the previous entry spawned a lot of new discussions in my mind, to which I will continue on that thread in the future..
+
+however, this morning, I woke up with a strange idea that perhaps the coronavirus is actually what we're calling the physical manifestation of people all over the world's frequencies being raised.
+
+the idea was that as I continue to get vision upgrades, instead of letting the gap between me and others continue to widen, they are actually putting people up to my speed, and the result of this is if it's oo fast for you, you'll begin to have physical difficulty.
+
+---
+
+I have no idea if it's true or not, and you may say, "but I definitely don't see as good as kenny does, so that's impossible" -- but just because you don't see like I do, doesn't mean that your brain isn't being clocked to that speed. they do blur people's vision, as they are already doing with mine: -- have you noiced that everyone can see out of my eyes better than I can? the other day I had a pretty signicant vision upgrade where things changed quite considerably, and jaron complained about having a lot of pain that morning when trying to get up. I also noticed that his vision was much more blurry than usual as well, because he couldn't see a black square at a distance (something that I can see, and I usually have a harder time than he does at seeing things)
+
+this obviously means to me that they're keeping jaron on par with where I am, but because he's still got quite a bit more resistance than I do, he probably does not see the same as I do, even though his brain is going at the same speed. this further implies that perhaps jaron's brain may be used to provide "imagination" for people on the lower end of the spectrum, and mine is used as the upper end of the spectrum. I doubt that there are others that are further along than I am, but I don't know if jaron is beign used to provide imagination for the lower end of the spectrum or not. that's completely unknown to me.
+
+it could also be that they're putting everyone up to my speed, and I'm only noticing the effects that must be happening to quite a few in jaron. if what's happenining to jaron is also happening to pretty much everyone[^1] in the first-world, it would make sense therefore that people are being clocked up to my speed, even if they haven't released resistance in order to get there. it just makes for a more intense ride, if you're thoughts have more power because you're running at a faster speed.
+
+it's probably a good idea that we're on lockdown while this continues to happen, because in our normal everyday stressful lives things would be much more intense, and this is a way to kind of mitigate the amount of extra stress and conflict that would otherwise be generated.
+
+---
+
+it seems that at the same time, they're really trying their hardest to keep me from going up as fast as I want to go up. I've been sleeping a *LOT* lately.. like 16 hours a day or so, and I have pretty severe lethargy, which they (abraham) also mentioned in the previous episode that's only evidence that I'm not letting all of me through -- which means there's still more resestance.
+
+regarding the resistance that seems to keep coming out of nowhere after I wake up from sleeping, I believe that something happens when I'm asleep, and I don't really know what, but there's a definitel hour or two after I wake up where I'm a complete zombie empty of energy, but after a little bit I'm back up and feeling better again.
+
+I've been getting a lot of vision upgradess without even watching stars, so I think what's happening is that I wake up at say 200 units of energy, and say the next vision upgrade is at 800, I manage to get there even without watching stars or anything. I just get back to thinking thoughts that don't block that non-physsical energy from flowing. the longer I'm awake and clear minded, the more this effect is, and the more energy I accumulate and I get vision upgrades. seems every time that I release more and more resistant thought, the more rapid I build up to getting to the next energy level where the upgrade is -- so that's probably why I'm sleeping so many times per day right now.
+
+---
+
+as a result, I think it's of benefit (for you guys) that things are going kinda slow. if I were to just go really really fast, I would basically get connected really really quick and you all would be kinda left behind in that way, however by doing it this way, you all are essentially going through your initiation like I described in the previous entry with the sumerian bag @[youtube](https://www.youtube.com/watch?v=kvdrkSUVn70) and your pinecone (pineal) is being slowly opened as I continue to get more and more vision upgrades.
+
+therefore, I think it's actually beneficial if this process takes even longer than is presently expected, so that you can all continue to go up with me. I realise that there is a bit of expectation around my birthday, but I would instead just say that we should continue to go up slowly and not make any huge jumps. the ones along the way (in the first-world contries) who can't figure out a way of operating at the new speed will get the "coronavirus" -- then, with the new physical condition, they can either figure out how to recover from it and operate at the new speed or make their transition (if in fact the idea that I woke up with this morning has merit).
+
+[1]: the reason I say pretty much everyone, is because in the last episode of abraham now (2020-05-07) they mentioned that people were seeing more, and this was the day of the major vision upgrade I think -- and they also said that there are a lot of people unaware of the coronavirus and are also completely unaffected by it.
 
 # the end
 
