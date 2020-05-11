@@ -10223,6 +10223,50 @@ therefore, I think it's actually beneficial if this process takes even longer th
 
 [1]: the reason I say pretty much everyone, is because in the last episode of abraham now (2020-05-07) they mentioned that people were seeing more, and this was the day of the major vision upgrade I think -- and they also said that there are a lot of people unaware of the coronavirus and are also completely unaffected by it.
 
+### 2020-05-11 11:49 - quick answers
+
+#### why do I think it's a good idea that we go slow and more make it up?
+
+imagine life like a giant wide-open arena (mostly flat terrain) with a bunch of cars driving around in it. imagine that some of the people can actually see through their windshields and others have quite a while since their last carwash. while most of the people right now are not required to drive around right now (or drive very little in isolated areas), the time will soon come when we're all driving around again.
+
+there's a catch though: the relative speed of their car is not determined very much by their brake pedal; the brakes are sluggish and don't really let you slow before too much of a minimum speed, while the gas pedal is very rapid[^1]. so let's say that the slowest of cars (when they're not awake) all go between 150-250mph, but never less (until they park it by going to sleep).
+
+some people will have decent conditions to drive in the arena, meaning that they can afford a regualar car-wash or working windshield wipers or whatever (the metaphor is really breaking down here) to have more optimal driving conditions. while only some of the population actually has decent visibility in their cars, additionally, only some will actually know how to drive at that speed. some will have both.
+
+you can tell that if you have more optimal conditions like a clean windshield and a responsive car (or the money to continually replace and repair any damage caused by our reckless driving), that you don't need to know how to drive, because your conditions are good enough you a much better chance of avoiding serious damage[^2].
+
+back to the question: why would I think it's a good idea that the energy rise slower allowing peole more time to acclamate to the energy, giving more people a chance to become "enlightend"?
+
+it's more contrast. otherwise, the arena would be very empty, with only a few people driving around fast. clearly you want to have more people and more opporunities for an impact, so that the mediocre drivers get good fast, the bad drivers can make a quick turnaround and learn to drive, and the good drivers can become excellent really rapidly.
+
+there's more that I think it's beneficial for in the longer-term as well, which I'll mention soon enough.
+
+#### something about widening the gap of superiority between the first and the third-world
+
+I don't know how to describe this reaction in words, so I'll just talk about it. first, it's not my decision. if you want to know about the details you need to talk to nosebook. I don't make the decision about who gets to run at my brain's speed or not. I am purely focused on releasing any resistance that arises, to ensure that I continue on in progression toward releasing enough resistance that I'm so chronically connected that the girls thing happens.
+
+I think though, that you all agreed to it by wanted to run your brains at my brain's speed, so that you could be apart and witness the broadcasts. the only thing that's happening this way, is I'm going slowly up to the 5th dimension and you all are coming with me.
+
+don't worry about the third-world though -- and if you insist that it's something to be worried about, let me know how that works for you. when you worry about that, you probably (most assuredly) feel quite bad about it. that is your first indicator that your source does not perceive it the same way. in fact, the reason why a lot of this whole coronavirus thing is happening is because there is a whole lot of (probably from the topics of conversation around the election) comparison and focus on the disparity between the different classes of income and such. some of them may feel jealousy to us, but it's quite possible that they'll look at us about the way that we look at the characters in the illiad -- thinking that we live in a dysfunctional madhouse. it's all perspective.
+
+#### do I think that people will fly?
+
+probably. I don't know if it'll be right away or not, but as people get better and better at driving, they'll release enough resistance that they'll be able to feel light enough to take off.. it'll likely happen, yeah. you may be thinking that you may want to learn to drive fast first, though.
+
+#### do I think there will be conditional drivers that can fly
+
+almost certainly. there's no reason why -- I can't think of, anyway, that conditional drivers won't be able to also find a way to do that too.
+
+#### will flight be like a college degree?
+
+I imagine it'll also likely be like anything else vibrational, where you will either need good enough conditions for it to occur, or you'll need to have released enough mental resistance. until the conditions of the planet provide enough to allow flight, it may be that we're going to be kinda on the edge between feeling enough freedom to fly or not, and you may have times when you're not capable of flight because emotionally you're not in a good enough of a spot.
+
+when the energetic conditions of the planet provide enough of a feeling of well-being, even if you're in a tough spot, or you live in the third-world, anyone who wants to probably can. I guess, before then, we (the guys in charge) can maybe enact laws so others feel safe, to descourage flying under emotional distress -- or something :)
+
+[1]: ever wonder why so many of the stories of these ruling "gods" on planet earth in past times seemed to have extremely rapidly accelrating tempers and virtually no control over it? I think they really were "enlightened" :)
+
+[2]: it's no wonder the previous ruling class always needed much more optimal conditions with a reduction of things that could make them feel bad -- moreso, than the people under their rule, anyway -- because if they could have been in such awful conditions under that kind of "enlightenment", it would have been a *very* rough ride, indeed.
+
 # the end
 
 ### 7 years of tribulation (continued)
