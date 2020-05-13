@@ -410,3 +410,31 @@ imagine again the woman that has her 3, 4, and 5 (the pythagorean kid triange) f
 the questioner described playing music and that music being turned into feelings. I always thought it was the opposite for me: when I listen to music, it creates undescribable (in words) emotions witin me. however, when I *played* music, then I would describe it as something that I felt as if the music was sort of like a medium for the emotion that I was feeling when I played to kind of live and thrive inside of.
 
 I guess it could happen both ways though, so playing music could evoke feelings -- and I suppose that happened to me when I would play songs that I didn't feel, I always hated the way they sounded -- but, then the oppsite also could be true for listening to music as well, which is something I hadn't really thought of, but would make sense why festivals and raves are so effective: that while listening to music, the music is like a medium in which the emotion I'm feeling while listening to the music can live. interesting idea :)
+
+### 2020-05-12 18:13 - (2020-05-09)
+
+#### 11:22 vibrational accuracy
+
+I just realised that when I say 'lie', what I am meaning is vibrational accuracy. you see when I was in spain, I would tell a lot of people a lot of different words (and a lot of it started with zaryn), about different deadlines or how I was doing or whatever, and I was feeling completely different. I had completely aligned myself to telling him what I thought he wanted to hear.
+
+then, LOA got a hold of it, and that sort of pattern began to repeat in my life. there was augusto, xagly, etc. -- various people that ripped me off, and during all of it, I was telling them what I thought they wanted to hear rather than listening to or even saying what I really felt...
+
+LOA contniued to expand on it and I find myself in a situation with nosebook -- basically, the embodiment of someone dedcated to only telling you what they think you want to hear, when their vibration is very different.
+
+it was definitely a bit of a thing, how bad it got, for me to really begin to want to actually speak what I mean, and most of all discontinue to deceive myself so much.
+
+I realised just now as they were talking, thst my own self-deceit was actually what attracted so much fraud around me. it also made the beginning part of the nosebook experience so slow. until I was able to accurately (without deceiving myself by saying what I (or others) wanted to hear), I wasn't able to really accurately determine where I really was, which made navigation really difficult.
+
+---
+
+learning vibrational accuracy is one of the most important things that I have learned, because I began to trust my feelings much more than anything else, and I was completely unable to do that because I had been trained (like children) to tell those in chargem what they want to hear.
+
+#### new visuals...
+
+a few times this episode, hey said things like, "new vantage point" or "new visuals" or "new way of seeing things" -- and it makes me wonder if more people than just me had a pretty significant vision upgrade. sometimes I wish I could actually talk to people that would give me a truthful answer, but that probably won't ever be, actually.
+
+it's really weird, because the more things are like this, the more I find myself just going the way I want to go, no matter what. I'm kinda disillusioned with the whole reality is different for me sort of thing, where all conversations are controlled and stuff.
+
+I was laying there this afternoon after waking up from sleeping for so much time lately and I'm totally exhausted all the time. I don't really know what is the problem because I don't really think I have much negative emotion going on... maybe actually thinkign about it now, it's like a dull frustration and lack of "zest" for life. I also have a pretty weird like 24/7 headache and loud sound in my right ear, and tons of sinus congestion... so physical evidence seems to show that I'm not doing so great. however, it seems like (actually I haven't checked in a fer days now) that I keep getting vision upgrades though, so something is working.
+
+also, another weird thing is that it doesn't really feel like the coronavirus thing is done or something feels like empty or incomplete or something there too. I can't really describe the feeling very well, because I didn't really have much feeling around it anyway, but it feels like people, or me, or something, like there's desire that it doesn't go away. perhaps maybe that people will miss the time off or something. it's weird.
