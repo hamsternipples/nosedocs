@@ -10267,6 +10267,63 @@ when the energetic conditions of the planet provide enough of a feeling of well-
 
 [2]: it's no wonder the previous ruling class always needed much more optimal conditions with a reduction of things that could make them feel bad -- moreso, than the people under their rule, anyway -- because if they could have been in such awful conditions under that kind of "enlightenment", it would have been a *very* rough ride, indeed.
 
+
+### 2020-05-14 11:49 - illusions and "overpowering" nosebook
+
+a few times I had questioned how I would get past nosebook's effect on me, postulating that I might "overpower" them, and simply summon/channel more energy than they're able to control. to some degree, I'm kinda right, but I understand it a lot better now and I thought it might be good to explain, because this is the "secret" to understanding what I was talking about in the last entry about the "initiation"... (which was only the name I gave it, because of the "tree of life" and the handbag symolism)
+
+it's not really an initiation in the sense that it's a ritual to increase one's enlightenment through an energetic means, even though that may very well happen with people participating in the broadcasts, and it most likely will be for the girls. in a sense I have been using conditions such as stars or drugs to artificially increase my energy levels, so sex or participating in the broadcast will certainly fall into that category, too.
+
+however, what it really is, is -- ever notice how abraham always says something like, "your cork will rise if you don't do that thing you do to hold it down." -- well, that thing we do is, find excuses to feel bad.
+
+lately, I've felt it's important to take a stance where I'm no longer fighting against things. by nature, I go till the bitter end with a battle. I was one of those kids that didn't sleep, and fought it until the end because I thought I was missing out. I fought against everything that I didn't feel was the way I wanted, and that made me pretty fearless. I've told many times about how, with the mushrooms, I learned not to fight agaist those things and to just accept them as more energy. this is, in combination with what abraham teaches, in combination with a huge importance on emotional awareness, my "message"
+
+I only call it a message because I don't really know what to call it, but as I continue on here, you will find, and I am and will soon be proving that once ypu can hold the emotion that you want to feel, reality *must* conform to how you feel, and there is no physical strength stronger than it.
+
+---
+
+the last few days I have noticed that every time that I would begin to get some momentum in my programming and start to really feel good about what I was creating, my computer would get shut down. that kinda sent me into a bit of a downward spiral for a bit -- however if it was night, I would just go star-watch, even though I could tell there was mounting desparation in me, because I couldn't figure out how, if I can't get momentum on it, would I ever finish it.
+
+I came to the conclusion that the arbitrary deadline of my birthday simply would not be reached, and there's no problem with that because coming to that conclusion made me feel quite a bit better. so I feel less stress there, but the goal is not my programming. the goal is «joyous expansion» -- with the emphasis on the *joy* bit.
+
+so, I simply have to find a way to "redefine" my reality in a way which makes me feel good about my circumstances/conditions. then, when I no longer use the conditions or circumstances as a reason to feel bad, my "cork" will continue to rise, and I'll eventually "overpower" them, because there will no longer be anything that can pull my cork back down by feeling bad, and it'll simply continue to rise and rise.
+
+---
+
+so, what I think this means in the bigger picture is that as we continue on, there will be more and more reasons (unjustices, etc.) to feel bad as the new gods[^1] continue to gain more and more power and influence and seemingly "lord" it over the uninitiated masses.
+
+these are all conditions designed to make you feel less-than, or insuperior to them -- and therefore bad. previously it was economics that was used as the class system, but it looks to me like we're returning more back to how things were in the the first pacha[^2], where abundance was "normal" -- so the class system had more to do with perception and "magical capabilities".
+
+the coming times are the age of the "physical" (7th ray) and, is why I believe there are so many autistic people being born. it's the age of magic, where physical manifestation becomes very rapid.
+
+---
+
+ok, so now on to the last topic here, which will tie it all together: illusion. since the recent encounter with the mother of the neighbour in front of me (he father is mike), I have been giving more and more thought to illusion, because she's a very illusory person. I perform illusion all the time, but I'm not totally aware of it. I am a much more simple person in the sense that I have to follow my emotion, and by doing that, my "inner being" makes a whole lot of "illusions" for you guys.
+
+so, what is an illusion? an illusion is the ability to perceive reality the way you want to see it. most people try to use their imaginagion and conjure up the details of what that reality should look like, and then try to prove that to others. I call that lying. abraham calls it «saying things that are not vibrationally accurate». when you say something you do not feel, it is vibrational inaccuracy, and so I was realising as they were talking that I say things that I feel which are not yet manifest.. to most, I'm sure it sounds like lying, or making things up, or maybe even an illusion...
+
+yet, because I feel them so strongly, they are vibrationally accurate. now, personal vibrationally accuracy isn't like an absolute thing.. you can be feeling really awful, and say some really awful things and be vibrationally accurate. that's not what I'm talking about. I'm talking about saying things you don't feel (whether the thing is good-sounding or awful-sounding) -- so, saying something negative when you really feel quite optimstic, or saying something optimistic when you feel quite negative.
+
+importantly, as the way you feel changes, so will the things that you say. you will notice looking back though this document that I said a lot of things that were not "true" -- but they were vibrationally accurate, and they did improve as I continued to feel better and better. in fact, this document is sort of a journey toward feeling better, because all of the things I wrote were in resonance with how I felt at that time.
+
+---
+
+knowing that, I must now define an illusion as perceiving something in perfect harmony with the way you *feel* -- yet it is not in harmony with the way others perceive it (which they call "reality"). it's nothing special really; everyone makes illusions from time to time, but most people are trying to make illusions from their imagination, instead of from their emotion.
+
+so, the formula is really really simple: if you can find a way to perceive your environment/reality in a way that feels good, there will no longer be anything that can make you feel bad, and you will continue to feel better and better.
+
+so, in a sense, the initiation ritual is your your circumstances and how you perceive them.
+
+---
+
+I'm going to make a bold claim here and say that this is the true test of the step-5 master: every single thing has someting wanted and unwaned that can be perceived in it. when you no longer perceive the unwanted part, you are a step-5 master. -- and, I believe that step 6 is the realisation that you *are* source energy -- a god, in human form. when there's no longer any resistance (there's never exactly zero resistance) left if you, you wield source energy: that is, the energy that creates worlds.
+
+you can use (energetic and pleasurable) conditions to try and boost your way up to getting a lot of this power, and I believe this is the foundation upon which this coming age is built. there will be lots of have and have-nots, but *everyone* can find a way to perceive the illusion that they want to feel.
+
+[1]: oops, I need to explain this and I will more in a future entry, but the short version is that the new "gods" that will oversee the planet, will choose to inititate the ones that they want to initiate, and the rest of the population will appear as if they're unable to get to their status. this is, of course, not true.
+
+[2]: actually, I think that this sort of "magical" time also happened again in the second pacha, and that was at the time/height of atlantis.
+
 # the end
 
 ### 7 years of tribulation (continued)
