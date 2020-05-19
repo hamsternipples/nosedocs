@@ -10324,6 +10324,53 @@ you can use (energetic and pleasurable) conditions to try and boost your way up 
 
 [2]: actually, I think that this sort of "magical" time also happened again in the second pacha, and that was at the time/height of atlantis.
 
+
+### 2020-05-19 11:39 - weird experience this morning
+
+I had a weird experience this morning that I cannot really remember very well, but there are two things that I do remember: the first was me saying that no matter what happens, my perception is independent from other peoples' in the way that let's say something "bad" happens -- well, I don't really think that I'll be the one to experience it, even if all of you "see" it. I then went on, to talk about how it's sorta like if they (nosebook) were trying to get me to dream a dream I don't want to dream, it's possible that they would experience that dream that they were trying to get me to dream, and I would continue on to experience something else entirely.
+
+the other part I think had something to do with me refusing to compily with their desire to make things happen on my birthday. I don't really think it's necessary to try and make something happen, because -- I just don't. somewhere around there I had this weird feeling where all of a sudden I felt compelled to say something that surprised even me: I said that I was aiming for galactic consciousness.
+
+when I said that, it was accompanied with a "picture" as well, where I could see something to the effect that -- well, you know the rubberband analogy that abraham offers all the time, where they say that is what causes these quantum leaps. well, it looked to me like there were a lot of people that have achieved planetary consciousness, and most likely there have been some that have achieved solar consciousness, but I'm aiming to achieve galactic consciousness.
+
+that surprised me, because I (kenny) didn't really know that in my physical form, even though there has been a lot of evidence (written here and elsewhere) that that is in fact what I'm shooting for... kinda crazy, but I (kenny) don't really think it's impossible. the idea kinda excites me a bit even.
+
+---
+
+then, when I was upstairs eating breakfast, and I saw the neighbour and then I started feeling some things about how I would delay the thing on my birthday. this spun me off into a whole bunch of different but related subjects which I'll mention a few of them here...
+
+I was immediately reminded of the previous entry where I wrote about people flying. the concept was somethting to the effect that I would pull the rubberband back so far that people here in the first-world would become very very energetic because I would just continue on delaying and delaying and delaying for quite a long time and people would continue to be pushed up higher and higher, about as much the humans with wings on the sumerian tablets and the sun-gate, and although nosebook would try to keep down and prevent them from flying (they seem very concerned about this), the energy would still be so much more than otherwise, and there will be a lot of people in very high places.
+
+the way I saw it, is imagine that those attached to my form of perception would be continuing to go up, and the higher end of them reach solar perception, but because nosebook is working so hard to keep them down, they only have the capabilities of planetary perception. there may be levels inbetween but, for now let's use the simple approach and say that people with planetary perception will also be held down to never really reach past I dunno... 4d or something.
+
+I want to take time to explain that I don't really know what plantary, solar, or galactic perception is. if I had to guess, I would guess that planetary perception is what I had previously called 5d -- where you see all around you in all directions and you see inward in all directions too. solar perception, I have no idea. I see things clearly when it comes to dimensions of perception because I can extrapoate easily. I would guess that it's just a higher level of 5d. I know from my experience in 4d, there are quite a few levels between what I first experienced and what I experience now. it's probably more of that.
+
+if I continue on to extrapolate, after 5d comes 6d .. so, just like 4d is to 3d, now there's an extra dimension that's always been there and you're looking right at it, but you don't see it, until your perception expands. this can be explained by realising multiple perception where everything is all connected.
+
+I can imagine that I'll get there one day, because that's pretty much what source sees -- and then further dimensions on top of that would have to be non-physical dimensions. so, that gives further evidence to the difference between planetary and solar perception is just an expansion of your aura and a broader scope to your physical vision, meaning your consciousness could be able to move around instead of anywhere on this planet (most call this astral perception or remote viewing), to anywhere in the solar system.
+
+now, since nosebook has so many secrets, I sincerely doubt they will want people to have the ability to focus their consciousness anywhere on the planet, or even the solar system -- so I find it quite likely they'll need to try and ensure that doesn't happen.
+
+---
+
+the next concept was that the new class system will likely, instead of economics, become one of perception, and nosebook will be the ones that allow some people and not others to have those levels of perception.
+
+at the same time, people who feel good, and those who can benefit from the condition of participating with me and the girls, all around the world will be getting a boost as well. consequently, their level of perception will continue to rise just like mine has been doing. the people who don't feel so good will be sorta stuck, unless they're buddies with nosebook and nosebook can take off the limitations and give them the boost their looking for (or something like that).
+
+that's all four groups:
+1. those that feel good and have the boost by the conditions (like me)
+2. those that feel good and don't have the conditional boost (available in third-world countries)
+3. those that don't feel good and have the condiitonal boost (likely are getting support from nosebook or have some sort of beneficial condition to boost their perception -- perhaps even drugs, if people finally figure out how to use them properly)
+4. those that don't feel good and don't have the conditional boost (third-world countries and stuff. if they're connected to my form of perception, these guys won't last too much longer with the increasing energetic conditions)
+
+ok, now double those cases accounting for those connected to my form of perceptioin and those who are not.
+
+... now that I've convoluted the matter, to the point: some will have conditions that can boost their perception and some won't. some will feel good and some won't, so essentially, those with the most to benefit will be the ones with beneficial conditions -- however, since LOA is what it is, if you don't want to find a way to feel good, it's going to be a pretty crazy ride.
+
+it's going to be absolutely hilarious I say; totally banannas.
+
+if you were listening in to my thoughts, I likely just explained the part that you didn't get (I think differently now :)). my thuoughts were thinking about how women (symbol for repceptive people) will be getting the biggest boost here, and it's probably going to be the turning point where the receptive ones begin to gain power and eventually overtake the assertive ones so dominant today.
+
 # the end
 
 ### 7 years of tribulation (continued)
