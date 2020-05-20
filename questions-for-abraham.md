@@ -438,3 +438,25 @@ it's really weird, because the more things are like this, the more I find myself
 I was laying there this afternoon after waking up from sleeping for so much time lately and I'm totally exhausted all the time. I don't really know what is the problem because I don't really think I have much negative emotion going on... maybe actually thinkign about it now, it's like a dull frustration and lack of "zest" for life. I also have a pretty weird like 24/7 headache and loud sound in my right ear, and tons of sinus congestion... so physical evidence seems to show that I'm not doing so great. however, it seems like (actually I haven't checked in a fer days now) that I keep getting vision upgrades though, so something is working.
 
 also, another weird thing is that it doesn't really feel like the coronavirus thing is done or something feels like empty or incomplete or something there too. I can't really describe the feeling very well, because I didn't really have much feeling around it anyway, but it feels like people, or me, or something, like there's desire that it doesn't go away. perhaps maybe that people will miss the time off or something. it's weird.
+
+### 2020-05-20 11:16 - (2020-05-12) step 6
+
+yay, they said step 6:
+
+«and then step 6 is, you reemerging back into non-physical; back into the pure positive *energy* of who you really are»
+
+I just loved what they said so much and I felt so much emphasis on the word energy when they said it. immediately, because of the word "reemerge," I thought of "death" -- but then I thought immediately afterward... wait what if you didn't need to physically *die* to reemerge into the pure positive *energy* of who you are...
+
+then, I thought about what is energy. it's not necessarily physical, perhaps, and I would even go so far to say, that the pure positive energy they're talking about is *not* physical. however, energy has a dramatic effect on the physical (it's sorta the machinery running the show)...
+
+following that I had a weird idea I never thought about: I often wondered how I could experience a dream-state like reality here in the physical world -- so the thought was, if I could be pure positive energy, then the physical world wouldn't need to change into a dream-state for me to experience that type of reality. *I* could transform (reemerge) into something that ... it made so much more sense before trying to explain it in words...
+
+essentially, if I can "lose" (die) my physicality, then I would become a living dream-state kinda like able to move around like the vortextual version of myself. the barrier between these worlds wouldn't be separated anymore.
+
+the reason why our dreams manifest the way they do is because they are the most logical manifestation of the way we feel -- like being imersed into an environment that is the manifestion of the way we feel -- and then within that environment of the way you feel, you are capable of only the things that your emotional state allows you to be capable of.
+
+the barrier between the dream-state and the vortex/source version of you exists in your emotions and is perceived in a more relaxed (less resistant) state while you sleep.
+
+therefore, if I am able to, master step-5 and feel the same way that my source feels, there's no longer that barrier, so the dream state can be realised here in physicality while in a non-resistant state (like while sleeping)
+
+that's pretty big :)
