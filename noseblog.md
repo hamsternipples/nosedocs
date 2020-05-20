@@ -10386,6 +10386,12 @@ it was interesting to me how different I felt then to how I was feeling the morn
 
 so, it may not be exactly that day, but it feels like it'll be close enough. I don't think there's anything to worry about; as abraham says, «you can have it all», right?
 
+I suppose I'll be working on figuring out how to increase my command over emotion.
+
+---
+
+I also want to mention how nice it was to talk with john michael today after talking about planetary, solar, and galactic consciousness. it tied in perfectly, and I hadn't, up until that point, made the connection that a higher spirituality mind is just seeing the bigger picture -- and looking from the planet's point of view, there have been lots of different cycles of human life on this planet, but by far we are the most improved version of the creation so far. cycles are important, but just like how we're not worried the death, and destruction happening inside of our bodies when we're sick. as a human, we are concerned with the acticvities of the day, not the individual cellular warfare happening on the inside of our body. it worked out perfect timing :)
+
 # the end
 
 ### 7 years of tribulation (continued)
