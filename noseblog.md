@@ -10371,6 +10371,21 @@ it's going to be absolutely hilarious I say; totally banannas.
 
 if you were listening in to my thoughts, I likely just explained the part that you didn't get (I think differently now :)). my thuoughts were thinking about how women (symbol for repceptive people) will be getting the biggest boost here, and it's probably going to be the turning point where the receptive ones begin to gain power and eventually overtake the assertive ones so dominant today.
 
+
+### 2020-05-20 2020 00:50 - some new thoughts
+
+I just went out "star-watching" (more on that later, because I've discovewered how to do it without stars) and I noticed how much different I felt and I was reminded of yesterday... which was I think the morning of the 18th. I was out there and I was focusing on the light in the distance, and I felt quite a bit as if I would be able to make the deadline of my birthday or even come pretty close. I feel that way now, as well. later, I went out walking to look at the airport and when I was walking back I noticed that I could see the sun, so I stopped to do a quick sunwatch.
+
+I had these crazy experiences where it in the moment of staring into the sun, it felt like the fog in my eyes parted for a moment and I felt as if the whole thing was real, and there was this crazy realisation of how it would be as if I were looking back at it from fifty or a hundred years into the future -- and from that perspective I could see that people's study of me would be something like how we see the bible these days. it's ancient technology and doesn't really capture in a meaningful way (compared to HD films or nosebook's tech) the situation. I was in a moment where the technology was so immersive, people had knowledge of english/spanish sorta like how we have knowledge of ancient greek or hebrew.
+
+it was sorta sad for me in a little bit of a way because nosebook's tech captured such a limited amount of my experience (the physical), and because of the language barrier of english/spanish, it felt to me like very little of what I experenced was actually captured.
+
+---
+
+it was interesting to me how different I felt then to how I was feeling the morning after I woke up. I was thinking about this looking into the light, and I came to the conclusion that I had to figure out how now how to feel like this anytime that I want. right then, I had a complusion in my voice like I mentioned in the experience this morning about the galactic consciousness this morning and the voice said something like, "remember the command" or something like that. it was an interesting idea. I'll explore it further I guess. I wonder to turn an emotion into a command. seems like they're not exactly 100% compatible, but anyway...
+
+so, it may not be exactly that day, but it feels like it'll be close enough. I don't think there's anything to worry about; as abraham says, «you can have it all», right?
+
 # the end
 
 ### 7 years of tribulation (continued)
