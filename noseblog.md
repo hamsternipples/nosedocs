@@ -10392,6 +10392,37 @@ I suppose I'll be working on figuring out how to increase my command over emotio
 
 I also want to mention how nice it was to talk with john michael today after talking about planetary, solar, and galactic consciousness. it tied in perfectly, and I hadn't, up until that point, made the connection that a higher spirituality mind is just seeing the bigger picture -- and looking from the planet's point of view, there have been lots of different cycles of human life on this planet, but by far we are the most improved version of the creation so far. cycles are important, but just like how we're not worried the death, and destruction happening inside of our bodies when we're sick. as a human, we are concerned with the acticvities of the day, not the individual cellular warfare happening on the inside of our body. it worked out perfect timing :)
 
+
+### 2020-05-20 19:29 - some thoughts on reemerging into the pure positive energy that is you.
+
+before I went to sleep I finally listned to the 2020-05-12 broadcast. they said at the end that step 6 is about reemerging into the pure positive energy of who you really are.
+
+I really liked that and have been giving it some thought, because, while I do think that galactic perception sounds -- big and stuff, and like something no one has done before. this form of perception in step 6 interests me *MUUUCH MUCH MORE*. I began to speculate immediately on it have already formulated a lot of different ideas about it.
+
+I could see something that I hadn't really noticed before -- and that is that the emotional layer is a barrier between your perception through the lens of only phsicality/imagination and the one above it: the source version of all of that. the same must be true on the upper end of things as well, looking down: the structure/logic layer serves as a barrier between your perception of only desire and relations/interactions and the source version of that.
+
+similarly to what I was experiencing in my understanding that when I'm a step 5, meaning that I no longer have an emotional response to things differing from how my source does, then I reemerge into that energy. the same must be true then for the structure layer -- meaaning that when my logic and structure are in alignment with my source's, then I get access also from the top down. anyway, I don't yet understand that much, but I wanted to throw it out there.
+
+next, seeing as I've given a lot of thought to adding two more layers at the top and bottom, that would mean that adds a new barrier: the physical layer. so for the bottom-most layer, remember this one was like a 3rd person perspective in a film where you're so far removed from who you are, the barrier now for this new layer is the physical one. imagine how difficult it would be for a movie character to want to become physical and live in the world that we live in with LOA and all sorts of stuff. instead, it's more likely they would prefer to remain in the comfort of the imatination of the narrator and continue on in a contrived world where things are already planned out and set into stone -- you just have to act the part.
+
+anyway..
+
+---
+
+the next bit is one about the "reemerging" part -- which is death. we've heard a lof of this symbolism before if you've ever been around a christian. john (the baptist) based his whole ministry on the value of near-death experiences and the freedom gained from letting that "self" die. in psychedelics, it's similar to a NDE, and they call it the "disilluion of the ego" or "ego death". it's all the same -- that's what I'm referring to. it's coming into the full and knowledge of who you *really* are.
+
+does that mean my body dies and I take on an energetic form? probably not, though I wouldn't rule it out, because that's probably the direticion one would want to go upon gaining step 6.
+
+---
+
+lastly, before abraham gave their version of step 6, I had always said that step 6 is realisation of the knowledge that you *are* source energy. people seem to wonder why I tend to place so much emphasis on the bit that you *are* what you call God or you *are* source. and the reason for that is because if you do not really know this, then the laws of the universe are just a magical incantation to try and twist God, the universe, or source's arm to try and get what you think you want. this is unfortunately how it appears most egyptians interpretted what thoth taught...
+
+without the recognisation that you are this big thing that you're trying to exploit to give you what you want (as if it were a bigger version of your most generous parent) -- then, it's just a magic ritual. knowing that you're coming into alignment with yourself instead of something external.
+
+it's really important! and you get there by paying attention to how things feel, and paying attention to the source of those feelings. you begin to recognise the source of good feelings (pleasure, another person, something interesting, etc.) as not all being equal. the one that that feels the best and is absolutely what everyone is looking for (but you don't have to wait until you die to experience it), is found simply by paying attention to how each of these things feel, and how their results turn out.
+
+that's it for now :) it's
+
 # the end
 
 ### 7 years of tribulation (continued)
