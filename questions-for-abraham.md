@@ -460,3 +460,25 @@ the barrier between the dream-state and the vortex/source version of you exists 
 therefore, if I am able to, master step-5 and feel the same way that my source feels, there's no longer that barrier, so the dream state can be realised here in physicality while in a non-resistant state (like while sleeping)
 
 that's pretty big :)
+
+### 2020-05-21 12:41 - (2020-05-14)
+
+#### 44:26 - disciplining my awareness of how I feel and displining myself to hold myself in that better feeling place for longer
+
+as they were talking, I realised that is what I want. it's funny because I'm so military-like in so many aspecs of my personal development, but I don't have that military-like disipline in how I feel -- yet :) it seems like something I want to acquire
+
+#### 53:27 - what is the next step of alignments
+
+the questioner seems to be a step-4 master and, is asking what the next step of alignment is. I cut abramham off a little bit early, because I love this question so much. for me the next step here was realising that I didn't need to run from or try and avoid contrast. I could just let it be, knowing that it causes expansion, and it's just fine.
+
+I don't need to "accept it" -- when in every way I would previously identify it as wrong, bad, or unwanted for me. however, I have the ability to look at it like my source sees it and it not only doesn't bother me, but I know that there are so many good things that will eventually come out of it.
+
+I suppose this is step-5 (mastery?), but what it craeted in me was a complete sense or unmistakable feeling of invincibility or "unstoppableness". sometimes I mess up and I feel bad, but I don't have to even worry about it, because I can choose to find a way to change my perception of that bit of "contrast".
+
+the reason why I think this is important, and perhaps why I think learning how to change one's perception to be something that feels good, is because I think it's perhaps a necessary skill to being a step-5 master.
+
+in a previous segment abraham was talking about how esther had to first soften the emotional impact of jerry's transition by finding things to feel good about and practice that before trying to adjust the perception of the trauma. that's sorta, but not really what I'm talking about.
+
+I'm talking about, how just like in step-4, you can quickly notice the off-ness of something and almost immediately get back to feeling good, you can notice the off-ness of the perception and almost immediately find and come into alignmnt with the source perspective of that.
+
+it's truly one of the most empowering feelings ever. you have no idea how invigorating it is to see things from a broader perspective.
