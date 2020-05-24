@@ -482,3 +482,39 @@ in a previous segment abraham was talking about how esther had to first soften t
 I'm talking about, how just like in step-4, you can quickly notice the off-ness of something and almost immediately get back to feeling good, you can notice the off-ness of the perception and almost immediately find and come into alignmnt with the source perspective of that.
 
 it's truly one of the most empowering feelings ever. you have no idea how invigorating it is to see things from a broader perspective.
+
+### 2020-05-24 01:24 - (2020-05-14)
+
+#### (17:58) - calibrating now
+
+the last few days, but especially today, I have noticed that I have been doing a lot of calbrating. I feel like I have to explain stuff, because the reactions are such, like for example, I was giving some ideas on the difficulty I had in the past with how I seemed to find it difficult... anyway, I suppose I'm even calibrating now again to it.
+
+or, for example, I was trying to figure out today what would make someone feel a dilema. I know it happens always to me when I'm trying to figure something out logically instead of just following my feeling -- or if I don't really have strong feeling about it, just to pick one and go with it, instead of sitting back and trying to figure it out analitically.
+
+I suppose both of those examples are calibration. the first one, I'm recognising that I don't really want to keep attracting that sort of thing, and the second one, I really did feel auhentic curiosity, because in the moment, I was beginning to see something I never had before, where I began to understand autistic people in a better way. john is a great example of a person for me to talk to because he's a lot like how I used to be before I began to embrace my emotions... anyway, I found the topic quite stimulating, and I still feel like I have more to discover in it, because it's really illuminating the "flip-side" of the emotional guidance system.
+
+---
+
+since it's starting to come (right now)... I began to see how when the person is trying to weigh the pros and the cons, and trying to figure out the direction to go logically, I noiced that same thing happens for me when I'm trying to figure out the "best" or the "right" way to make something when I'm programming... so, the big realisation came to me when I realised that by trying to find the best or right way, it was essentially the same thing as saying, I need someone to tell me what to do -- however, instead of someone (who I trust knows) telling me what to do, (and I can follow the rightness of their direction) -- instead I need to find out the right way analitically so that I don't make a mistake or waste some resources -- and that people (but mostly myself) will then be hard on me for selecting the wrong one.
+
+it's kind of a funny topic, because talking about calibration, behind all of the trying to figure out the "right" or "best" way, and trying to avoid the feeling I will feel after having picked the "wrong" or a less optimal way. by trying so hard to avoid it by mulling it over logically, I am calibrating to to the failure or the less optimal one. I actually, now that I'm writing this, it seems like when I spent a lot of time thinking something over, I almost always certainly did pick the less optimal one, or I "missed" my chance by overthinking it.
+
+I'm reminded of a situation today when I walked down to the field an hour earlier than I was shooting for. upon realising that, I couldn't figure out if I wanted to walk back or if I wanted to stay on the field and chill there. I started calculating the time wallking there 2 more times, and a whole bunch of other stuff and I couldn't come to a decision, when a big green tree caught my eye. I felt really attracted to the tree and wanted to go sit by it. finally I calmed my debating mind and went to the tree and had a good time.
+
+again, I had a realisation upon getting to the top of the hill that I left my lighter at home, and my brain started thinking up all sorts of ideas like walking back and stuff. this time though, nothing interesting or feeling caught my eye and I just overrode the thing and decided to stay. I then spent the rest of the time looping in my head the above calibrating thoughts, which wasn't a good thing.
+
+in short, I decided to stay and not go fetch my lighter because I didn't want to feel like I was addicted to cigarettes and I was thinking about how much situation "manipulation" was happening today and since it's about that time of year again (birthday and christmas) when nosebook tries to make stuff happen, I was hesitant to go back and preferred to stay there. now on hindsight, that's a really powerless sort of perspective I was calbrating to, and I probably should have walked back to get the lighter, even though neither way seemed to feel necessarily good or bad, but the calibration is what actually didn't feel as good. oh well.
+
+those were calibrations against something. I'm going to begin to make more of an effort to begin calibrating toward things instaed of against stuff. it seems so simple and I say it enough that I feel like a bit of a hypocrite. oh well.
+
+#### (31:02) - why do people feel competition with others?
+
+for reals, I'm trying to understand it for a while now, and today I've given it even more thought than usual... speaking on the subject, this person said that her friend says many positive things, she senses competition...
+
+from my perspective, she couldn't sense conmpetition if she wasn't competitive herself. I say that because I don't really feel competition from people. I look around at people around me, and any quality that I see a person have, that I like, I just "rip it off" shamelessly and make it my own...
+
+so, since everyone is on this whole bandwagon of ripping stuff off (visual capabilitty or whatever) from those like me who have it, how then do people feel competition? why isn't everyone just ripping all of the good stuff off that they like (I don't of course mean physical objects)? I mean personaliy traits or lifestyle decisions, mental positioning or whatever...
+
+it seems to me like such an absolute waste of effort to feel any competition with anyone else at all
+
+(of course I don't mean the enjoyment of playing and winning competitons of game or sport).
