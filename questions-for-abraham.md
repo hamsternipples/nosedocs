@@ -483,7 +483,7 @@ I'm talking about, how just like in step-4, you can quickly notice the off-ness 
 
 it's truly one of the most empowering feelings ever. you have no idea how invigorating it is to see things from a broader perspective.
 
-### 2020-05-24 01:24 - (2020-05-14)
+### 2020-05-24 01:24 - (2020-05-16)
 
 #### (17:58) - calibrating now
 
@@ -518,3 +518,18 @@ so, since everyone is on this whole bandwagon of ripping stuff off (visual capab
 it seems to me like such an absolute waste of effort to feel any competition with anyone else at all
 
 (of course I don't mean the enjoyment of playing and winning competitons of game or sport).
+
+
+### 2020-05-24 20:49 - (2020-05-19)
+
+#### (56:05) - feel joy while negative emotion is present
+
+huh... now this is an entirely new idea for me. I never really thought about it. I will have to try it next time. I often am so consumed by the negative emotion, trying to feel something so opposite would seem to me like an impossibility -- yet I know and have numerous times experienced pleasure inside of pain, so I guess it's possible. interesting :) thanks for sharing!
+
+also, of note, earlier today in noseblog I said,
+
+```
+you don't really understand how much I would enjoy sitting down with someone and them being able to share new form of perception or advancement in thought patterns which allows for further optimisation of perception. it really would be fun, and that's why I'm so fired up to listen to abraham, because I always walk away with a new optimisation I can add to the amazing list of simple things one can do to opimise their energy output and overall feeling of well-being.
+```
+
+:D
