@@ -533,3 +533,120 @@ you don't really understand how much I would enjoy sitting down with someone and
 ```
 
 :D
+
+
+### 2020-05-25 00:06 - (2020-05-21)
+
+#### (02:22) inner being making decisions for you
+
+so the questioner said, "I know my inner being wants this for me" -- and I immediately said that your inner being does not make decisions or assign things for you to do.. which I know is true. abraham followed up by saying...
+
+«your inner being isn't deciding what you should want or how you should go about it. your inner being is just holding a vibration about what it is you *do* want. there's a subtle difference in that»
+
+but then I realised that this has a lot to do with what I'm presently in the middle of. I suppose at this moment I'm presently looking for some sort of indication about what I *should* do, when claro I know that's not what I'm really looking for here. I'll explain better soon.
+
+#### quick intermission to weigh the pros and the cons
+
+I'm barely paying attention here. I'm just going to get my thoughts out first and hope for some clarity along the way as this broadcast continues.
+
+the subject is described better in @[noseblog](2020-05-24 17:47) so I won't really go over it again. instead, I'll just jump right in.
+
+I don't really have a problem not working on tech stuff, however history has shown me that if I don't have something I'm creating or holding my interest, I get bored, or, in the case of with raquel, tesions begin to rise as the creative energy created from sex begins to accumulate and there's no output. it does seem like a good idea to be creating something along the way. however, this is perhaps a bit early on in the process to be talking about this...
+
+another reason is, simply how am I going to be able to explain to the girls the importance of creativity in one's life as a method to increase connection, when I'm literally not doing anything myself, and haven't been for the last 12 years now. I am, in my own perception a bit of a hypocrite in this area.. I mean, seriously how can people take me seriously when every attempt I've had at producing something creative in the last 12 years has been a chaotic mess.
+
+the next big thing on my list is, I don't really enjoy the way my body feels physically. I know when I have experienced their system turned off, that I feel incredible and I have such amazing precision and flow to my movement, that I just would simply prefer to continue on doing what I'm doing getting closer and closer to achieving it. I know what I'm looking for and it seems closer than ever, so to give up now would sort of be like stopping to take a water break 4 feet from the finish line -- it just doesn't make sense to me.
+
+that is exactly what they want though; they want to delay my reaching the finish line as much as possible. they want me to continue on having blurry vision, terrible balance, a bad cough, out of breathnesss, etc. etc. -- and I've noticed that the more vision upgrades I get, the worse it gets. so, they're essentially asking me to quit right in front of the finish line, and accept poor physical and mental conditions so that they can keep their ruse up.
+
+to me, this literally makes no sense at all. why in the world would I do that? why would I willingly give up on all of those things when what I'm wanting is so close-by?
+
+the future is also neither very clear to me, because then imagine we start the girls thing -- it just seems to me like the increase in energy from sex will further give more vision upgrades, which means I'll have an even more diminished experience. if they can actually hold me away from connection I think that eventually, my eyes will become so blurry I really won't be able to see much of anything anymore -- or, if they can't hold me, and I do get connected, they'll just simply say, "see look, if you have sex, you can get connected" -- which isn't at all what I'm about! nothing of the sort! I prefer the establishment of connection with me when it's just me. I prefer the alone approach to things, so I'm sure that the whole thing of what I said will be exactly opposite[^1].
+
+I suppose the "good" which would come out of a message like "see, have sex and get connected" and then go and expend all of your sexual/creative energy trying to find your connction with people outside of you, instead of finding your connection inwardly. it certainly would make a whole lot of extra contrast as people put so much effort into really trying hard to find something inside of them externally. perhaps, that's what people want though. I just don't know..
+
+so, just to recap: it seems obvious to me, whether I do the girls thing or not, I'm going to be spending the next X amount of time in increasingly more blurry conditions and disorienting conditions until I finally get conncted. it's going to happen one way or another, but if I'm with the girls when it happens, they have an "out" an illusion that they can give to people to keep them distracted from the only thnig that (in my opinion) really works, which is actually proper self-evaluation and optimisation.
+
+I suppose people are going to get a whole lot of step-5 practice spinning their wheels in that illusion for so long. I dunno...
+
+[1]: much like how I believe jesus' message was all about believing in yourself, and the church, needing to make an icon for people to believe in (that they controlled), instead had him say "believe in me" -- or maybe something like "you should believe in yourself like I belive in me" -- or something I dunno, but clearly to me it seems evident that what became the church was pretty close to the opposite of what he was intending to convey.
+
+#### (27:30) - uncertainty, confidence and clarity
+
+obviously, this fits right in. I don't really feel confidence and clarity in the subject at all. I don't really believe in doing things I'm unsure about, either -- and, like I said, it's absolutely a silly idea in my mind to go and against my natural way of doing thngs, and divert myself off into something I do not really feel terribly confident or much clarity in, right before the finsh-line -- where upon crossing it, I can guarantee that getting that alignment/connection, I will assuredly have a very real clarity and confidence.
+
+you know, I could just jump right in and expect things to turn out ok, because they seem to for me, no matter after whatever amount of difficulty -- so In a sense I do have confidence -- I do not have much clarity on the matter though because at the moment, it certainly feels like the entire thrust of the decision is being made from a place of unwanted (they really don't want me to get connected, and they don't want anyone else to come to the realisation of where their true power is)
+
+it would be kinda funny if I said yes anyway (after expressing what I did above) -- cause I was thinking about it, and let's say I did decide to say yes, right this very moment. then what?
+
+how in the world are they going to try and make all of this happen? am I going to be escorted to a room or something? the picture that popped into my head was all of the various different brothels I've been in, where the whole selection process feels so unbelievsbly unnatural. certainly it wouldn't be like *that*, because it's not at all like that -- but still, that was the picture that I had of how bizarre the whole thing may seem to appear if too much making things happen, were to happen. I dunno.
+
+---
+
+it feels like it's such a too late sort of thing, but I really would think that there has to be some sort of a better logististics that were possible. in my opinion, the idea of making a website and having a common thing that we could work on (obviously not at professional speeds, but more like a hobby/learning project) and getting funding seemed to me like a much more natural approach than anything that I could possibly imagine that they're trying to come up with.
+
+again on the confidence thing, (and it's funny because the previous question addressed this:)
+
+«you [won't] lose your pitch -- unless, something that you really care about reveals itself to you with the opposite end of the stick and shows you how much you care about it; how important it is»
+
+«when you've given a lot of thought to something and you've been very careful and specific about it and you thought you'd done a good job of explaining it to the others around you -- and then you realise that you hadn't communicated to them what you really meant; they don't get you; they don't know what you mean, and they get off on a toot and they perform something that is in the exact opposite of what you would have done, __if you had of been in on it__ and it makes you feel nuts, and it makes you feel out of control?»
+
+I don't think it would bother me all that much actually, because I've actually sort of already been expecting, if they were to try and do the arrangement, that it would basically be exactly the opposite of what I would have wanted. I literally have zero (0) confidence that they could even come remotely close to it.
+
+I am absolutely sure they're thinking, "we have to make this happen now before it gets any bigger or out of control, so let's just throw something together and try to get this big problem we don't want contained" -- and so they're going to try and throw something together.
+
+so, if it's any consolation, it wouldn't at all make me feel nuts because it's so much of what I already expect, I had already been thinking about how to try and figure this one out, because if I take the humor approach and laugh and the disaster, then it could have negative results -- but then so does painting it as a disaster. I have to take an approach where, it's sorta like all the stuff in my life where I sorta just go, "ok, well here's where I'm at: let's figure it out now."
+
+I suppose it would make me feel a little out of control, but I know that's already the objective: to make sure I'm *not* in control, so again, expected -- and really, this is coming from a place where I have control now? nope. I have zero control over my conditions. I only have control over my feelings, which now that I'm writing this, that's the perfect approach I was looking for. no laughing. no crying. we just have to find a way to feel good about it. you know like whatever man; it's gotta start somewhere, ya know.
+
+#### (23:14)
+
+«it's so normal to gravitate in the direction of your desire. that's why you have arguments with people. when they move in the direction of what you mean and what you want, __it is never appropriate to just give in to that__. it's much more appropriate for you to own what you want and speak what you want and explain what you want. there's nothing wrong with helping others understand your calibration process.»
+
+«never calibrate to something you don't want, even for the sake of finding harmony and friendship with them because it will bite you over and over and over again. be true to yourself and true to your vortex -- and when you're consistently there, others will understand where you're coming from.»
+
+#### (36:25) - pushing vs. pulling/attracting
+
+as they were talking about how you can move by pushing against something to go forward or you can be pulled forward, I had an realisation come into my mind about why it's easier (in physics) to pull something rather than to push it. I imagined a truck and a trailer. in one scenario, the truck is pulling the trailer, and in the other the trailer is being pushed by the truck (or you could imagine that it's driving in reverse rather than hitched to the front bumper). when the trailer is being pulled or attracted, it follows along the road just fine, but not only does it take more effort to push the trailer, the trailer is quite easily going to turn in the direction of the way the road leans, and rapidly the trailer is at 90° or more beside the truck. the truck therefore has to constantly adjust it's own direction to be able to push the trailer in the desired direction while pushing, but when pulling, it effortlessly follows the truck.
+
+it reminded me of the person in japan with the twin daughters. when you try to push kids, it's like pushing a trailer, but when you're pulling them along from a place of alignment, they follow easily. perhaps that last sentence is easier to say, when you're in alignment and they're following, navigating is so much easier.
+
+#### (42:43) - electrical wonkyness
+
+yeah man, I know how this is. lately I have had a difficult time with anything programming related. the only thing I can get any flow in is javascript, and that's probably only because I've been doing it for so long. it extends out into more than just electronics though, as it seems like a cloud of chaos seems to follow me at times, especially after a vision upgrade (or four). I used to be quite productive after watching stars or getting vision upgrades, but now the mental chaos is so great that I have noticed that I'm actually more productive in a less energised state after sleep, than I am after watching stars.
+
+I have also had different experiences when I have begun to use the program of another person who feels probaably at least moderate amounts of resistance toward me (or my situation), and quite literally nothing works properly. it's the weirdest thing because it's software and it's a program, so it *should* behave exactly the same every time given the same inputs, yet for some reason I seem to come into contact with some obscure bug. sometimes I'm the problem and some really easy thing is completely clouded in my mind.
+
+for example, about 2 years ago or so I was building something with elixir and I managed to write code that today looks like complete gibberish to me. I seemed to be able to write was enormously difficult code with ease, yet today I'm completely unable to do the most basic of things in the same language -- even though I would really consider myself to be in a much better place emotionally now than I was previously. if it were only me and where I was emotionally, I would say that the case of elixir doesn't make any sense at all, because I'm doing soo much better than I was.. it's weird
+
+I also noticed that when I first got to spain, computers were my friend. I seemingly could do anything and I could find a way to get the computer to do what I wanted it to do. I then had some experiences which I definitely noticed some drastic changes in how the computers and my programming seemed to flow.
+
+when I lived in utah, I had a much more multidimensional capability of seeing the program operating from more than one angle. in california, I didn't see it in so many dimensions but I did seemingly "know" where the things were and where it was I wanted to put them more easily.
+
+when I was building tuenti and the project seemed to be something I was building according to my specifications, things went really well.
+
+madrid though was different than california in the sense that I couldn't perceive the model of the program in my head with enormous detail like in california, but my desire to build things was so much stronger. I could program 20-30 hours in a 48hr period drinking inbetween sessions and still I kept producing more code and wanted to keep going. only extreme tiredness after much alcohol seemed to stop me.
+
+after I had sex with a prostitute for my first time, I was in a programming stupor for about a week afterward and it never really recovered back to where it was before then.
+
+I went to california after that and I was once again able to perceive the model in more complex way, but I was significantly more relaxed about it and worked way less hours on it. I was also a bit more theoretical in my approach.
+
+on coke in madrid, I had enormous capability to do things never thought of or even been done before. the intensity with which I programmed was so incredible, and I just kept going to the next thing that felt good. I had no direction though and made a lot of complicated useless stuff. it's unfortunate how I was working on a project that lacked direction and the alcohol made it worse.
+
+I could go on... programming and my relationship with my computer is enormously energetic and I know when it's flowing and when it's not. I've loved the feedback that programming gives me to indicate where my energy is at.
+
+#### (57:42) - grounding
+
+I dislike these hippie words, but there is a lot to be learned from how a tesla coil works.
+
+the way it works is that you have a large primary coil with a few windings and it usually has a thick wire. I like to think of when current runs through the primary, because it's bigger, it's like desire happening in gross matter and it has a low voltage (pressure) and operates at frequency of the signal applied to it. each pulse creates a magnetic field, which then induces a magnetic field in the secondary coil.
+
+the secondary coil is a smaller (but often taller) coil of thinner wires which is then connected to an antennae. when the magnetic field collapses, it will pull/attract electricity out of the air (it looks like lightning). I like to think of this as like our transformer which takes non-physical energy out of thin air and makes it physical -- and this transformation happens because of the desire created in the primary coil. the system is operating at a frequency (the rate of pulses put into the primary coil) but each pulse that gets attracted out of thin air into the antenna has a much higher frequency determined my the medium (air in this case) which it has to pass through to get to the antenna.
+
+finally, the energy pulled out of the air has to go somewhere, so just as you would imagine, because the secondary coil is not connected to the primary coil in any way, it's only connection is to the ground. the other end of the coil is connected to the antenna. all of the lightning pulled out of the air has to go somewhere, and so the it passes down through the coil into to the ground.
+
+I like to think of the primary coil as a simile to the human environment, and each pulse that goes through it like a desire that creates a magnetic field. then, secondary coil I prefer to think of as a simile to the human being: it transforms the magnetic field (desire) created by the primary coil into current, which it pulls out of the air (making non-physical, physcal) and gives it a path to the ground.
+
+the way I understand it, if the secondary were not connceted to ground, no current would flow. yet, if you created a "virtual" ground, then energy would simply accumulate and not go anywhere -- sorta like static elecricity or a capacitor.
+
+you have to give the non-physical energy that your desires summon a place to go :)
