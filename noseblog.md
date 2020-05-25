@@ -10421,7 +10421,49 @@ without the recognisation that you are this big thing that you're trying to expl
 
 it's really important! and you get there by paying attention to how things feel, and paying attention to the source of those feelings. you begin to recognise the source of good feelings (pleasure, another person, something interesting, etc.) as not all being equal. the one that that feels the best and is absolutely what everyone is looking for (but you don't have to wait until you die to experience it), is found simply by paying attention to how each of these things feel, and how their results turn out.
 
-that's it for now :) it's
+that's it for now :)
+
+
+### 2020-05-24 17:47 - an agreement?
+
+first, I want to talk about a few interesting leading up to this. last night I was monologing about things -- about how I think all of this is a huge effort to ensure that I never work on tech. it seems that they have this tesla technology in place all over the earth and because it's such a powerful technology, it gives them the advantage that they need to feel superior. I don't really feel inclined to talk about it in depth here, but I'm sure I will more in the future.
+
+it doesn't really matter though because everything that I've learned shows me that, while they may have quite an advantage in tech and economics, your true power really comes from how you feel -- and that's really important, because economics and the nature of this gives them a tremendous advantage to cantrol the environment: weather, energetic properties of both the body and the environment and all sorts of stuff. basically they have a tremendous advantage to try and control the conditions. however, even though they have this, they still cannot control what you think and how you feel about what you're observing. this is really important so hold on to that idea.
+
+---
+
+I think this whole thing all boils down to them wanting to maintain their *feeling* of superiority. if it were punishment, they would behave differently, but because they have to continue to push me down, they clearly feel threatened by me/us. this was another monologe I was having last night too, because I just don't understand why people feel threatnened by me when I give my stuff for free and explain all of the things so that others can replicae what I'm doing -- and I've continually simplified the procudures and improved my metodology of explaining it to try and make it as approachable as possible.
+
+for me, it's a no-brainer, because I feel if I was the only one that was capable of these things, then it woudld be boring. you don't really understand how much I would enjoy sitting down with someone and them being able to share new form of perception or advancement in thought patterns which allows for further optimisation of perception. it really would be fun, and that's why I'm so fired up to listen to abraham, because I always walk away with a new optimisation I can add to the amazing list of simple things one can do to opimise their energy output and overall feeling of well-being.
+
+anyway, instead of people responding with genuine interest in the techniques I've developed, like I'm sure I would genuiniely be interested in techniques others have developed, instead I'm generally met with opposition and frustration/anger/competition(?) toward me. it really seems like there is a tremendous effort to ensure that my optimisation techniques are not utilised or realised to be effective by people.
+
+I think it's because they recognise the power of them. I started off slowly gaining vision levels, and now it's so mind-blowingly simple and easy to do. the open secret to their effectiveness, is that it really is all about releasing resistance, more than anything, and the technique becomes so mindless it's essentially a meditation.
+
+I believe that they really want to ensure that they want to keep their advantage and all of this is seemingly coming to a pretty big creschendo right now because I've figured out how to continue my progress and they're not able to control the conditions. I know that it's simply a matter of time before they're no longer able to control the conditions enough to be able to keep me from getting connected.
+
+---
+
+ok, now I had this really weird idea one morning when I woke up (maybe it was yesterday or this morning something. I can't remember) and it was essentially the idea that they want to delay the manifestation of me getting connected even further and want to do the girls thing... (I feel like I've had this conversation before) ... to try and delay the inevitable even longer.
+
+it went something to the effect of that they want to keep installing more and more devices in me while I continue to gain more and more energy while I'm with the girls and stuff, then I guess after some period of time some event will allow me to get connected, and that event would be the time split. let's just say it was the 2038 thing -- so for the next 18 years, I would just continue on getting powered up (I suppose on my way to having galactic perception).
+
+anyway, I don't really know what to think about it, so I'm not really going to think too much about it right now.
+
+---
+
+then today, it seems almost as if they're trying to make an effort to get me to agree to not work on any tech stuff. I don't really like that idea because I do want to work on tech stuff..
+
+so I guess the agreement would probably be something like me agreeing not to work on physical tech stuff, like electronics I guess. I don't really think they have a huge problem with us -- probably mostly the girls -- making javascript[^1] webpages or apps. I know that if we do create something, they're really concerned with us making money off of it, because they want to control us economically, just like they're doing with me right now.
+
+so, then our side of the agreement would be that we could do the gnomitos thing?? I also want to include the henrietta bit as well.
+
+I want to let this develop a bit further and give it some space...
+
+developing...
+
+[1]: I say javascript because it seems to me like other forms of "real" programming languages are not going so well with me right now. really, the only language I feel any flow with is javascript. and basically everything else is like some sort of chatic mess.
+
 
 # the end
 
