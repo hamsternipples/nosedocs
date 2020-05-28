@@ -10465,6 +10465,67 @@ developing...
 [1]: I say javascript because it seems to me like other forms of "real" programming languages are not going so well with me right now. really, the only language I feel any flow with is javascript. and basically everything else is like some sort of chatic mess.
 
 
+### 2020-05-28 16:28 - am I purposefully *not* keeping my ideas to myself?
+
+I woke up this morning from a dream where someone was asking abraham a question something like, "when I ask my meditating daughter what she sees, she says, 'mind your own business'"
+
+and that got me thinking because I seem to have this pattern where I get really excited about something new that I'm learning about (usually another unlocked physical capabiliy), and as soon as I talk about it, nosebook is hard at work to neutralise it.
+
+I've been aware that this is the case and have often times reflected that I could simply stop talking about all these things and just start doing them -- not giving them the heads-up forwarning...
+
+however, to be quite honest, I've really begun to enjoy it. I talk about it, they push real hard against it and I just continue on and get stronger. it would be really easy to feel depression or frustration when constantly faced with the new discovery suddenly blocked, and I do admittedly feel some frustration or depression but I can quickly get back.
+
+I suppose there are really two major reasons for my conscious decision to not "keep my thoughts and ideas to myself until they're fully developed" (jerry's suggestion to anyone who wanted their idea to not be aborted before they get a chance to take root)
+
+the first is simple: I'm practicing step-5 mastery. I really don't mind the idea that they're able to "block" or to prevent something from happening the way I initially wanted, because, and this is really becomming more real to me than reality is, even though I cannot see the manifested reality of the thing, there is automatically generated a bigger and fuller manifestation than what they were able to prevent.
+
+the second is also simple: if you pay attention to all of the incredible capablities that I talk about, like manipulating images in 3d space, levtation, moving things with my mind, directing energy, creating heat, etc. these are things that nosebook will likely try and figure out how to force the brain to unnaturally produce these effects, so they can control who has these capabilities (you know, for safety reasons). however, the natural way to get these capabilities comes with the abiliy to create strong emotion (eg. not having split or difused into a bunch of problems emotional energy), and then the ablity to control it.
+
+essentially, what I'm saying is that all the really cool skills are activated by emotion -- so, it really behooves me to learn how to gain more control over my emotion than nosebook or my circumstances have over how I feel.
+
+both of those are leading up to step 6 -- and while it may be possible for nosebook to nutralise those emotional impulses in people or potentially be able to synthesise them like the network has done giving people the ability to access a part of their imagination that's normally only active when you're a child, on drugs, having a spiritual experience, feeling really good, or have strong desire.
+
+so, for all of the hyprocrites out there who think that I've been going at all of this out the "unnatural way" by using drugs or stars or something instead of saftey-first controlled technology from the network -- I think it's perfectly fine that I keep aborting my idea by talking about them.
+
+---
+
+there are numerous advantages to it as well. talking with john-michael yesterday, he was very concerned that people could gain these abilities (the cool ones), and thinks there should be a safety or control mechanism to prevent people from accidentally misusing those skills.
+
+it's no wonder that he comes at it from such an "unnatural" perspective -- because those capacities do not show up unless you're feeling pretty good or feeling pretty bad. it's true that the bad feeling impulse can create a "psychic discharge" like tesla talked about in moments of strong negative emotion -- however, I don't think those are controllable -- meaning that I don't think that you could effectively direct or control that energy so that it's useful in the sense that it harms someone or something. if something like that did happen, such an uncontrollable energy would target the most nearby conductor (or attractor) of that kind of energy.
+
+so really, what I'm saying is that for the capability to be useful, one *must* gain a certain level of emotional control, and then learn how to drive fast with that kind of extra energy. it won't take too many times crashing the car before you learn to drive or figure out a way to continually drive recklessly by paying for and covering up damages.
+
+in my opinion, any sane person would learn how to drive, but nosebook will probably think differently than I do on this one -- so they're going to be pretty invested in controlling and making sure that no unauthorised people gain the capability.
+
+they're basically *forced* to ensure that people don't gain those capacities and they'll have to fight against them like I'm doing now. so, for them, it's a really good thing that they have someone like me who keeps talking about what I'm doing and the steps I'm taling to get there.
+
+imagine that woman's meditating daughter in my dream that's keeping her thoughts and ideas to herself... she would be off of nosebook's radar until it's "too late" and they didn't have the pattern recognition to recognise the energetic signature of the thing. so, by talking about the things, they're able to prevent a whole lot more people from getting those capabilities by simply not talking about them.
+
+in this sense, secrets are good, and I'm going to encourage the girls to keep a lot of their thoughts and ideas to theirselves if they want them to manifest. I think that children will eventually come to realise that keeping your ideas that are close to manifestation to yourself (secret) and minding your own business (not paying attention to or competing with others) is how you get anywhere.
+
+basically, by talking about things, I'm giving you guys a bit of time to conceptualise the idea, while at the same time raising the bar very high -- meaning that nosebook will be essentially "forced" to keep these kids away from consciously getting connected and developing ways to direct their energy. so, for these new kids to get connected, they have to surpass me energetically where I'm at now *and* also keep their ideas to theirself (or be like me and continue on getting better and better at controlling their emotion).
+
+---
+
+if I look at it from nosebook's perspective, they have a few options I suppose:
+
+1. they could take off the limits entirely
+2. they could stop limiting me further and keep the limitations where they're at now
+3. they could continue to limit me and just slow down the progress as much as possible, even though I am connected
+4. or we could really arrive there naturally, as I am simply generating more energy than they can dissipate.
+
+it doesn't really matter to me, and I'm preferential actually #3 or #4. I want to continue on gaining more power.
+
+you could think of this entry as a reverse-psycology because the whole thing is founded on the idea of talking about my goals and then nosebook having to counter my goals, which since my stated goals are to continue on in the direction of #3 or #4, for as long as I can -- their counter would have to be #1 or #2.
+
+it is not reverse psycology though. I am responding to a reaction. I actually have given this idea a bit of thought.. in one of the entries where I talked about the two (or three, or four) earths, the earth where everything is all buttoned down when someone figures out how to get connected, I hypothesised that they would have to terminate the body to ensure that the unauthorised usage of connected person's capabilities would occur. however, from the opposite earth (the one that where someone choose to take on the life of the kid and generated triggers to help him find that alignment), when he asssumes the body of the child, it would be like a dream experience. when the body is terminated on the buttoned-down earth, he would return to consciousness in the sending earth, and have tons of new generated experience.
+
+there are a number of parameters that can be tuned to ensure the stand-in finds alignment, and the amount of triggers can be tuned down with time until one is capable of finding that alignment without any triggers.
+
+this is one of the reasons why I want a time-split so bad. because then, probably like I'm doing now, I want to be able to, from the side of alignment, use the old earth as a playground and take many more attempts at it -- and give others the chance to do the same. so, from our standpoint from the new earth, the termination of the body is a "mission accomplished" -- so, that's the bigger picture :) if I'm able to continue on getting more and more stronger and the girls thing "never" happens (it will eventually), that's cool too, because we can set the bar soo high that from the "new" earth, we'll have an insane playground (the #0 option).
+
+### 2020-05-24 ??:?? - sumerian gods reflection
+
 # the end
 
 ### 7 years of tribulation (continued)
