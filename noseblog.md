@@ -10571,6 +10571,17 @@ it's gonna be fun :) really go crazy with figuring out what you want!
 
 [1]: I think the size of my aura is *almost* the size of the USA. soon, it'll be as big as, then bigger than the planet -- then bigger than the solar system. if I'm going for galactic, I would have to assume then, that it'll probably grow to be as big as a galaxy. that's a bold claim, and we probably won't have the means to actually measure it, but I do imagine that it's going to continue to rapidly expand. do you know how big a glaxy is?!?!?!?! it's so big, I can't even comprehend it -- though, I probbably will be able to in 10-15 years :)
 
+### 2020-05-29 11:17 - why will it appear to me like everyone is creating by default?
+
+my desire is to get connected. nosebook cannot allow that. actually, I doubt they could allow *anyone* to get connected. they want to be in control. what being in control means for them is that they can control the conditions to affect the things that they want to have happen. they want the whole world to be filled with people who create by default, and because that is their desire that is what they attract.
+
+for whatever reason, we're here in this world with them, so for whatever reason all of us came here with the intention of creating by default at first, but then probably not all but a lot of us came with the intention of identifying the world that we would like to live in, and the life we would like to live, come into an environment that would create more than enough desire, and then to begin consciously deciding what it is we want to give our attention to.
+
+it looks like I'm sorta stuck here -- that is, my only way out is to find a way to get my chain to be unyankable and my goat o be ungettable -- and as I do that, their influence will have less and less effect on me, and like everyone, as soon as I give up on those ideas that are holding the cork under the water (the things that yank my chain[^1]), my cork will continue to rise faster and faster (as evidenced by the vision upgrades I'm sure everyone releasing resistance is experiencing).
+
+tl;dr they're attracting people who create by default, because those are the ones that can be controlled by the conditions.
+
+[1]: for some reason I always visuslise one of those old gravity toilets with the tank suspended high up with a chain that you pull down on.
 
 ### 2020-05-24 ??:?? - sumerian gods reflection
 ### 2020-05-28 ??:?? - new thought experiment:
