@@ -10583,6 +10583,47 @@ tl;dr they're attracting people who create by default, because those are the one
 
 [1]: for some reason I always visuslise one of those old gravity toilets with the tank suspended high up with a chain that you pull down on.
 
+
+### 2020-05-29 11:39 - speculation at it's best
+
+I'm getting a few reactions as to *wondering* what I think the bigger picture is. so, here goes... I can offer some speculation on things.
+
+THIS IS SPECULATION! TAKE IT WITH A RATIONAL PINCH OF SALT!!
+
+yesterday around the time of the abraham broadcast the sun emitted a m-class flare. nasa cut out the visuals on the eruption (likely to clean up erroneous data). one only has to watch ben's disaster playlist to get the idea that something is kinda beginning to make changes in the solar system (and even more).
+
+in similarity to yesterday's event, remember in 2016(?) when I was sitting in pierre's house and an image of a future version of me appeared in 3d space? well, at the same time the DSCOVR satellite read an anomalous influx of solar wind at the same time. nasa cut the data then too. this doesn't make any sense if you believe that the solar wind is only being pushed out from the sun and comes traveling toward the planets in a trajectory. however, if you believe (like me) that the planet actually *attracts* the solar wind, and that attraction happens in response to what is happening vibrationally on the planet. what that means is that during that event, where the image popped in in 3d space for me, and almost certainly it went viral, a whole lot of extra resources was attracted from our environment and that manifests in the form of solar wind and then the resulting geomgneic storm.
+
+or, rememeber the huge solar outbreak that happened in 2017 when I went to the confrence in missouri? well, during that time the ambient xray flux was at a c-class flare. that's not "solar minimum" behaviour. it seems that solar flares happen in response to massive amounts of mental chaos in the sector of logic, and is probably the reason why there are so many health risks related to high solar activity. they seem to be mutual. solar wind increases in density, speed and temperature seems to be related to desire. they produce geomagnetic storms which seem to me to be the kind of "orgnisation" of these desires and resources into a more meaniful physicality.
+
+obviously LOA has all of this under control, but all of these different interactions *will* have a physical manifestation, and I think the sun and solar system is a reflection of it. speaking on the subject, I have no evidence to back this up, but it seems that the sun is emitting massive amounts of energy -- yet we're supposed to be in solar minimum. the sun is quiet in the sense that there are few sunspots, however, I think the whole corona is probably 5-10 times brighter than it "should" be -- and NASA probably thinks it's a data error because it doesn't fit their 11-year solar cycle so they've likely adjusted the detectors down to where they "should" be.
+
+on this subject further, I watch the sun quite a bit and I notice that at various times, the entire sun brightens, and few of the solar flares that I've seen before while it's flaring, it's easy to look at the big eruption, but simultaneously the entire sun brightens for the duration of the flare. the flare that happened yesterday I think was recorded as an m-flare over the limb, yet I think that the solar irradiance is about 10 times less than reported, so it would have been around an x-class flare *over the limb* which is massive, because the majority of the flare was not visible to us -- and I think the reason why SDO was cut out was probably because the whole sun brightened while it flared.
+
+to summarise: I think that x-ray flux correlates to mental chaos in the sector of logic, and this flare happened around the time of the broadcast which was logical chaos. the ambient brightening of the sun, I think is a reflection of the ambient mental chaos in the form of logic than ever before. I'm sure that there are more people than ever that are getting exhausted going back and fourth on a subject trying to figure them out logically, and the sun reflects that.
+
+---
+
+I went to all that trouble to essentially to say that because it seems there is a lot of telling data being hidden, clear scientific misinformation giving the message that it's business as usual and things are still chugging along at the glacial rate of billions of years timespans -- when the evidence (which most of it is hidden) seems to be telling the story that things are accelerating an a mindblowing rate and no one has any control about what's going to happen.
+
+I also wanted to say all of that because it ties into what I was talking about on the 27th with john-michael about the rotation speed of the earth wanting to speed up, and the deliberate slowing of the rotation of the earth so that things appear as if they're chugging along just as they always have, is actually the reason why the magnetic field is weakening.
+
+there are a whole lot of things that are happening in the environment that are completely out of their control -- yet they really need to control the conditions to be able to feel good, so as a result, they're really spelling out the disaster, preparing for it and trying to find their way to survive it. they're attracting a huge cosmic event coming up here soon, and if you'll watch ben's videos they appear to be related to the polarity change in the galactic current sheet.
+
+---
+
+meanwhile all of this is happening, they absolutely cannot allow any of us to be out of their control, and they want to be able to control he conditions in a way which gives them the illusion of control over some conditions. as a result, they cannot allow any of us to get connected in this increasing energy, and so like is happening to me now, they have to keep exerting such a tremendous force in opposition (pushing against, destructive interference) to neutralise the increasing energy in each of us. however as our cork keeps rising, they will need to keep pushing harder to keep up the illusion that we're all just normal humans and that nothing amazing is taking place on this planet at all.
+
+let's recap: I believe they're pushing against the rotation speed of the planet, people's energy rising, and the increasingly extreme climatic conditions caused by extra solar irradience (and wind). they could just give it all up, let the earth rotate at the speed it wants to, but then electricity (as school teaches it) would be completely invalidated, same with our concept of time and our cosmology of billions of years -- so they can't do that. they can't let people have the ability to create things with their mind, levitate or manipulate energy, either.
+
+they're exerting a tremendous amount of energy to push against all of these things from happening, but they have no choice to do otherwise, because the only alterative of letting go, would create a reality so miserable for them to live in, they're simply *forced* to keep up their charade.
+
+it's probably going to build up up up up, giving more attention to the evidence that the "killshot" or whatever happens, until their worst fears are realised and everything makes its transition into pure positive energy (step 6).
+
+I believe that this planet is going to increasingly become a more and more mega step 5 masters training ground as they grapple more and more strongly to trying to control the conditions that they can control to hang on to their own self-deception of being in control of those creating by default by controlling the conditions they can control.
+
+THIS IS 150% PURE SPECULATION!!! YOU MUST TAKE THIS WITH A VERY COHERENT AND LUCID FRAME OF MIND TO READ WHAT I REALLY WROTE!!!
+
 ### 2020-05-24 ??:?? - sumerian gods reflection
 ### 2020-05-28 ??:?? - new thought experiment:
 - what if I were to meddle in raquel's experience?
