@@ -10624,6 +10624,11 @@ I believe that this planet is going to increasingly become a more and more mega 
 
 THIS IS 150% PURE SPECULATION!!! YOU MUST TAKE THIS WITH A VERY COHERENT AND LUCID FRAME OF MIND TO READ WHAT I REALLY WROTE!!!
 
+
+### 2020-05-29 12:46 - why do I recommend ben's disaster playlist but don't watch it myself?
+
+his playlist is more oriented toward the disaster end of the stick. I don't doubt that those things are happening, and think they're very real. I just don't think it's a disaster. I believe it's going to be the most amazing thing that happens to this earth and its inhabitants. it's sorta like the death experience.
+
 ### 2020-05-24 ??:?? - sumerian gods reflection
 ### 2020-05-28 ??:?? - new thought experiment:
 - what if I were to meddle in raquel's experience?
