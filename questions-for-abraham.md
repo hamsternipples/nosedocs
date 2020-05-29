@@ -650,3 +650,15 @@ I like to think of the primary coil as a simile to the human environment, and ea
 the way I understand it, if the secondary were not connceted to ground, no current would flow. yet, if you created a "virtual" ground, then energy would simply accumulate and not go anywhere -- sorta like static elecricity or a capacitor.
 
 you have to give the non-physical energy that your desires summon a place to go :)
+
+### 2020-05-28 23:41 - (2020-05-28)
+
+#### (58:16) - collapsing the wave function
+
+they set it up perfectly when they were talking about the collapsing of the wave function when they said that the particle remains as energy even while it's been "collapsed" into a reality, and two scientists could observe the same energy and perceive two different things...
+
+so then, when they said, «and then your inner being [...] stand in anticipation of your allowance of your perspective of what you've asked for, understanding that the energy will, not collapse into, or *not transform for all to see*, but for you to see -- and when enough of you are feeling the emphasis and power and stadiness of ease and love and interest and satisfaction, then *your world* evolves to that»
+
+this "scientific" explanation is perhaps the best way I could describe a "time split" -- the energy exists but two scientists could perceive enirely different things out of the same energy depending largely on where the perspective of the scientist is at. they were saying just that and giving the explanation of how to do it throughout the whole broadcast, but must importantly when they were talking about the rain. when you make the transition from why it's something undesirable, to what is desirable, then you can make that transition and "collapse" the energy into something that you will perceive, and it may not necessarily be the same thing that everyone sees.
+
+the reaction that I'm getting doesn't like the whole thing that we're going to have unique experiences because that seems like something unknown or uncontrollable (I'm probably picking up the reaction from nosebook). the collaboration of scientists will all see the same thing as long as they have a grouped hypothesis. you can join with the scientists, or you can mind your own business :) *I* personally recommend the latter.

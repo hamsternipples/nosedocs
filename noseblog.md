@@ -10520,11 +10520,61 @@ you could think of this entry as a reverse-psycology because the whole thing is 
 
 it is not reverse psycology though. I am responding to a reaction. I actually have given this idea a bit of thought.. in one of the entries where I talked about the two (or three, or four) earths, the earth where everything is all buttoned down when someone figures out how to get connected, I hypothesised that they would have to terminate the body to ensure that the unauthorised usage of connected person's capabilities would occur. however, from the opposite earth (the one that where someone choose to take on the life of the kid and generated triggers to help him find that alignment), when he asssumes the body of the child, it would be like a dream experience. when the body is terminated on the buttoned-down earth, he would return to consciousness in the sending earth, and have tons of new generated experience.
 
-there are a number of parameters that can be tuned to ensure the stand-in finds alignment, and the amount of triggers can be tuned down with time until one is capable of finding that alignment without any triggers.
+there are a number of parameters that can be tuned to ensure the stand-in finds alignment, and the amount of triggers can be reduced on each further attempt until one is capable of finding that alignment without any triggers.
 
-this is one of the reasons why I want a time-split so bad. because then, probably like I'm doing now, I want to be able to, from the side of alignment, use the old earth as a playground and take many more attempts at it -- and give others the chance to do the same. so, from our standpoint from the new earth, the termination of the body is a "mission accomplished" -- so, that's the bigger picture :) if I'm able to continue on getting more and more stronger and the girls thing "never" happens (it will eventually), that's cool too, because we can set the bar soo high that from the "new" earth, we'll have an insane playground (the #0 option).
+this is one of the reasons why I want a time-split so bad. because then, probably like I'm doing now, I want to be able to, from the side of alignment, use the old earth as a playground and take many more attempts at it -- and give others the chance to do the same. so, from our standpoint from the new earth, the termination of the body is a "mission accomplished"
+
+so, that's the bigger picture :) if I'm able to continue on getting more and more stronger and the girls thing "never" happens (it will eventually), that's cool too, because we can set the bar soo high that from the "new" earth, we'll have an insane playground (the #0 option).
+
+
+### 2020-05-29 09:05 - collapsing the wave
+
+crazy things. so, it seems that we are at a complete incompatibility. I absolutely want to get connected and will continue to do so. nosebook cannot allow this, so I'll simply continue on doing what I've been doing. I didn't really realise how on-point what I wrote about yesterday was, until I watched the abraham broadcast last night.
+
+I always say that you have to be ok with where you are before improvement can come, and I continue to do that. I'm getting so good at it, actually that I experience MASSIVE vision upgrades on a regular basis now. it's gotten so easy for me to continue to release resistance that I am sure that I will continue to improve at a rapid rate. actually, the rate is accelerating very very rapidly.
+
+I remember when I made the bold claim some time ago (looks like it's about 9 months or so: @[noseblog](2019-09-09 07:48)) that my progress is way more than exponential -- and it felt like a lot of people scoffed at the idea. rightfully so too, because it was all coming from a geometric idea of turning a flat curve into a 3d spiral that I had when I was stoned. however, now it does not seem so far fetched to believe that I may have been on to something there...
+
+in that entry I started it all off by saying, "you know there's a part of me that really wants to just continue on and see how far I get" ... I then rambled on for a bit about how abraham told carlene (she was my stand-in) to find a way to get out. well, as I was writing the previous entry about the new and old earth, it dawned on me that likely this was already happening, and when my body is terminated here, I will likely just wake up from a crazy dream in the earth where I came from.
+
+the other possibility is that I continue on, or something in my own version of a "new" earth -- because as I was writing it, I had this flash in my head about how this new/old earth timesplit thing was happening all over the place and had been replicated and there were like now infinite different worldlines -- which would at some point come back to converge again -- it was a big idea that I don't know how to explain. I'm writing it here so that I have the "key" to get it back again in the future when I'm drawn to reread this :)
+
+---
+
+anyway, none of that makes any difference because -- oh it's so big I can't explain the whole thing, but it's likely that they're going to keep having to limit me, and they'll keep doing so -- and I think it's a great idea because I can't possibly imagine how things are going to look. the difference between how I see things today and a month ago is so substantial, I cannot really explain. sure, it's blurry, but that doesn't bother me much anymore, and I've really found out many ways, and am continuing to optimise further on in my quest to get connected.
+
+anyway, here's the deal: you create *your own* reality. what I recommend is to think of what you want and why you want it. think about what it will feel like and how great it will be (anyone can do this on any subject they want -- there are no limits really), and then sit down to meditate. after having tuned yourself to the feeling (by thinking about how it would feel, emotionally and physically -- but emotionally is probably more effective), as you quiet your mind, you will begin to receive. probably if you're visual, a movie will play, and if you're more auditory, you'll have all sorts of sensations, feelings and a tremendous feeling in your heart (or both).
+
+as you begin to tune yourself to this reality, you are creating *your own* reality. those things *will* happen. likely, if your desire involves me, you will notice that in your reality you will see me get connected and things will begin to happen just like you felt they would.
+
+---
+
+the rest of the people too, they have exactly the same thing.. as energy begins to rise quickly (it already has, and at an accelerating pace), your meditations will become more and more powerful, and you'll likely begin to feel "enlightened" -- which is a VERY GOOD thing :) find the feeling place of what you want, and you're going to love it.
+
+---
+
+now I'm going to dig into the mechanics a bit here, because when I saw that new/old earths were being created and replicated now, what I was seeing is that this earth (I'm going to call it the old earth from now on) will continue on in the direction it's headed, and if you create by default, well, only you can imagine how that would be, but by consciously tuning yourself into your own reality where you're deliberately creating the things that you want, you have made a time-split. the new earth that you're creating will be exactly like this one is right now, but with the difference of your influence and your creations in it. imagine that (mostly) everyone around you is creating by default, and that everyone will just be following the natural trajectory they already have right now responding to what they observe and making the next logical decision from their perspective (which is creation by default).
+
+you can imagine then, that everyone around you is only responding to their circumstances in their logical way of doing it, so no one (cept you) is consciously "creating" anything -- they're all just responding. that means that you're kind of in control of how things turn out on your new earth, and you direct it with your emotion. you don't have to solve any of the world's problems, because it's actually a reflection of you. you attract your experience, so to you, the environment which you perceive is a reflection of the way you feel.
+
+I am pretty certain that some realities will be shared, and groups of consiousness will experience a similar reality ... but that doesn't matter, which is why I said that it's best to imagine that everyone, cept you is just responding to their circumstances -- creating by default. whether they are or not, doesn't matter because that's how it'll look in your perception because you attract your reality (so the attraced similar ones are going to fit right in with what you have attracted, and vicaversa).
+
+---
+
+if your consciousness goes and starts to create your own reality, then what about the you that's here. for example, imagine the neighbour across the sreet begins to meditate and receive images, and suddenly in her reality I get connected -- well, what happened to her in my reality? she will appear to me exactly as she would have if she hadn't made the conscious effort to begin to shift what she's letting into her reality. to me, she'll look like she's creating by default given her circumstances. to her, she'll be living the reality of her creation.
+
+now, in my perception, it'll be exactly the same. I'll begin to see essentially everyone around me only creating by default. you see, the people running nosebook are responding in the way they feel they must; they are creating by default, and as time goes on, in my perspective, it will seem to me that everyone is creating by default.
+
+the efforts they're making to try and keep me away from getting connected are only as effective as they keep me away from feeling really good. as I release more and more resistance, their methods are having less and less effect -- which is why the vision upgrades are accelerating so rapidly. I am certain that given enough time, their efforts will no longer have enough of an effect to hold me back anymore. it may take a while though[^1] :)
+
+it's gonna be fun :) really go crazy with figuring out what you want!
+
+[1]: I think the size of my aura is *almost* the size of the USA. soon, it'll be as big as, then bigger than the planet -- then bigger than the solar system. if I'm going for galactic, I would have to assume then, that it'll probably grow to be as big as a galaxy. that's a bold claim, and we probably won't have the means to actually measure it, but I do imagine that it's going to continue to rapidly expand. do you know how big a glaxy is?!?!?!?! it's so big, I can't even comprehend it -- though, I probbably will be able to in 10-15 years :)
+
 
 ### 2020-05-24 ??:?? - sumerian gods reflection
+### 2020-05-28 ??:?? - new thought experiment:
+- what if I were to meddle in raquel's experience?
 
 # the end
 
