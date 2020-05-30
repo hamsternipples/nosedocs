@@ -10629,6 +10629,37 @@ THIS IS 150% PURE SPECULATION!!! YOU MUST TAKE THIS WITH A VERY COHERENT AND LUC
 
 his playlist is more oriented toward the disaster end of the stick. I don't doubt that those things are happening, and think they're very real. I just don't think it's a disaster. I believe it's going to be the most amazing thing that happens to this earth and its inhabitants. it's sorta like the death experience.
 
+
+### 2020-05-30 12:56 - what happens when the earth makes its transition?
+
+I have no idea, but again speculating here... I think what will happen is that I will become conscious in all of the versions of me that exist in all of the different timelines/worldlines.
+
+this is an interesting idea because it implies that all of you will do the same :) the way I imagine it happening is you  will sort of feel about like the "median" or "average" version of you. so if there are 100 worldlines, let's say, and in 90 of them the yous feel better and better as things continue on as things approach. as time proresses, you will feel better and better and (let's say the interval for this calculation is every year) so every year, every one of you will feel 9(?) times better/worse than the last year. this multiplicative improvement in one's own feeling of well-being will cause 90 of the you's that feel better to feel that much better, and 10 of the you's will feel that much worse.
+
+I would logically make the assumption that all of the yous that feel good will have many vision upgrades along the approach, because it seems to me that vision upgrades are directly correlated to how good one feels.
+
+I'm only making a correlation about what I personally know about, but I do know thst it's possible to utilise conditions to create pleasure and to feel good too, so I don't really know how that plays in, but I imagine that there will be a whole lot of that going on too.
+
+when the event happens, I think all of us will become conscious in all of the bodies that exist in all of the worldlines -- or better said, in all of the bodies that have found a way along the way to continue to feel good, and the rising energy didn't cause too much distress.
+
+I don't really know about what would happen to the people not on the network. I imaine that energy will rise for them too, but to a lesser degree, and probably just the same: they'll have to find a way to feel good -- however, that may be a whole lot easier if you're not all bogged down with the reality we in the 1st world countries bog ourselves down with... who knows...
+
+---
+
+I am a bit sad (but that sadness is only telling me I'm looking at it wrong) in the sense that, it means that on all of these worldlines, I will become conscious with the girls and they'll all be in their 20's (assuming no more continue to desire to be with me as we continue on). however, I suppose it's quite likely that I'm going to continue to become even more desirable as we continue on, and girls will continue to be born and stuff, so it's probably all good.
+
+the interesting thing is that since each of these "new earths" that are born are all going to come out of people who are deliberately creating, and not creating by default. they don't all have to be about me either -- yet, I think that likely in most/all(?) of them, I will get connected. again speculating, I think this "old earth" will remain the one where I don't get connected essentially all the way up to the event, and will be the "bouncing off place" for people, knowing what they don't want, to begin creating their own reality. I think there's going to be a whole lot more than 100 worldlines, and on all of them, my perception will conitnue to rise, too.
+
+what's interesting to me is that all of the worldlines will be a reflection of each of these deliberate creators. none of them are going to be perfect, because none of us are perfect, and contained in each of these worlds, the world itself will be the contrast betweeen wanted and unwanted, which is a reflection of the deliberate creators there, combined with the increasing energy that I provide to intensify that contrast, making each of these worldlines a unique reflection of these deliberate creators.
+
+what's even more interesting to me is that we're all going to become conscious in all of each others worldlines and experience ourselves uniquely in each of them. it's a really interesting thing to think about, actually.
+
+#### why do I think that in all of the worldlines, I get connected?
+
+the reason why I think this is the case is because I think that if nosebook weren't doing what they're doing, I would already be having a multi-bodied experience, and so therefore, I would already become conscious in all of them if they were to let go. they won't though, and it's likely that the reason is so that there are more people than just me who can enjoy the coming event as the best experience ever.
+
+so then, if in all of the worldlines, I get connected, and this "old earth" is the very last one which I do, then it opens the space from I'm guessing 11-11-2019 when I think I made it up to having a multidimensional experience (even though I don't experience it), all the way up until probably the very last moment when the event happens and their system can't hold anymore. on each of these worldlines, people all around will rise right along with me
+
 ### 2020-05-24 ??:?? - sumerian gods reflection
 ### 2020-05-28 ??:?? - new thought experiment:
 - what if I were to meddle in raquel's experience?
