@@ -662,3 +662,27 @@ so then, when they said, «and then your inner being [...] stand in anticipation
 this "scientific" explanation is perhaps the best way I could describe a "time split" -- the energy exists but two scientists could perceive enirely different things out of the same energy depending largely on where the perspective of the scientist is at. they were saying just that and giving the explanation of how to do it throughout the whole broadcast, but must importantly when they were talking about the rain. when you make the transition from why it's something undesirable, to what is desirable, then you can make that transition and "collapse" the energy into something that you will perceive, and it may not necessarily be the same thing that everyone sees.
 
 the reaction that I'm getting doesn't like the whole thing that we're going to have unique experiences because that seems like something unknown or uncontrollable (I'm probably picking up the reaction from nosebook). the collaboration of scientists will all see the same thing as long as they have a grouped hypothesis. you can join with the scientists, or you can mind your own business :) *I* personally recommend the latter.
+
+### 2020-06-01 01:38 - (2020-05-30)
+
+#### (13:37) - cable ready kids
+
+when they were talking about the youngest ones adapting so well to your tecnology, they were obviously meaning the network -- and when they said it, I had this feeling which I don't really know how to describe, but it kinda felt like there was a whole lot of noticing that the network is perceived by many adults to be a pretty bad place, and the kids love it, but they're loving something naïvely, and it felt like a place where most adults don't really feel like they have any control over what is happening in their kid's heads, and the people operating it don't really have their best interests in mind. it felt really sad and out of control for me.
+
+after that, there was this secondary feeling like now all of a sudden something that was going to soothe their feelings of uneasiness (me), was now not going to be participating in the way that they thought I would, and so now, they no longer had an excuse or a way to feel good about something that they perceive to be a devious and manipulative system of influencing such naïeve children.
+
+however, I know that "things are always working out for me" -- and I know that it's really not as bad as we imagine it to be -- because really, they can't think for you; sure they can put thoughts into your head, but you only receive them if you're resonant to that vibration to begin with -- and they certainly cannot feel for you. they can neutralise a whole lot of visceral (physical) feeling, but the more subtle vibration behind it is still there.
+
+---
+
+I had a realisation after that experience feeling those things that I still have, to some degree a sense that these kids are being taken advantage of -- which from a non-phsical perspective, that is clearly not the case.
+
+so, let's take the example of this new racism thing in minneapolis (57:44) or the example of the flat earth frenzy that happened back in 2016 (or the covid-19 frenzy). it feels to me like they have attached certain emotional triggers to these things to focus (distract) the person by focusing their emotion toward something which they can push against.
+
+abraham said in the last episode that esther wept for quite some time after seeing it -- which means two things to me: 1. the sensitivity of people is so greatly amplified probably because of massive amounts of DMT in their heads and 2. that normally, they probably have people's sensitivity turned way way down, like they do for me on almost everything. so, when they put the emotion in the person and allow the person to feel it at full volume, it feels very very very real.
+
+ever notice how in a dream (you have lots of DMT in your head during a dream) when you witness something, it feels much much more real to you, and that's cause the emotion is so much more intensified (the effect of the DMT)? well, when the emotion feels that strong to you, it feels real. any more strongly feeling, and that emotion would begin to become manifest in some physical form. esther wept considerably, but that could have only happened if esther was already resonant to that emotion in the first place.
+
+so, sure the kids are naïvely using a new technology that's tossing them about on the neworked controlled sea of emotion -- and certainly there's going to be a whole lot of (perceived as) "bad" things happen as a result, but there's no better way to learn how to direct and control emotion that feels real like that, than by having the experience of it. I'm sure that the next time esther will not have nearly as much of an uncontrollable reaction to it.
+
+I think this was my first time really beginning to see things from the eyes of source. I think I'm making pregress :)
