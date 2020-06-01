@@ -685,4 +685,4 @@ ever notice how in a dream (you have lots of DMT in your head during a dream) wh
 
 so, sure the kids are naïvely using a new technology that's tossing them about on the neworked controlled sea of emotion -- and certainly there's going to be a whole lot of (perceived as) "bad" things happen as a result, but there's no better way to learn how to direct and control emotion that feels real like that, than by having the experience of it. I'm sure that the next time esther will not have nearly as much of an uncontrollable reaction to it.
 
-I think this was my first time really beginning to see things from the eyes of source. I think I'm making pregress :)
+I think this was my first time really beginning to see things from the eyes of source. I think I'm making progress :)
