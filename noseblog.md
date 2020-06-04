@@ -10752,6 +10752,33 @@ that is all for now. I will continue more and will probably begin to turn this i
 
 [2]: pierre comes to mind as an example here. he's clearly french. he has a slight french accent when speaking spanish even, but to me he's indistinguishable from a spainard in a whole lot of ways.
 
+
+### 2020-06-04 17:18 - science of consciousness (feedback)
+
+#### where is all of this going? and what about our "inner beings"?
+
+well, if you follow the progression of the expansion of consciousness outbard, you kinda start reaching limits. how would you make human consciousness any bigger than a macro perspective of all human beings? makng a planetary consciousness bigger appears easy: you just go bigger into solar or glactic, right?
+
+to expand the consciousness from human, you must now begin to lose the shape of the human form. we are approaching "source energy" now at this point, because first you would lose temporal separation between all humans (that is, all humans that were, are, and will to be). after that, your "consciousness" needent take the shape of a human and could be "anything"
+
+there seems to be a continuing (and cyclical) expansion of consciousness in the spatial and the temporal components... say, you're an individual human consciousness now. you can go in two directions from there. you can go in the direction of the macro human consmiousness (that is to expand temporally), or the direction of the next biggest thing: planetary consciousness (that is, to expand spatially)
+
+right now, it appears like planetary consciousness *is* human consciousness, but that isn't necessarily the case as, it won't be required for humans to always inhabit this planet.
+
+you can think of macro human consciousness as a "source energy" perspective, because it involves your "inner being" and all of the other "inner beings" of all other humans that have and will live. just the same as all other consciousness units, you comminicate and receive direction and inspiration with this consciousnss unit through your emotions.
+
+if you were to gain planetary conscionusness, again the expansion of consciousness could go in the spaial or temporal direction, gaining solar focus or gaining a more "source-like" perspective of planets. obviously, we cannot comprehend this because we cannot even really comprehend what the macroorganism of a planet "thinks" about on a day-to-day basis (just like a soldier cannot comprehend the general's thoughts) -- so I'm not even going to try.. :)
+
+#### how do we tune to these different consciousness units?
+
+just like an empath, or someone remote viewing, you give your attention to the larger consciousness unit by giving your attention to it (like say a child observing their parents). you get to choose what you give your attention to, and therefore what were you receive your inspiration and emotional feedback from.
+
+#### do we get to choose our temporal or spatial expansion?
+
+of course! I imagine thaat some people (like me) are more interested in a more temporal "source-like" perspective, and others are more intested in being the biggest thing in control of all of the smaller parts (a more spatial expansion). I think both types of expansion are on their way in the coming years. you can already begin to think of nosebook as the beginnings of a macro consciousness of the planet. it may well go bigger.
+
+what's puzzling to me, is why I said I wanted to have galacic consciousness, when clearly you can see that I am much more of a temporally conscious being than a spatially conscious one. misterios.. I guess we'll just have to see
+
 ### 2020-05-24 ??:?? - sumerian gods reflection
 ### 2020-05-28 ??:?? - new thought experiment:
 - what if I were to meddle in raquel's experience?
