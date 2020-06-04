@@ -10697,6 +10697,61 @@ in summary, I think that it's a good thing that there are so many different type
 
 [2]: a process I developed in spain, sorta like remote viewing, but emotion based, where I would conjure the emotion of some situation in my mind, and then go around it and explore different aspects of the emotion involved in the situation. it really helped me to decode the events of the past -- hence the name, "descodificar"
 
+
+### 2020-06-04 09:22 - the science of understanding & interconnctedness
+
+so as I was arguing with john michael, I realised that all you have to do is to put the word science on something to sound official, and, like trump, you don't even need to know what you're talking about to get people to listen to you.
+
+however, I believe that I know what I'm talking about here, so I'll present the idea and let people choose what they want to believe.
+
+the science of consciousness (and many other sources), talk about how we're all very connected. this is the science of understanding how that interconnectedness works.
+
+whenever a bunch of (for a lack of a better word) entities begin to have increased communication between eachother, they begin to operate as a unit. I will consider this a consciousness unit.
+
+you can see this in your everyday life, for example you may notice that you feel more connection with perhaps your family or your friends than you do with others. by nature, you are not connected to *everyone* all at the same time, so it seems that you're conncted more to those that are "familiar" to you; those that you're the closest to.
+
+so, what does it mean to be "familiar" or "close" -- well, in the most general terms, it means the people (or animals you may the most attention to). if you're an empath (or someone with remote viewing capability), you can give your attention to something, and that thing starts to become familiar and you begin to feel what they feel.
+
+a consciousness unit can be anything really. it can be a group of friends, a mob, a military, a government, a political party, anything that begins to take on attributes. I'll explain this in a moment. first, we need to talk about communication
+
+#### how a concsiousness unit communicates
+
+imagine, for example in your family, your culture, or in a military service, whey you do not follow the expectations of the "unit" then you feel bad. somehow our emotions gives us feedback to tell us how well we are integrating with the consciousness unit. when you do something your mother does not want you to do, you will "feel" her stink-eye. if you are about to engage in something your father is critical of, you may feel his anger, etc.
+
+that is the most basic form of communication, however, if you've ever been close to someone (other than your family -- perhaps a signiificant other or something), you will notice that you can anticipate their thoughts, and even it's almost as if you can "read" their mind. once again, you will notice that this communication comes in the form of emotion -- you'll feel like you "know"[^1] what they're going to say.
+
+this can be most easily understood if you've ever experienced another culture as a foregner: it seems as if there's this expectation of how to use language and how to interact that everyone in the club, but you're kinda still learning. when you see people that, (for example very obvious seeing the germans in tenerife) have not yet adapted to the expectations dictated by the club, or retain a lot of the expecation from the culture they came from, when they speak, it's very clear that they're still quite a distance from having embraced the culture. other foreigners, however, have completely integrated into the culture[^2]. to really become fluent in the language, I postulate requires that one must, to some degree, emotionally connect with the culture.
+
+I hypothesise in this science that *all* cultures and other large groups of thought, such as sciences, mathematics, and technology (including programming) are all consciousness entities. a sensitive programmer can feel how a language evolves as new programmers begin to adopt it. it begins to take on a life of its own, and has a whole "feeling" associated with it, determined by both the semantics of the language (saftety focused, etc.) and by its users (hobbiests, nerds, systems programmers, IT tech support, mathematicians, or web developer bros, for a fer examples).
+
+#### difference in perception between the micro and the macro organsim
+
+I believe the easiest example I can use here will be one of the difference between the human and its cells or the general and the army. as a soldier down on the battlefield, you're in the nitty-gritty of the battle, or the hardship of being without supplies or whatever -- however, to the general, all of these microorganisms are just little bits accomplishing a larger goal; the nitty gritty details of the individual microorganisms are not perceived by the general.
+
+likewise, in your body, there are millions of cells in battle, trauma, dieing or whatever at almost any given moment in time, however as the human, you will only feel sick or healthy (and some gradient inbetween). just like the general of the army directing the macroorganism, the human, in the same way does not perceive each of the individual battles and conflicts that its cells are engaged in.
+
+#### the primary function of the consciousness unit (macroorganism) is to ensure its own survival
+
+you will notice that in all of these examples, from culture to programming languages, codified in in its consciousness unit is an automatic emotional response of a bad feeling toward any concept which would seem to threaten its survival. in computer programming languages, it would be some arbitrary set of rules of what is the "correct" way to use the language, or for a significant-other relationship this concept may be perceived interest in someone else, or some culturally dictated idea of romance, or maybe a parental (or disney) instilled expectaion of what such a relationship should "look like" to be a successful one.
+
+therefore, wheneever one within the consciousness unit notices another doing something that is perceived to risk the survival of the unit, a bad feeling (guilt, shame, etc.) is transmitted, to try and mitigate any threats to its survival.
+
+#### consciousness units go all the way up to the universe itself
+
+I believe that around this time, we as a human race are beginning to tap into the "human" consciousness unit. much like the human does not perceive all of the disaster and trauma inflicted to the individual cells by a small flesh wound in the hand, and continues on doing whatever it was it was doing previously, occupied by something much bigger, I postulate that there is a human consciousness unit and also a planetary consciousness unit.
+
+this makes perfect sense, because it never feels good: it always feels like anger, rage, hatred, when we kill each other -- and think about how many surviving organisms there are on this planet which actively destroy parts of itself. I can't think of any -- however there might be. the organism is usually more concerned with defending itself from invaders that cause harm and integrating invaders which can be of benefit. I don't believe it's a successful survival strategy for the organism to be at war with itself, and that's why I postulate it doesn't feel good; it's simply the macroorganism ensuring its own survival.
+
+we as humans (and the animals) also are a part of the planetary consciousness unit. therefore then, it makes perfect sense to me that it feels bad, and causes emotional distress when we pollute and manipulate the environment and the resources provided by the planet. it is my hope that one day we we will have a more consciously simbiotic relationship with the planet. I believe that before we begin to hook into the consciousness unit of the planet, connection into the human consciousness unit will come first (I postulate this for reasons I think would take some time to explain... it has to do with the inward/outward perception cycles).
+
+as we develop our tecnology and begin to be able to move aruond in the solar system, I'm sure that we'll begin to gain a greater connection with the solar consciousness unit as well.
+
+that is all for now. I will continue more and will probably begin to turn this into a proper document, but I wanted to start somewhere :)
+
+[1]: I need to explain better how "knowing" is an emotion: similar to belief -- which is most evident in a heated argument: emotions fly because each person perceives what they "know" -- which is really more of well practised thought than an actual knowing -- instead, you will notice that when you have that intuitive "knowing" -- you'll say, "I just *knew* it was going to happen" -- you felt it strongly. the feeling of knowing was your indicator
+
+[2]: pierre comes to mind as an example here. he's clearly french. he has a slight french accent when speaking spanish even, but to me he's indistinguishable from a spainard in a whole lot of ways.
+
 ### 2020-05-24 ??:?? - sumerian gods reflection
 ### 2020-05-28 ??:?? - new thought experiment:
 - what if I were to meddle in raquel's experience?
