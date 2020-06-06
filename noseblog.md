@@ -10836,6 +10836,25 @@ when I said that the whole goal of nosebook is to exploit the girls just like me
 instead, I meant that one must be able to accurately identify where they are on the map to be able to figure out where it is they want to go -- and then the only way to be able to make any movement in the direction of what's wanted, you must find a way to feel better about the presently crappy situation. it's the only way to be able to move in a more desirable direction, because otherwise you will just keep spinning around in circles of injustice and unfairness, and it will never get better.
 
 
+### 2020-06-06 12:06 - little more on exploitation
+
+one of the reactions to what I said was that sometimes it hurts a lot to accuraately locate where you are on the map -- and they're absolutely right: somettimes it does hurt a lot to accuately figure out where you are -- but, that's when you have to be general about it and say stuff like, "any way north of here is an improvement" or "it feels like this is a step in the right direction".
+
+when it comes to the using the computer with my mind, I have to to think that making my own solution is such a big undertaking, it feels too big, and just hoping that they're going to create some special interface for us to use doesn't feel good either. I don't really know exactly where I want to go in that specific desire, so I just leave it really general because there are no solutions in sight, so it would be silly to try and figure it out now.
+
+for precisely this, and many other reasons I have often had the idea floating around in my head that I want to fund it. the main reason for it, is because it takes the whole idea of exploitation or being exploiter and flips it emotionally.
+
+the idea that they're going to provide for us some sort of "playpen" or box of sorts, where they feel like we are best contained and easiest to control, honestly feels a little bit more like a jail than a place that we created and where we're following our dreams.
+
+I was thinking this morning maybe the idea that I should fund it perhaps has a bit of resistance in it as well, and perhaps maybe a sort of collaborative funding would be in order. we would obviously do everything out in the open -- probably as github repos or something, and people could have quite an ability to collaborate along with us and to participate with viewership. I really don't know how it could happen, so again I'm just leaving it for now.
+
+---
+
+the most important thing I want to convey is that expecting the "offender" of your injustice to right it in some way with some sort of compesation, will only give you something that imprisons you more. instaed, flip it on its head and begin to live the way you want things without expecting the offender of the injustice to right their wrong in some way.
+
+the reason why I say that is, not to let them "off the hook" so to speak, but for you. if emotion is the precursor to manifest reality (wether in the imagination or in physical form), and I assure you, it is -- then you want to be finding a way to chnge the perception in your mind to a way that feels better to you -- downplaying as much as possible the problem in your mind. if you do this, you will feel better, and instead of feeling injustice or unfairness, which just creates more injustice or unfairness, now you can begin to have a path forward toward what's wanted.
+
+expecting compensation from the offender will only exacerbate the problem, as usually they have no intention of changing, anyway, and their compensation will only take more of the feeling of freedom that you want to feel away.
 
 ### 2020-05-24 ??:?? - sumerian gods reflection
 ### 2020-05-28 ??:?? - new thought experiment:
