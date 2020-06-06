@@ -10818,6 +10818,25 @@ to perceive, "once they figure the girls out, they'll be able to exploit them" -
 
 [1]: mostly I feel a srong sense that they do not want women to gain more power, but I include all people on the planet here, because this morning when I suggested the idea that we could just do all of the stuff but without sex, they didn't like that. they want me to *only* have sex, and not contribute my ideas, because they don't want people to actually know how consciousness works or any of my other ideas. they want to ensure people remain in the dark, and to keep them distracted with stuff like sex.
 
+
+### 2020-06-07 07:28 - exploitation
+
+I used the word, "exploit" because it was the closest word to mean what I say perhaps "take advantage of" or even something more slave-like, "not get compensated for something that they do". it's really hard for me to convey what I mean with that word, because it's got all sorts of difficulty in it. they don't just rip off my discoveries, but they also hold me away from getting them as well. they do it because they want to have an advantage, but it's frustrating to me because I'm not discovering stuff to try and hold it over them.
+
+for example, I *still* want to use my computer with my mind. I find it very cumbersome to use the keyboard, and I want to do large tasks at the speed of thought. this is a huge issue for me because I have wanted to do this for as long as I can remember. I have always fumbled around with the coordination to press buttons in the right order, but I know that if I could begin building simple building blocks of thought to perform actions on my computer, I could get going pretty fast, just like when imagining something in code, I don't perform the exact action -- I just think things like rename variable or move this to a function or put in an if-statement -- you know whatever.
+
+if I could edit code at the speed of which I think of these things, and teach the computer to do more higher-level things, then that would greatly reduce the time necessary to create a bunch of stuff. clearly, if this were able to be performed inside of my eyes at the speed of thought, you could really imagine how much fun programming would be. obviously they don't want me to be able to do that. they just want to take my visual capacity and use it for their super cool kids gang, and I have to use a keyboard and a mouse like a retard.
+
+---
+
+I wrote that part so you can perhaps see how much frustration I still have built up on the subject. I'm still in the process of learning how to release resistance to those things. I know that my inner being doesn't feel that resistance, and my inner being is neither concerned that they are "exploiting" me, either.
+
+when I said that the whole goal of nosebook is to exploit the girls just like me, I didn't intend to say that it was ok, fair, good, or desirable. what I meant is that I attempt to properly analyse the situation and come to an accurate analysis of it. I don't recommend practicing self-deception. I don't want people to look out and try to paint "a happyface sticker" on a clerly undesirable situation.
+
+instead, I meant that one must be able to accurately identify where they are on the map to be able to figure out where it is they want to go -- and then the only way to be able to make any movement in the direction of what's wanted, you must find a way to feel better about the presently crappy situation. it's the only way to be able to move in a more desirable direction, because otherwise you will just keep spinning around in circles of injustice and unfairness, and it will never get better.
+
+
+
 ### 2020-05-24 ??:?? - sumerian gods reflection
 ### 2020-05-28 ??:?? - new thought experiment:
 - what if I were to meddle in raquel's experience?
