@@ -10779,6 +10779,25 @@ of course! I imagine thaat some people (like me) are more interested in a more t
 
 what's puzzling to me, is why I said I wanted to have galacic consciousness, when clearly you can see that I am much more of a temporally conscious being than a spatially conscious one. misterios.. I guess we'll just have to see
 
+
+### 2020-06-05 21:13 - I'm all over the place
+
+I slept most of last night, but got up to watch jupiter. it took me a bit but I got there pretty quickly. the sun came up and instead of going out to the field, I just went to sleep. I woke up feeling pretty terrible -- which was a pretty big contrast to how I felt when I was with jupiter. I woke up with pretty terrible depression, because I felt as if there simply wasn't anything that could be done; I would just keep getting the rug pulled out from under me -- because it seemed like every time that I felt like things were beginning to happen, they would kind of reverse on me.
+
+I went with it (the depression) and decided that I'm just going to keep going the way I know how to go, because it doesn't matter if it happens or not, it's still essentially the same path.
+
+I think at some time later, I felt a bit better -- but for no reason at all. I was still beating the depression drum and I really didn't care anymore because more and more I was beginning to see the bigger picture that there's no possible way that we could get close to having a working paradigm that's amazing anytime soon -- certainly not in this lifetime anyway, so it doesn't matter -- and to just learn to have fun along the way.
+
+that's kinda the whole point of what I was seeing, is that probably the whole nosebook thing is never going to get better, and I find it likely that they'll get the ability to move aronud in the solar system and clean up all of the stuff they don't want us to know about before letting us see the solar system. there's probably so much stuff they'll think they need to keep hidden that it'll only further their resolve to ensure we remain in a powerless state.
+
+in the same way that they'll be the first to go out into the solar system, I feel like there is a similarity there to my visual capacity because it seems like, and I don't really know how this works, but in my dream state it seems like I can see people I've never met before. how is that possible, right? like the solar system, this is definitely something I want to explore, but again, for whatever reason, they're there first, and making sure that the ones with actual curiosity to discover, cannot get there.
+
+I just don't care anymore. I don't know what is the right way. is it certain that they always get the good stuff first and hold it away from the ones with interest in it? it seems that's the case, or that they always get first dibs or something ... I don't care about not being first so much, it's just that if I don't get to actually do anything (they take it away or whatever) with the stuff I discover, why discover it?
+
+in that same sort of vibe, remember in the "what I want and why I want it" bit that I wrote? in there, I talked about how the most exciting thing for me was to be able to get into these girls' heads and figure them out, because I'm certain there is a whole lot to be discovered there.
+
+well, following the trend I outlined above, it seems likely that I won't actually get to use any of that stuff that I discover from them, and instead nosebook will take it and use it for their own benefit.
+
 ### 2020-05-24 ??:?? - sumerian gods reflection
 ### 2020-05-28 ??:?? - new thought experiment:
 - what if I were to meddle in raquel's experience?
