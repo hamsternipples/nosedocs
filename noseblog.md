@@ -10798,6 +10798,26 @@ in that same sort of vibe, remember in the "what I want and why I want it" bit t
 
 well, following the trend I outlined above, it seems likely that I won't actually get to use any of that stuff that I discover from them, and instead nosebook will take it and use it for their own benefit.
 
+### 2020-06-05 22:42 - vunerability
+
+(this is kind of a coninuation of the previous entry)
+
+as I'm listening to the "rampage" abraham ih giving right now on vulnerability, I was reminded of this. it feels like there is this feeling that if nosebook "figures the girls out" (by repurposing my revelations), then I feel a feeling of vulnerability in response to that idea...
+
+my original post was not focused on feeling of vunerability -- because that's sort of a given. if nosebook wasn't convinced that they couldn't exploit me and the girls further, there's no way they could allow it to happen. that's the whole basis upon their recent efforts to push against it or decrease its size: they do not feel like they are benefiting (by exploiting us), more than poentially we[^1] could gain from the experience.
+
+so, I don't have any doubt that they have full intention already of trying to exploit girls as much as they can from this experience. that seems obvious to me. what I was concerned with, was not that they would use it, because they clearly will, but that I wouldn't actually be able to use the things I did discover. that's the part that frustrates me.
+
+---
+
+regarding vulnerablity though, I had to get over this one pretty quickly. the more rapidly they figure out how my brain works, the more capable they are of trying to manipulate me -- yet I don't really feel like I'm all that manipulated by them. they try really hard to force a whole bunch of stuff through, but every time I get better and better at being more sensitive to what I really want, and what my inner being is broadcasting on the same subject.
+
+in their efforts to gain power over me, I have, in a lot of ways, transformed very considerably. sure they can figure out my thoughts pretty well now, but none of the important stuff happens in my thoughts anymore. sure they can know so much about my eyes as I star watch, but they're completely clueless to how I'm able to release resistance so easily. they may have learned a tremendous amount in effort to exploit me, but I've transformed and gained strength and emotional control far more powerful than they have accomplished with their puny machines.
+
+to perceive, "once they figure the girls out, they'll be able to exploit them" -- really is a pretty victim attitude which I don't endorse. it's probably the beginning of a transformation for females, so likely a really good thing. I really don't think it's a huge problem, and their inner beings most assuredly don't, either.
+
+[1]: mostly I feel a srong sense that they do not want women to gain more power, but I include all people on the planet here, because this morning when I suggested the idea that we could just do all of the stuff but without sex, they didn't like that. they want me to *only* have sex, and not contribute my ideas, because they don't want people to actually know how consciousness works or any of my other ideas. they want to ensure people remain in the dark, and to keep them distracted with stuff like sex.
+
 ### 2020-05-24 ??:?? - sumerian gods reflection
 ### 2020-05-28 ??:?? - new thought experiment:
 - what if I were to meddle in raquel's experience?
