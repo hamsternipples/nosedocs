@@ -10856,6 +10856,63 @@ the reason why I say that is, not to let them "off the hook" so to speak, but fo
 
 expecting compensation from the offender will only exacerbate the problem, as usually they have no intention of changing, anyway, and their compensation will only take more of the feeling of freedom that you want to feel away.
 
+
+### 2020-06-07 10:28 - spatial and temporal fear
+
+I had a dream last night where a guy was saying something -- kinda maybe asking me my thoughts on it. it sounded like they were trying to remove the fear response in a person. he went on to say something like, "you would think that the more you know, the less you would be scared of, yet we constantly find certain weird indescribable things that seem to cause peole fear"
+
+I thought that idea was kinda funny, but I really like it. before jumping into the difference between temporal and spatial fear (or confidence), I want to recognise the similarity of these srange unbased fears that you perceive even when your brain "knows" differently. it's a whole lot like my eyesight: even though I "know" that there are bricks that go up to about halfway on the triange parts of the blue apartments by the field, I still see them as blue. I may know here are windows on the tan houses behind those, yet I do not see them.
+
+it seems the visuals that I see in my eyes are not generated from a conscious part of my brain (which is probably good, because then I would need to be conscious for you guys to be able to use my visual capacity). it seems that some of the most important "functioning" of the brain seems to happen even when you're not conscious -- and that your consciousness is only there to kind of "guide" or direct all these unconsious processes.
+
+---
+
+now, why would my brain decide that the houses are going to be blue, even when I know that they do indeed have bricks? it seems that this occurs because the information that the brain does have (I don't know what I really see, but I'm assuming it's probably something blue on the horizon), so given the information that it has (colour and shape), it makes the resaonable assumption based on that to create the image.
+
+in the case of a fear-based response, I would assume that the same thing is happening.. and given the information the brain is given, say it's spiky legs on an insect, because anything spiky coming at you means danger, you will feel a moment of fear as your brain puts simple concepts together rapidly to keep you alive. likely the way to change that would be to actually alter the DNA of the organism to no longer have that response.
+
+---
+
+this brings me perfectly to my definition of temporal confidence (or fear). imagine all of the monkeys in the past who have went to swing from a branch and missed. a long time ago high up in the jungle canopy, those surely fell to their death. evolution has produced over time monkeyes that have the confidence to swing through the trees like that and have confidence that anoher thing capable of being grabbed will be there.
+
+there is a part of us that is more confident than ever, and you see it in the kids. they are more sure they can do stuff than most adults are. most adults teach them to be cautious and to not have this confidence anymore, so they begin to lose it. or, let's say they're someone looking at statistics and noticing that X% have this undesirable thing happen to them, like death. let's take driving a car for example -- that's plenty dangerous, yet people do it all the time.
+
+you can run statistics and see that there are a certain number of mortality rates driving a car and under certain infuences (drugs alcohol, etc), but yuo can also see the reverse statistic is true of people driving just fine under those same substances. while the substance does increase the risk, it is certainly not the cause of car accident fatality. until statistics gain better understanding of "why", there will always seem to be these strange occurances which seem to defy our understanding of how these things happen.
+
+for example, I don't think that car statistics take into account the way the person feels, or how much fear the person has had of accidents (or other risky things in general). has the person been feeling like their life (or something that is really important to them) is being taken away from them? maybe the person was sevelrely depressed and that was their easiest way to reemerge into non-physical without going through some terrible illness which would eventually take their life...
+
+thing is, if statistics were to look at those things too, it would probably be found that most deaths are pretty unique and not able to easily be categorised as action = result, eg. drinking = car accident (for example) -- which if emotion, and the past summary of what sort of things their thoughts (and what they've been giving their attention to) have been making them feel -- were all to be accounted for basically makes statistics almost useless in the sense that one can no longer label certain action as good or bad. instead one must give the "bad" label to the feeling or the thought pattern which attracted the result.
+
+---
+
+next up, I want to talk about what I meant by temporal expansion of consciousness. I don't have a good word for it; I want to use "species" but that's too big, so I'll use the word "genus" -- but what I mean by it is actually much more general and specific than that. each person is their own genus, yet they also relate to others on many different factors imposed by the DNA and also imposed by the environment. these factors are like overarching consciousness units, and let's say brown hair is one of them (which is a member of human hair), and the consciousnses unit is direcly involved with the improvement of this hair type, finding different compatible hair products and methods to create the nicest hair. people with this hair type will get inspiration to do things with their hair that they hadn't already thought of. (perhaps a good way to see this could be thought of as similar to sheldrake's morphic resonance).
+
+within the species of humans, there are zillions of different overlapping consciousness units, and each of them is constantly improving. however, along the way there have been a number of failures that have occurred. these bugs get worked out of the code until it becomes less and less likely to occur, and for the one making the failure, you must know that the consciousness units involved in the improvement of the those genuses, have already come up with improvements, which the one making the failure can (if they want), be the first to find the improvement, but don't worry because future generations will benefit from the improvement automatically.
+
+the confidence in the ever improving genuses of you that you exist (I'm speaking physically here, but one can imagine that this is also pretty similar to how "source energy" works) is something that you you seem to be born with, yet gradually lose with time as you focus on things that don't see things as always improving.
+
+I have often wondered why someone might not have desire to improve yourself. I postulate that it is because improvement feels like change and that feels risky, so doing things that involve different things (even if the brain "knows" they're an improvement, perhaps similar to missing thumb, the brain universally categorises it as something to be afraid of). personally, I have found that it's *more* risky for me not to continually improve. in so many situations of my life, I don't have the ability to desire stability -- and if I had've, I would be in a much worse spot than I am right now.
+
+---
+
+following the pattern of the expansion of consiousness, one might be able to expand vertically or horizontally. I labeled them previously as spatially and temporally, but I think here, I'll call them vertically and horizontally in reference to sever scaling: you can increase the size of the specs of the machines (vertically), or you can increase the number of machines running in parallel (horizontally).
+
+it's a funny thing, because I postulate that one cannot expand the size of their consciousness vertically if they have fear -- in fact, letting go of the fear is exacly what is required to expand someone's consciousness so that they "see more", most resistance is fear and it's all completely unbased. the wider your consciousness expands out to, the more you see yourself (instaed of seeing only through your eyes) from the same vantage point of source, and so the less and less there is to fear.
+
+the irony of that is, you could imagine how compelling it would be to increase in size of consciousness for someone who has a lot of fear. a human is at a whole lot more risk of death than say a planet is. lots of things happen on the surface of a planet, but it really would take quite a force to get rid of a planet. we have the evidence of the kuiper belt to tell us that at one time a different planet existed in the 5th position there, so we know that planets can be destroyed.
+
+science says otherwise, but I don't believe that suns run out of gas or explode. when they nova, they come right back and get stronger. also, they're a gas, so they can't run out of it :) suns seem to last pretty much forever out there -- but I suppose it would be possible for a sun to "die" in some way (I kinda doubt the galactic "merger" concepts a bit, but anyway). finally galaxies seem to be the most robust of them all. let's say in a tragic collision of two galaxies where each one loses tons of its stars, the galaaxy core itself still remains. you could say that a galaxy is most "immortal" of all life that we see.
+
+---
+
+so, that got me thinking: what if there was exactly the situation that's happening now, where someone (me) is providing a way for these guys to, instead of beginning to have temporal confidence in the improvement of their species, they are given a chance to expand the size of their consciousness. I've been saying -- and even wondered why in a previous entry why I want to expand spatially, when I'm much more of a temporal person -- that I want to expand into galaxy size consciousness. that always seemed funny to me...
+
+now *what if* the whole reason was not go get me to galactic level of consciousness, but to get the nosebook guys up there? following the discussion here an interesting thing is happening because like I said, galaxies are pretty much uncontested. there is nothing that really threatens their existance. so, what if you somehow gave these guys the ability to expand their consciousness spatially so big that they could control a galaxy (kinda like how they're already a bit the macro consciousness of the planet, and potentially very soon the solar system), *what if* they were able to be able to become the macro consciousness of the galaxy?
+
+who knows, really what that would be like and maybe they'll find that kind of size something that feels good, and cosmic timescales to be something that feels stable... dunno. anyway, I did have an interesting idea because what if being the the biggest (essentially immortal) thing in the known universe *still* wouldn't allow them to quell their fear and they continued to believe in their imminent destruction?
+
+well, LOA doesn't lie, so it *must* attract something that were able to challenge their survival in some way and once again make them feel insignificant again, and so they would have, in that process, created something even bigger and more magnificent than what we know as a galaxy. it would, following the size patterns, be something closeer to the size of the universe, but inside of this universe, creating enormous expansion. these big things are hard for me to think about, but these guys are such such strong and dilligunt thinkers; their focus so incredible, *why not* give them the opporunity to create something that big??
+
 ### 2020-05-24 ??:?? - sumerian gods reflection
 ### 2020-05-28 ??:?? - new thought experiment:
 - what if I were to meddle in raquel's experience?
