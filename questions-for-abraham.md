@@ -731,3 +731,35 @@ even though, I think that "peace" (needing to defend one's difference of opinion
 #### (53:10) - life is not a comptition because...
 
 I wanna try too :) I would say, "life is not a competition because every person has their own individual metric of what is the best -- and the means to achieve it"
+
+### 2020-06-08 01:25 - (2020-06-06)
+
+#### (08:15) - butterflies and blue glass
+
+as they're preparing to tell the story that we've all undoubtedly heard numerous times, as they were setting it up, I remembered another time that they set up the story by saying that she wanted a fortune teller, they said... «she was not wanting to hear from us how to create her own reality. she was wanting to profess her discomfort in things thatwere missing and she wanted us to put them into place» ... and as they were saying that, this image popped into my head of someone quite similar to how I would imagine mr. motor to be -- the closest real-life example of the feeling I felt this person to be like was similar to marcos.
+
+anyway, that person clearly just wanted to be told the things that should be done and didn't want to use any conscious effort to begin to mould and direct the energy with their thoughts. I could feel the discomfort and anger that this person felt as they were beginning to feel as they tell the story, to where at the end, we know she hangs up the phone.
+
+---
+
+I always wondered what was the catalyst to having such a tangible manifestation for something esther had such little energy invested in it. well, it became obvious to me as they were talking, that this woman provided the strong energy needed to make such a tangible manifestation happen by her anger, frustration toward esther and what a crappy fortune teller abraham was.
+
+there's a bigger thing happening here that this story was telling me, because these step-1ers like this woman provide significant energy into the tanglibleness of the manifestation by their pushing against.
+
+---
+
+in the story, what abraham does is has this woman focus for a minute or so on some things that were easy for esther to realise as a manifestation. they did this by having her focus on the different types of blue glass, the different colours, opacity, etc. same thing with the butterflies and the feathers.
+
+this woman probably stormed away from the telephone conversation saying, "this is so stupid! I ask about these big important problems that I have and they want to talk about blue glass and butterflies.. what a crock!"
+
+abraham also groups subjects and topics together, so it's important to note that all this comes right after a questioner asked the question, "why does it seem like the opposite thing happens when I speak what I want"
+
+---
+
+it's really interesting to me the subject of "allowing" -- because the best state is one of contentment or satisfaction, one with no strong energy in either direction. I have noticed in my own life that when I talk to others or even let the thought become an intention (kinda hard when people are listening in on my thoughts), I notice that the opposite seems to happen a lot of times, and it seems that it happens most when I am feeling either really good or really bad about something.
+
+there really is an art to lightly desiring something and experiencing satisfaction over even good feeling or strong pleasure or something. I haven't quite worked it all out, but when people see you feeling that good, they can have desire for the opposite to happen to you -- which just puts more energy into the manifestation, and only really delays it and potentially evolves it into something even more desirable, so it's not really a big deal anyway.
+
+I want to revisit this subject in the future after I've figured more of these subjects out. I purposefully didn't make all of the correlations that are there in this story. it's quite intricate in how simple this story is, but describes energetic interactions so well.
+
+it's also worth noting that following this story is the topic of appreciation, where abraham talks about introducing other vibrations into the mix
