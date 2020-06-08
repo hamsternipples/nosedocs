@@ -686,3 +686,48 @@ ever notice how in a dream (you have lots of DMT in your head during a dream) wh
 so, sure the kids are naïvely using a new technology that's tossing them about on the neworked controlled sea of emotion -- and certainly there's going to be a whole lot of (perceived as) "bad" things happen as a result, but there's no better way to learn how to direct and control emotion that feels real like that, than by having the experience of it. I'm sure that the next time esther will not have nearly as much of an uncontrollable reaction to it.
 
 I think this was my first time really beginning to see things from the eyes of source. I think I'm making progress :)
+
+### 2020-06-07 17:39 - (2020-06-04)
+
+#### (46:44) - wat?
+
+the person asked if the racial stuff was distracting people from their focus on the virus, and that's why it is diminishing. abraham follows up by saying,
+
+«we've been saying for a long time that if all of the people on the planet could find the same subject and push against it all at the same time, it would be the end of you»
+
+wat?? I totally missed the connection here. I understand both of them, but I don't see the connection. I'm going to think about it a bit more, but perhaps that was an encoded answer to the people in charge at nosebook...
+
+<conspiracy hat on>
+	if there was effort to try and get all of the people on the planet to to try and focus on the virus all at once, it could be that this whole race thing was a completely unexpected thing by those totally trying to run the show, because while they're trying to keep people feeling disempowered with the virus, all of a sudden the racial thing shows up, and now the disempowerment from the virus that people were focused on is totally thrown out the window, as people now want to get angry (better than powerlessless) and try to take their power back.
+</conspiracy hat on>
+
+interesting idea :) I have a feeling that some of john and my conversation may have also had a similar effect. lol, reminds me of what jerry said that he purposfully got angry because he thought it was the most productive thing that could happen in that moment.
+
+«which it will never be -- because, you're diverse enough varied enough, standing with enough different perspectives, that your diversity will cause that balance to right itself over and over and over again. this is exactly the obvservation we were talking about»
+
+
+#### (49:03) - vowel movement
+
+as they were talking out which side of the movement are you on, it reminded me of a gameshow segment that I made up called "vowel movement"
+
+the way you play it, so you see a word on the screen, and you remove all of the vowels... oh the idea came to me after watching the south park episode anyway...
+
+N_GG_RS
+
+ok, now you have to guess which vowels your "opponent" has chosen -- and your opponent is picked by the studio to be someone who is close to you, like say your wife or someone close to you. you have very little time to complete the puzzle, and you have to select the vowels which you think your opponent would see first, and they have to pick the vowels that you see first. if both of you pick the same vowels, you get a prize...
+
+in order to write this software, it's really simple: you just scan the dictionary for all words that have one or more vowel that can change.
+
+the secret to it is to make there be a time limit, so that people do not have much time to think about things which are "right" to say. there will be a whole lot of mundane english words in there, and with only a few seconds to try ad figure it out, when a taboo-looking word pops up, it'll always get the best reaction. so, in the example above if you thought that your partner would pick "NAGGERS" over "NIGGERS" (and they did) you get 50 points and the announcer moves on with a completely straight face..
+
+#### (49:36) - peace on earth
+
+I have never thought that peace would be something that is realised on earth, in the sense of needing to defend one's difference of opinion, territory, and posessions. although I do think that people can give up on the idea of posessions and territory quite a bit -- in fact, I think it will happen quite a bit as we move closer and closer to the realisation of the idea of being a "global village" (prophesied by mcluhan and popularised by leary). in order for that to become a reality, people will begin to respect each other's space, and what we thought of previously as posessions will become more in the sense of shared utility (think open source for ideas on how that could be). it's just that collaboration usually feels better than closed and guarded.
+
+don't get me wrong: I'm sure there will still be a whole lot of territory and possesion and guardedness happening especially within the state controlled entities, but it seems to me (and I've already seen a lot of it come out of this lockdown) that people are more approachable now (as weird as that seems).
+
+even though, I think that "peace" (needing to defend one's difference of opinion, territory, and posessions) is still quite a ways off, but in all statistics (even though the news would want you to think otherwise), violence is (and has been) on rapid decline. so, if "peace" to you means virtually zero violence, I think it's a lot closer than we think, honestly.
+
+#### (53:10) - life is not a comptition because...
+
+I wanna try too :) I would say, "life is not a competition because every person has their own individual metric of what is the best -- and the means to achieve it"
