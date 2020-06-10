@@ -10913,11 +10913,36 @@ who knows, really what that would be like and maybe they'll find that kind of si
 
 well, LOA doesn't lie, so it *must* attract something that were able to challenge their survival in some way and once again make them feel insignificant again, and so they would have, in that process, created something even bigger and more magnificent than what we know as a galaxy. it would, following the size patterns, be something closeer to the size of the universe, but inside of this universe, creating enormous expansion. these big things are hard for me to think about, but these guys are such such strong and dilligunt thinkers; their focus so incredible, *why not* give them the opporunity to create something that big??
 
+
+### 2020-06-10 16:10 - spectral sight
+
+> "those without eyes truly see"
+
+I woke up this afternoon from a dream where I became conscious because in the dream, there was someone in a red(?) (I think it was a racing) uniform that said something like, "hey kenny check this out" and then they toom off their hat or something. I imagine it was something like the end of the "supermode - tell me why" music video, but I became conscious because I didn't really know what to respond. I said, "you know I can't see, right?" then, after waiting for the reaction, I explained how far I've progressed since the original dream with raquel where it was pure black and she said she wanted me to contact her -- so I did.
+
+I wrote her an email, and then by the reaction from her email, it turns out that it was a sexy dream -- yet, there was nothing sexy about it for me. I just saw blackness. this really puzzled me for quite a while, however as time has continued on, I have begun to get more and more of a sense of what is happening in dreams, so much so that I awake from a dream where it felt like I was communicating with john michael's ex, and I it seemed like she had a striped orangish shirt, and when I went to (presumably) hug her, I becmame conscious when I touched her, because I felt a hole in her shirt and I didn't know what to do.
+
+nowadays, I have a pretty good grasp of what's happening in the dreams, and I've begun to notice that I have this capacity in the wake state as well. last night, for exacple, I seemed to be able to navigate around a big pool of water without much of a problem. this morning I returned to the spot and I looked at the ledge I climbed up to get out, and I was terrified because I could see the big pool of water just below. I decided not to go in the daylight, because I could "see" myself falling into it (and my shoes were a bit muddier).
+
+also, last night I fell kinda into a ditch, but not nearly as bad as when I was first thinking about that [TODO: find the entry], and as I was walking while talking about how I'm able to see when I'm blind, I faceplanted into a ditch cause I wasn't watching where I was going. anyway, last night, right before I almost fell into the ditch I did notice a bit of a sense that I should proceede with caution, and I didn't full crash and burn. it seems that, if I were more sensitive to those sensations, then there's a good chance I could completely operate without a problem without eyesight.
+
+I also noticed that there's another peculiar thing that happens when I have been dreaming -- it seems that they have been trying to condition me to be afraid of heights so that I don't fly in my dreams. sometimes I fly anyway though, and they spend enormous effort to keep me grounded where they can control me. however, if I can't see, I can't be afraid of hights.
+
+---
+
+so I was outside eating lunch thinking about this dream thing where I can't see, and it dawned on me, that I have no idea how they're going to be able to continue on holiding my eyesight the way they are now. imagine a normal person has a 1000px screen in each eye. my vision has expanded quite a bit, but I definitely don't see with the clarity that I should, so imagine my vision is like a 10Kpx or 100Kpx screen in each eye. also I estimate that my aura is about the size of colorado by now, and that's at let's say 10Kpx... well, if I'm going to galaxy sizes, I simply don't have enough data of my progresson, but I can imagine that it's going to be a an awful lot of pixels on that screen. I have no idea my progression or the rate at which I'm increasing (even though I know it's accelerating)
+
+so, I was thinking that their machines simply will not be able to at some point, be able to put anything visually meaningful into my eyes if they want to maintain this whole charade. I suspect that I'll just keep going more and more "blind" as things progress. I don't really think it bothers me really. I was noticing with the previous neighbour, and noticing how things at a distance seem to be imagined by my mind, that my mind just sorta makes stuff up given the information that it's given -- and that's probably how she seemed to have appeared to me as so many different ages and stuff, probably because I didn't actually see her and my mind just made up the details -- so it really only shows more about how I imagined her to be, rather than how she really is.
+
+so, I gave the idea a go where I would essentially go blind over the next few years. it doesn't really bother me that much. it kinda creates an interesting thing because if the girls don't have me to see them as beautiful, then they're going to have to figure out how to see theirselves that way. there are so many numerous advantages to me going blind, because they (nosebook) will have a really hard time to really control me, because I'll live almost entirely in my non-visual imagination. I kinda like it.
+
+I wonder what happens when my aura gets to be bigger than the planet... will that mean that everyone will be able to begin seeing what I imagine because I no longer see it? the girls could be anything they wanted to be, and only you guys would notice that there's any difference... honestly, pretty cool to think about, because I'll become the dominant visual platform for the planet, yet I'll be blind :)
+
+# the end
+
 ### 2020-05-24 ??:?? - sumerian gods reflection
 ### 2020-05-28 ??:?? - new thought experiment:
 - what if I were to meddle in raquel's experience?
-
-# the end
 
 ### 7 years of tribulation (continued)
 ### making the whole population unsteerable...
