@@ -10938,6 +10938,45 @@ so, I gave the idea a go where I would essentially go blind over the next few ye
 
 I wonder what happens when my aura gets to be bigger than the planet... will that mean that everyone will be able to begin seeing what I imagine because I no longer see it? the girls could be anything they wanted to be, and only you guys would notice that there's any difference... honestly, pretty cool to think about, because I'll become the dominant visual platform for the planet, yet I'll be blind :)
 
+
+### 2020-06-13 07:15 - «you don't really believe it»
+
+when I first herd abraham say this to one of my stand-ins, it kept bouncing around in my head, because I thought maybe I believed it a little more than I did. the thing is, they were kinda right though because even though during the day, various events regarding the girls would allow me to feel it a bit more, it's true that when I woke up, I typically did not believe it. essentially, the conditions were creating the belief -- it wasn't my own.
+
+you see, no matter how much nosebook may appear that they are on-board with the girls thing, there are some (a lot) that are not, but they have to, for the ones in nosebook that are and for a lot of the public, pretend like they are. the ones that aren't feel forced because of majority opinion, and PR reasons, forced to go along with it. so, I'm sure they figure that if they're "forced" to go along with it, then they need to feel like they control it.
+
+I felt the same thing with marcos, which is the only reason why I'm making such a resolute statement (even though it's pretty logical and easy to see, as well). as a result, they want to be the provider and or the initiator of the manifestation, so that they can control it. if I were to allow it to happen, they would not feel like they're in control, so it's in their best interest that I *don't* believe it -- which is exactly what I notice: I go to sleep and I wake up generally feeling like it's not going to happen.
+
+there's another thing that is also in play here... it's just that I figured, perhaps from fwh's statements and other places, that I would simply just continue on right through without needing a manifestation. I can find so many good reasons actually why I would also be quite fine without having the manifestation -- or delaying it further:
+
+#### futher growth
+
+look at how much I've grown in the last few years. their constant efforts to keep me where they think I should be, have been perfecting me in such a rapid way. I really don't have nearly any of the difficulty I had just a few years ago. I'm really feeling like this is such good progress I'm making, I kinda want to keep it up until they cannot hold anymore. I want to "win" the disagreement that we have that emotion is the precursor to manifestation, and I'm continually getting better at it, so much they they will see soon enoungh that I will feel so much better than their machines are able to hold me back any more.
+
+#### furher expansion and evolution of the desire
+
+the funny thing about LOA is that it's always right on. I can't rememeber how many times I've thoguht to myself, "ok, this is good enough; any further and things are going to fall apart" -- but they don't ever fall apart -- instead, they transform into something even more wanted than before. I've come to learn that the evolution of desire is quite something to be trusted and is always more desirable -- even if with human eyes, it looks like things may be falling apart.
+
+> If I sit in my own place of patience, what I need flows to me and without pain. From this, I understand, that what I want, also wants me, is looking for me and attracting me. -Rumi
+
+I love that part where it says that what I want is attracting me. the way I see it, let's just keep going until what I want is attracting me so strongly that there's nothing more that they can do do try and prevent it any more.
+
+in addition, another thing that abraham said one time was something like, "you'll want to be having such a good time on the way to your manifestation, then you'll not want to make the change, but you can't avoid it. it's inevitable" -- or something like that. I probably have the quote off there, but the inevitable part there also speaks to the desire attracting me. LOA is for reals. so, it's inevitable huh? let's try it :)
+
+#### take it to the limit
+
+why not push it out until the very limit? I'm learning and gaining rapidly more emotional control than I ever have been. I assure you, I've totally got this. they ones sweating and unable to sleep at night are the ones trying to make things happen. so why not trust LOA and *allow* it to happen?
+
+---
+
+so what does that look like in practical terms? well, I'm coming up with them more rapidly than I thought I would, but for example last night I was thinking, "yeah I do really want to be around a whole bunch of girls and interact with them sexually" I suppose that's a good start. the next thing I was noticing is that I can begin to transform my perception to one that is beginning to anticipate it. that will help too, and I know that I'll be getting there when I wake up in the morning and I don't feel like "it's not going to happen" -- because the way their machines work is that the signals they put into your head only have an effect if you're resonant to them. that only means I'm still resonant to not believing it's going to happen.
+
+I'm going to start with those for now. neither of them are in opposition to my desire to find my connection. in fact, I think they're in harmony because they're the same road -- because, at some point I have to actually begin to believe that I'm going to get connected instead of relying on the conditions (sex) to get connected.
+
+what I'm saying is, in both situations, belief that the girls thing was going to happen and also my own connection, I had been relying on conditions to bridge the gap instead of trusting the LOA.
+
+so, let's just keep this going. I thing it's going to really start to go fast now. as I become less and less resonant to the signals that they're putting in my head to keep me in disbelief, the more rapidly things will accelerate until their efforts are no longer effective, and I will have "won" or "proved" that there is no strength stronger than the power of desire. or, better said, no strength stronger than one's who's in pure alignment with a desire.
+
 # the end
 
 ### 2020-05-24 ??:?? - sumerian gods reflection
