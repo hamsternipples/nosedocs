@@ -10967,6 +10967,8 @@ in addition, another thing that abraham said one time was something like, "you'l
 
 > "... past the point of no return; you gatta *feel it* -- *FEEL IT!*"
 
+(the image this gives me reminds me of maverick -- thanks daniel!)
+
 why not push it out until the very limit? I'm learning and gaining rapidly more emotional control than I ever have been. I assure you, I've totally got this. they ones sweating and unable to sleep at night are the ones trying to make things happen. so why not trust LOA and *allow* it to happen?
 
 ---
