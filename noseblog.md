@@ -11008,6 +11008,17 @@ thinking about this thought experiment, it could work and it doesn't violate any
 
 which basically means that "knowledge" didn't really come from real actual experience, and so in their new bodies, the person will (just like with real experience too), still have opportunities to "shore" up that knowledge furthrer.
 
+
+### 2020-06-15 07:50 - I don't know what to think really, so I'm puttin it out here
+
+last night, I had a few weird experiences that I don't really know what to think. I can't remember the order, but I notably had the thought come into my head from my friend "turbo knight" (dunno his name) where I wanted to comment on a video where he had a drone flying to one of his songs. in the comment, he said something about the kids in his city, and I felt something there. I decided to leave it, because if it would grow, then it would become notable. well, when I was in the shower, around the same time as the thought experiment it popped into my head. it felt to me like there are some finnish girls in his city that are interested in joining. I think it's a great idea. it happened a few more times too, so it feels pretty strong so I'm definitely on board with that.
+
+then, there was another totally random one that popped into my head -- I remembered the dryer repairman that was at our house, which is really weird, because I surely would have forgot[^1] and I had this sensation that one of his daughters was also interested in joining. she's welcome to join too, if that's a thing.
+
+lastly, and I don't remember when it was, and it wasn't the first time it happened, but the name "bpasero" popped into my head, and no big deal I had been reading typescript issues earlier that day, but yesterday I hadn't been, and the thought felt more present than the normal ones (the ones with more reaction seem to feel stronger, but this one I'm sure wasn't coming from a reaction, so I didn't know why its strength). anyway, I may be way off here, but it was worth noting cause it happened so many times with enough strength -- even though I didn't feel nearly any attraction like I did with the other two, so if it's not a thing, don't worry at all, but if it is, she's welcome to join too, if she wants. 
+
+[1]: no really, my memory is so bad lately, I can't even remember large sections of last night, or even really what happened yesterday, so it seems that the only "memory" of things I have in the past, are things that are somehow relevant, because otherwise I can't access it. it's really weird (and I think it's more to be living "more in the now") because I have virtually no capabiliy anymore of accessing things in the past unless they're somehow relevant -- though sometimes even those things take a bit to get out of the filecabnet.
+
 # the end
 
 ### 2020-05-24 ??:?? - sumerian gods reflection
