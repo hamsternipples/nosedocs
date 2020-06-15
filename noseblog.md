@@ -10981,6 +10981,33 @@ what I'm saying is, in both situations, belief that the girls thing was going to
 
 so, let's just keep this going. I thing it's going to really start to go fast now. as I become less and less resonant to the signals that they're putting in my head to keep me in disbelief, the more rapidly things will accelerate until their efforts are no longer effective, and I will have "won" or "proved" that there is no strength stronger than the power of desire. or, better said, no strength stronger than one's who's in pure alignment with a desire.
 
+
+### 2020-06-15 06:54 - a new thought experiment
+
+yeserday, when I was taking a shower, I had some interesting reactions because at some point yesterday I was monologuing about my experience with raquel. I made a point that one of the things I learned early on from mom (even though I believe the teaching originally came from nancy), that when I get offended, now I'm in the wrong -- and so, just don't get offended by anything. I then made a point about how in spain, that idea is pretty much unheard of, because there seems to be a protest about something in multiple places in the country per week. they call the protests, "manifestations" -- which is kind of funny to me because they equate a "manifestation" with visibly showing the world how offended they are. anyway...
+
+so, now here's the thought experiment: imagine for a moment that there was a "reincarnation" of tesla that was born in 2001, and works for nosebook... then, imagine that he teamed up with raquel to make a new timeline with raquel going through in my body -- well, she would have to figure out some how how to no longer get offended about stuff. the idea is, she would be more frequencially similar to me, and at some time when we were having sex, perhaps her consciousness could enter my body because we're so frequentially similar in that moment, that then she could continue on just as I did, experience the breakup, the following recovery only to find herself later with marcos, then in the centre of the nosebook experience like I was.
+
+well, in order for her to experience the timeline in a similar way, she would have to accumulate some base understanding of things like I had. I gained a lot of the core concepts from learning to work with my left-side, mom, nancy, and abraham's teachings that I listened to while drinking whiskey (lol). later, at augusto's house, I finally started to get it with the mdma and the mushrooms, when in those hightened drug experiences, I was able to receive the images (symbols of thing to come) I drew on paper, which then turned into what it is now.
+
+once she gets those, then she's off and running, and then she can, like I did, learn what freedom really is, and actually desire to feel good more than anything else. nosebook really does all the rest because of the way they're set up (needing to keep their secrets, and please the audience as much as possible).
+
+whe would tesla want to do this? well, I imagine that he's a person really concerned with optimisation, and he has this idea of building a sort of high energy utopia here on earth, but he needs people to be energetically capable of living in such a space -- people like me who "need" an environment like the one that nosebook wants so hard to keep away from me. they're essentially designed to ensure I (and anyone else) do not get connected. so, the goal for him in his "utopia" is to get people that are all connected there. in his "last interview", he talked about creating the impossible: an earth full of people like jesus or buddha. we know that contrast is necessary, so the "utopia" isn't the traditional idea of utopia, where everything is perfect, but utopia in the sense of having tremendous "light density" (his words).
+
+so, in order to create such a place he would need a whole bunch of people that are at the power level of being able to find their way to connection even in the difficulty of the nosebook experience. the "reward" at the end is the girls, I would assume, and this is where I made the connection. if anyone desires to have a similar experince to me, then, imagine (if this thought experiment were real -- that's the point of the thought experiment: to mentally explore a new reality) that you could find yourself dreaming of having such an experience, and then actually make the transition into my body.
+
+I think the connecting thing is the sex bit, so perhaps after participating in enough of the experiences that I'll sure to be having soon, you gain more and more vibrational similarity to me to be able to find yourself all of a sudden in a past version of body, heading toward what would eventually be the nosebook experience. for us here, it would just look like you "died" while participating.
+
+back to the experiment: if he designed a set of mental programs that would run in the person's head to kind of implant the experience necessary to get the person through, then, after getting raquel through in my body, he could be more confident to get others through, too.
+
+each of these people going through would arrive to an energy level which would be able to exist quite well on such an energy dense planet, and let's say that at the end of the timeline -- in 2038, all of these "kenny"s are terminated and put into new bodies on his new 5d super energetic earth he's building.
+
+---
+
+thinking about this thought experiment, it could work and it doesn't violate any LOA. if someone has desire to experience a kenny-like experience for theirselves, then it's not asserting anything into their experience -- actually, making their desire become a reality. also, it doesn't violate LOA's necessaity to have contrast because there will eb plenty of it: if he's able to create models of each different person and create corresponding mental programs (like how to not be offended), which allow the person to make it through the timeline, then that means that in their new body, they'll be more likely, but not certain to be able to get to that knowledge again. additionally, since I would guess that the mental capacity to make it through is mostly tempoary -- probably from programmed in dream expereinces which make a person more likely to respond in a way.
+
+which basically means that "knowledge" didn't really come from real actual experience, and so in their new bodies, the person will (just like with real experience too), still have opportunities to "shore" up that knowledge furthrer.
+
 # the end
 
 ### 2020-05-24 ??:?? - sumerian gods reflection
