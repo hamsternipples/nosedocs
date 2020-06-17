@@ -11058,7 +11058,40 @@ so, while I think it's a great idea to quit smoking, it seems to keep me feeling
 
 [1]: I have a whole idea on why building of sructure is preferred by programmers more than the actual creation in relation to someone's emotional space, because I would often compare myself to dani, who was almost always concerned with the creation, which was how I was too, until tuenti got sold, and I think my feeling that if I invest my creativity into something that someone can just hijack so easily because it's only the visual frontend replacable client code -- instead I want to work on something lasting: a data structure, or a framework that will continue to exist even after the money-hungry have shat on it. in steve jobs terms, I lost my product focus.
 
-[2]: I have no idea why I want to program so much after sex, but it's this inasatiable thing that I just cannot deny. I suppose I'm going to just have to figure out how to just be ok with not being creative for the duration of the girls experience. so, I figure it's probably why the last drawing in the 3 symbols of the future, I'm showing people machines capable of desire -- because I will have spent so much time away from creativity and productivity, that after the "this is my reality" symbol has been established, I'll have so much creative voracity, I will be a whirlwind of creative output.
+[2]: I have no idea why I want to program so much after sex, but it's this inasatiable thing that I just cannot deny. I suppose I'm going to just have to figure out how to just be ok with not being creative for the duration of the girls experience. so, I figure it's probably why the last drawing in the 3 symbols of the future, I'm showing people machines capable of desire -- because I will have spent so much time away from creativity and productivity, that after the "this is my reality" symbol has been established, and maybe when some of the boys are old enough to help out, too -- then, I'll have so much creative voracity, I will be a whirlwind of creative output.
+
+
+### 2020-06-17 07:07 - perfecting the past
+
+yesterday in response to the abraham now broadcast @[abe-now](2020-06-11 49:25) I was talking about how the past, depending on how you feel when you perceive it, can be perceived as anything from awful all the way to the perfect culmination of all of the things that brought you to this moment of extacy.
+
+while I was referring to the human race as a whole, because it's easy for me to see how the average person will feel tremendously great in comparison those in the present and even the past. even the last thought experiment @[noseblog](2020-06-15 06:54) was on that this subject as well, because you couldn't have a planet with such light density if it weren't filled with people that knew how to find a way to feel good no matter the circumstances. the world that a tesla would be building would be full of all sorts of experiments so you could imagine how much diversity there would be -- not to mention that it would most certainly be completely mechanised and automated, so no one would have any real control over how the world exists and functions either (kinda like what we're beginning to have here as well, but here will be much more primitive, with the noseboys having all the super-tech -- instead of everybody living in a fully automated constantly perfecting itself machine world).
+
+he would build all sorts of ideas in his head, and he spent the majority of his time thinking about and perfecting his inventions in his head -- and this works really well for mechanical stuff, however, you cannot do this with consciousness, otherwise source wouldn't take so much pleasure in our continued expansion of our desires and coming into alignment with them (because they create new things). so, in his world, with the latest focus of perfecting human consciousness, all of his experiments would have to live in real life to see the results in consciousness (hence the doll-house metaphor I've given)
+
+so, none of the humans on his planet will really have a whole lot of control, being completely subject to his constant experimentation, so the conscious ones would have to be a whole bunch of people like me who are not focused on the circumsatances, instead upon the improvement. in order to make the experiments controllable, the rest of the people would all be "automatons" -- controllled by him to put the conscious ones in predicaments which can be controlled to optimise the results.
+
+---
+
+this morning I had an interesting experience where I was interacting with the motorcycle attendent becase he fired up the chopper when I mentioned that I was amazed how I cannot see he enormous windows on the apartments on the field from way back, when they're so big.
+
+the roar of the motor seemed to imply that I was touching a sensitive subject. I explained to him that even if it is their fault that the screen in my eye is broken, it doesn't matter to me, because virtually every day now, I can see marked improvement in some aspect of my vision. I questioned him in a somewhat frustrated tone,
+
+> "why, when I'm seeing improvements daily, would I go back to focusing on the problem? the whole method for getting the improvments is releasing resistance -- that is being OK with where I'm at, and only noticing the improvements"
+
+that pretty much sums it all up. all one has to do is to carry on the trajectory of my continued improvement to see that, even now, but especially in not such a short time in the future, I will be looking back at my past from a feeling of pure extacy, noticing that the moment of pure extacy I'm experincing now is the culmination of everything "difficult" I had experienced, and all I had to do was to find a way to be OK with it, and to only see the improvements.
+
+---
+
+I talk often about "getting connected" -- but it's quite possible that may not actually happen for quite some time. instead, it may be that I just continue on with all the same problems I have now, yet because I'm so focused on only the improvements, that it'll still be -- even though none of the "problems" have really changed, and I have yet to gain control, and never will, like tesla's world -- a feeling of pure extacy.
+
+I doubt this world is going to become anything more than more diverse and more contrast as time continues on. alhough tesla's mechanical world is a super wonderful thought experiment for me, the reality is we are here, and here seems to be heading on a similar trajectory:
+
+none of us will likely ever gain any sense of control over the conditions in which we live. I would imagine that they (nosebook) will have a continuing sense of urgency to try and get things under their control as more and more people threaten their sense of superiority, so they'll need to take more and more power away from us, to try and regain their feeling of control. the only option we have is find a way to be OK with where we're at, and only perceive the improvement.
+
+I will give a message of hope though, because unlike tesla's world, which is actually sustainable because it's all automated, this world is not. eventually, they'll run out of things they can try to control physically, and it'll eventually collapse and a wonderful creation will be made, so it's not forever. try to have fun along the way though, and if you only see improvements, then your life *will* steadily climb toward pure extacy. you might not be able to imagine how good it feels to continuually see impovement even in the midst of such difficulty. think invincible, unstoppable, pure power that the world is a reflection of you knowing that the well-being abounds and the perceived "difficulty" is only there to furher prove[^1] to you how unstoppable and invincible you are.
+
+[1]: just like how focusing on things going wrong, life proves itself to you that things just continually go wrong and wronger.. that happens when you notice unimprovements instead of improvements :)
 
 # the end
 
