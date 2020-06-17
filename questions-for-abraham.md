@@ -763,3 +763,45 @@ there really is an art to lightly desiring something and experiencing satisfacti
 I want to revisit this subject in the future after I've figured more of these subjects out. I purposefully didn't make all of the correlations that are there in this story. it's quite intricate in how simple this story is, but describes energetic interactions so well.
 
 it's also worth noting that following this story is the topic of appreciation, where abraham talks about introducing other vibrations into the mix
+
+### 2020-06-15 17:12 - (2020-06-09)
+
+#### (13:09), (14:06) - the sticks
+
+it just occurred to me when they said, "are you looking the wanted end of the stick of the *absence* of what's wanted end of the stick" that they're talking about a stick with wanted -- so imagine what's wanted is hydrogen, and the absence of what's wanted is anti-hydrogen. well, there are hundreds of other elements that are unwanted. you could have oxygen, and because you wanted hydrogen, that would be a pretty big misfit. you can't just stick an oxygen on to a molucule where a hydrogen is supposed to go.
+
+so, if we take that to something like a real-world problem like racism. most people see racism as something that's unwanted, and so therefore they look at the absence of racism end of the stick -- but that doesn't do anything, cept create a void for racism to come, just like an anti-hydrogen creates a void for a hydrogen to come.
+
+so you coud say there are essenially two sticks, and four possibilties:
+
+1. presence of what is wanted
+2. absense of what is wanted
+3. presence of what is unwanted
+4. absense of what is unwanted
+
+I always inuitively got that you cannot focus on the unwanted part without bringing more of it to you, but with this example now I really get it. by focusing on the absence of racism, you're just creating a void where racism can fill it. likewise when you create racism, an equally opposite reaction takes place creating an equal amount of "absence of racism" (anti-racism) so that eventually they will go back to no signal or nothing -- cause source isn't focused on either racism or anti-racism... source is focused on something entirely different.
+
+therefore, instead, if you want something other than racism or anti-racism, you must to change your focus to what is you *do want* wanted in order to get something different.
+
+I never saw it so clearly :)
+
+
+### 2020-06-16 21:24 (2020-06-11)
+
+#### (49:25) - past being perfect
+
+I really like this question, and I've made reference to changing my past by changing my perception of it, so it's something I like to think about because it's so powerful.
+
+the questioner asks how they can perceive their past as being perfect... I've found out that I cannot. the "secret" to this is changing your "now" because you perceive your past right now (in the present).
+
+so if you are not feeling so good and you look back at your past, it can look like a lot of turmoil and hardship... however, if you're feeling really good in the present moment, and you back at your past, you can see that the present moment (which you feel so good), could only have existed as the culmination of all of those things in the past, and so therefore the past isn't something to be rejected but something which was just a process that brings you to the present extacy that you're feeling.
+
+this is something that I have been thinking about because some people, including terence mckenna (who I think is really great) have quite a negative perspective of the trajectory of the human race. in fact, last session there was a question about the "extension" (extinction) of the human race on its present trajectory. the other side to this is that people cannot believe that the human race can ever amount to anything more than a bunch of barbaric scoundrels, because our history is so full of barbaric activities.
+
+well, this falls right into this question here because right now it cannot be perceived as "perfect" -- and likely never will be, however, at some point in the future when the base emotional setpoint of humans is riding more in the great to extacy spot (as we move closer to becoming more like source, as it becomes normal for us to be connected to our source), then our human history will no longer be preceived as bad or barbaric, but as just the "perfect" thing to bring us to the extacy that you experience in the present moment.
+
+---
+
+so, my answer kinda sucks, because I'm essentially saying you can't perceive your past as perfect until you're feeling really good now -- which is why I dislike the word "perfect" so much because it's an absolute and you can always find something unwanted in an absolute. instead, I prefer the ralative prespective of only perceiving improvement.
+
+so, instead if trying to see your past as perfect, try to see it's continual improvement. you may say, well, I'm getting older or uglier or whatever... if you can't find the improvement on the physical subject focus on how much more you understand things, or how much easier things are. there's always an improvement somewhere -- just like you can always find a positive or nagative aspect about ever single thing that exists (relative to your perspctive).
