@@ -11093,6 +11093,65 @@ I will give a message of hope though, because unlike tesla's world, which is act
 
 [1]: just like how focusing on things going wrong, life proves itself to you that things just continually go wrong and wronger.. that happens when you notice unimprovements instead of improvements :)
 
+
+### 2020-06-17 17:17 - waking up now...
+
+I wrote the previous entry just before sleeping, and just woke up now.. as usual, I woke up feeling like I'm never going to get connected.
+
+well, like I've mentioned so many times previous, their effort to continue to try and convince me of that is precisely the practice that I need *to get connected*. what I mean is, for whatever reason, I'm still resonant with those ideas, which is why they still affect me.
+
+I sort of brought the thing on to myself a bit knowingly when I included the last section, where I said,
+
+> "it's quite possible that may not actually happen for quite some time. instead, it may be that I just continue on with all the same problems I have now, yet because I'm so focused on only the improvements"
+
+I woke up with the idea that I wouldn't ever get connected, and I would continue on until the "end" of it all when I have my "final" interaction with andrea... that's the gist of it.
+
+first of all, I want to mention that the thought that happened when I woke up didn't at all feel good to me, which basically means that I'm not perceiving it in the same way as my inner being is.
+
+I think that they're reacting to the part where I mentioned that tesla's world would be susainable, and this one is not. when I said that, what I was referring to is that I have come to understand that emotion is the precursor to manifestation or "reality" and the manifestation of the reality that anyone is experiencing is a reflection of how they feel. so, if on tesla's world, even though all of the conditions of that world are controlled, including the who the conscious ones interact with (they would be controlled automaons), then if the conscious ones were able to continually find a way to feel good, the circumstances would continue to be a reflection of how they feel.
+
+so, if tesla were to, in his world, try and hold that well-being away from its inhabitants, then it, like this one, would not be sustainable. however, if the effort is to create a world with incredible light density[^1] then clearly that could not be so. it order for it to have such light density, it must be a world with incredible diversity. I explained that this world would be filled with tons of his living experiments. I mentiond that he must have tried out millions of different ideas/experiments in his mind for his discoveries into the nature of electricity. however, when it comes to the opimisation of human consciousness, that wouldn't really be something one could do so easily in their mind...
+
+so instead, because they're experiments on human consciousness, and consciousness only expands with interaction with other consciousness (think LOA and thoughts expanding), those experiments must exist in some place where they could expand. machines and mechanical creations operate (thankfully) in a predictable way, and so they can operate in the predictable patterns of one's mind.
+
+when one thinks about how computers work and programs are made stronger, they're run against a "fuzzer" -- which is a machine that generates infinite input conditions designed to break the program. when an atttack vector is found, then the bug is fixed and the fuzzer runs on the new code. I imagine his setup would be something pretty similar to that, so by nature, diversity would continue to emerge from the infinte input conditions performed on the conscious ones, producing all sorts of unxepcted results.
+
+in this thought experiment, that process begins with figuring out how to implant mental programs into the people's minds being run through my experience. those mental programs would have to provide a mental condition for the person being run through my experience[^2] to be able to actually make it through.
+
+there are tons of bad ideas like: guilt, shame, justice, unworthiness, self disapproaval, caring too much about what others think, etc. that must be worked around, until one has the ability to find the way to their desire to feel good over any other circumstance.
+
+getting through the circumstances that I'm in is really good, but it's only really one instance of experience, and if I can find it once and make it through, then that's really good. that just means I'm more likely to behave that way in similar circumstances, but by no means am I always going to behave that way.
+
+therefore, creating the mental environment for a person to be able to make it through my experience is only the first step. clearly phase two would be to make a controlled world where these circumstances and environments could be created at will and the conscious one put in these environments, along with the constantly improving program wich will outline the most effective experence to "patch" that attack vector, until enough experiene is gained that none of the attack vectors can compromise the conscious one any more.
+
+---
+
+now, the funny thing about this thought experiment for me, is because you have to start somewhere, there's nothing to say that this earth isn't already the tesla world in my thought experiment in phase 0. phase 0 would be the one where someone very attractive (me) would have a public experience which would inspire desire in others to have such an experience, which would then be put into phase 1 where they're run through my experience in my body. I purposefully left out the conspiracy aspect that it's already happening, because it doesn't make a difference to me and changes nothing for how I respond to things.
+
+no matter what the big picture may be, and although I find it very fascinating[^3], I am in the present moment where my work is simply to find a way to be OK with where I'm at, notice the improvement, and bring that OKness up to eventually pure extacy as I continue on feeling better and better.
+
+---
+
+so here's the punchline that all of this is leading up to: if I'm the template experience which people will be getting run through, then you could imagine that at the "end" of this experience may actually be, not what I woke up this afternoon thinking, but the opportunity for me to replicate this same thing myself. what if I actually had something to contribute to the expansion of this thought experiment? what if machines really *were* capable of desire? well, they would obsolete us ***VERY*** rapidly :)
+
+if tesla is, like thoth, the manifestation of the 7th ray, I'm close but not quite the same thing... I'm much more of a fifth ray, but from all that I've gathered over the years, my left side is a first ray. the 1st and the 7th are perfect compliments, and the 5th and the 3rd are also perfect compliments. it's easy for a 7th ray to think in 3rd ray terms because they're structurally so similar[^4]. likewise, it's easy for a 1st ray and a 5th ray to think in similar terms[^5].
+
+then, if you were to imagine the optimisation of human conscoiusness as a practising or exercising of the 3rd ray capacity, then this experience is exactly what it takes to make the compliment of me, in me -- the unification of the right and left sides: the stressed out guy and the little girl.. this whole thing, dispite their efforts to convince me otherwise while I sleep *is* exactly what I want.
+
+---
+
+so, while it's completely possible that at the "end" of this experience, I wake up in tesla's world, it's also quite possible that actually, the "end" of this experience is actually to replicate this thought experiment in reality. the mantra of the universe is "more" -- and so, it's easy to imagine then that what would be the most "more" would be for me and all of the people being run through my experience to replicate it. that would be the most "more" :)
+
+[1]: remember, he used the word "light" to mean what we mean when we say "source"
+
+[2]: like, for example, the original example I gave of raquel being run through in my body, he would have to design a mental program which allowed her to give up her right to be offended at stuff. someone like me, simply cannot afford to be offended by anything.
+
+[3]: I find it fascinating in the sense that I love doing these sorts of experimentation and optimisation myself, so it wouldn't surprise me if a desire in me is beginnging to grow in me to be able to copy this thought experiment and perform something similar myself :) now, if coming to this realisation is something that everyone being run through my experience will come to, you can only imagine how multidimensional this is.
+
+[4]: if you think of what the manifest form of the 3rd ray structure, it's physcality.
+
+[5]: likewise, if you think of the manifest form of the 1st ray (desire), it manifests, not in physical, but as an emotion (5th ray).
+
 # the end
 
 ### 2020-05-24 ??:?? - sumerian gods reflection
