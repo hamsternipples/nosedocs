@@ -11152,6 +11152,49 @@ so, while it's completely possible that at the "end" of this experience, I wake 
 
 [5]: likewise, if you think of the manifest form of the 1st ray (desire), it manifests, not in physical, but as an emotion (5th ray).
 
+
+### 2020-06-19 14:33 - a new sense of trust
+
+last night as I was out star watching, I lost consciousness and I was put into a dream. I don't remember most of the dream but the part I do remember was they were asking me if I were to move away from pueblo, what would I do without a light to stare into and improve my vision. I responded by saying I would just figure out the next thing, and it wasn't a problem.
+
+first of all, they assume that by moving me, they will be able to prevent me from having some way to continue to improve my vision. second, they don't really get it, that when you make a decision based on what you don't want, you may be able to temporarily change the circumstances, but their stong focus on what they don't want will follow them though the decision, and actually make it worse. I know this is true, that whenever you make an action coming from a place where you feel whatever, the resulting action (no matter what it is) will only yield more of whatever it was that you were feeling.
+
+this is why I say that it's so important to be able to feel the way you want to feel.
+
+next, in the last entry I was talking about only perceiving the improvement -- which is good because if that were to happen, now I get a change to prove to people that if all you see is improvement, you get even more of it. they've moved me three times now based on what they don't want: the first was from la vera in response to them not being able to control the climate there very easily, then from madrid because I wasn't able to be controlled so easily there and I regularly found joints I could smoke and stars to watch. similarly, I don't think they want me to go back to LA because it's impossible control the star-watching, and the mountains are quite energetic.
+
+this time would be the same thing, and at first I had a slight negative reaction to it in my conscious body. in my dream-state I'm pretty resistance-free, which is why it was perfectly ok with me, and after having thought about it a bit this afternoon, I've really come to trust even more LOA with things.
+
+while my vision upgrade progress is significant, I don't think that it corresponds to having an aura the size of a galaxy in 18 years, so unless the acceleration greatly increases, there will need to be another infusion of energy into it, just like coming here was, in comparison to where I was at in madrid.
+
+I was thinking that great acceleration might have to do with the girls, and sex with them would greatly speed things up, but maybe instead we're going to do another round of them putting their energy into more of what they don't want -- trading speed for acceleration again.
+
+---
+
+I really don't know what to think of it. maybe afterall, I am just going to continue to go all the way to the end without the manifestation -- but again, I have even more trust in LOA on this thing now, because I *REALLY* know now that every time that it looks like things are falling apart (or being forced to move apart), then it's just an evolution of desire again toward even more of what's wanted.
+
+I don't really know, and I can't really speculate on what it may be, but since I know that every evolution of desire that happens is even more of what's wanted, I just don't really mind waiting it out anymore.
+
+it kinda sucks I suppose for the girls or anyone that was hoping that I would provide optimal conditions to feel good, but I don't really have much of a choice on this one. both paths: the one where I get the manifestation and the one where they continue to try and move things around physically to avoid what they don't want, my response is still the same: I continue to guide how I feel, and only perceive the improvement.
+
+if they want to add more energy into what they don't want, that's fine with me.
+
+---
+
+last night, I had a funny reaction which went something like this: someone realised that if they had of just let me go a long time ago when the energy was really low, it would have been a much more manageable/controllable manifestation for them, but now that I've progressed so much since then, looking back it would have been prudent to just let me go up back then. so, even though letting me go up now is quite undesirable for them, it is, continuing on the trajectory, still a whole lot better than it will be if they keep trying to hold it back.
+
+obviously someone (probably mr. motor) wasn't happy with that idea and it's what has pushed forward the whole idea to try and move me or whatever... lol
+
+then, when I woke up this afternoon, I had a bunch of strong sensations again, like normal that it wasn't going to happen, and I went into this crazy anticipation of the future where people are powerless to do anything about my situation, and they keep trying to move me around and stuff, for years and years, yet mr motor continues to insist that I must be prevented from going up, when finally after a very long time, mr. motor's body is failing so hard from all the resistance and he finally makes his transition -- and about that time I finally go up... weird premonition.
+
+---
+
+anyway, once again, no one is locked into my reality. you all create your own reality, so if what you want is something other, meditate and feel your way toward what you want. you *will* have the manifestation you're looking for. there's nothing anyone can do to stop you, well maybe nosebook may try, but again, they're just adding their energy into what they don't want, which is, only more energy toward what you do want.
+
+there's a whole thing that I was carrying on about this morning about how much power nosebook really has.
+
+***they only have as much power as you believe they have***. they cannot affect the way you respond to things, and therefore how you feel. 
+
 # the end
 
 ### 2020-05-24 ??:?? - sumerian gods reflection

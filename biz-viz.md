@@ -46,4 +46,8 @@ before puberty, your sexual energy spews about almost uncontrollably. it appears
 
 the technique involves centreing the energy so it stays accumulating in your heart. then, when you want to release this energy into something, say a project, something creative, or into someone in a sexual expression, you have control over it.
 
-# everything you feel *is real* -- and if it isn't, it will be!
+# everything you feel *is real* -- and if it isn't yet, it will be!
+
+# the destination absolves the journey
+
+# exploit the contrast
