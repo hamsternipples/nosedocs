@@ -11243,9 +11243,11 @@ I dislike framing the emotional work in the frame of control, but there really i
 
 if I react to the those things, it will produce more of the same thing (or, you could say it'll get worse). however, if I actively choose to think and feel something different, something that feels better (not necessarily good), things will steadily improve, and if I keep noticing that improvement, eventually those things that are no longer a vibrational match to me, will leave my experience or transform into something that is a match to how I now feel, which is better[^1].
 
-that's your basic funk formula. once you get the hang of it, you'll feel invincble. my esperanza is that a good solid majority of people are capable of feeling that; it's truly the most wonderful feeling of freedom, and it's not that hard: you just have to *want* (desire) to feel better (or, you could try slogging through a crappy experience trying to focus on gratitude, lol -- I heard that works really well).
+that's your basic funk formula. once you get the hang of it, you'll feel invincble. my esperanza is that a good solid majority of people are capable of feeling that; it's truly the most wonderful feeling of freedom, and it's not that hard: you just have to *want* (desire) to feel better (or, you could try slogging through a crappy experience trying to focus on gratitude, lol -- I heard that works really well[^2]).
 
 [1]: why? because the world you experience is a *reflection* of how you feel
+
+[2]: I am joking of course, because gratitude is an absolute feeling, and trying to jump from frustrated, angry or depressed to gratitude is really hard. I much prefer relative feelings, as it's much easier to feel better than make a jump like that.
 
 # the end
 
