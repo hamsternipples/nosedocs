@@ -11235,7 +11235,7 @@ so, when I talk about noicing the improvement, I'm speaking exactly to that. the
 
 as abraham says, if you keep doing the vibrational work, they will eventually vibrate right out of your experience... that's all I can really go for, which is why I say that if you want to have a different reality than the default one, you need to find your way there with feeling. they're attracting and trying their hardest to make sure that everyone is a puppet and they have control of the strings, so if you want to do something other than react to what you observe, you have to take a different route: a route where you feel differently than what you're observing.
 
-that's all there is to it, and it's continually what I'm doing, and is the reason why I'm getting so many vision upgrades. if I felt like they were in control, then I wouldn't be getting any. the very fact that I continue to feel better than what I'm observing (in dream state or in reality) should make me feel, is evidence that I believe, or feel they have less and less control over my experience.
+that's all there is to it, and it's continually what I'm doing, and is the reason why I'm getting so many vision upgrades. if I felt like they were in control, then I wouldn't be getting any. the very fact that I continue to feel better than what I'm observing should make me feel (in dream state or in reality), is evidence that I believe, or feel they have less and less control over my experience.
 
 ---
 
