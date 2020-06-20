@@ -51,3 +51,9 @@ the technique involves centreing the energy so it stays accumulating in your hea
 # the destination absolves the journey
 
 # exploit the contrast
+
+# things are always improving, whether you can perceive it or not.
+
+# the world you perceive is a reflection of you
+
+meaning, the things you notice in the world are always in vibrational harmony with how you feel.
