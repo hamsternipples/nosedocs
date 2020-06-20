@@ -11193,7 +11193,34 @@ anyway, once again, no one is locked into my reality. you all create your own re
 
 there's a whole thing that I was carrying on about this morning about how much power nosebook really has.
 
-***they only have as much power as you believe they have***. they cannot affect the way you respond to things, and therefore how you feel. 
+***they only have as much power as you believe they have***. they cannot affect the way you respond to things, and therefore how you feel.
+
+
+### 2020-06-20 07:08 - trying to see things from your perspective
+
+last night, as I was walking out to the field, I was wondering why it's such a big deal to people if the manifestation "never happens". the reaction felt to me as if I had some sort of control over whether or not I get connected or not, and I was purposefully choosing not to.
+
+quite the contrary. my experience all along this journey, all the way from andrea up until now has been one of just learning to be ok with my present situation. there's literally no way I have any control over whether I can get connected or now. that decision is entirely up to nosebook. they can green-light it if they want to, or not. that's something completely out of my control.
+
+instead, the only control that I do have is to decide the way I want to feel, and continue change my perception about things until they feel beter (that is, in harmony with how my inner being feels about it).
+
+it's sorta like the discussion on abraham now about superpowers (@[abe-now](2020-06-13)): there are a lot of people ensuring that none of us ever get any superpowers, so the only real super power any of us really have is to feel the way we want to feel, dispite the circumstances. in fact, earlier on in that episode, one woman was recounting a story about having super vision when her daughter pointed out a snail to her. some may recognise this sort of thing from mushroom experiences where you're able to see things close up or in isolotaion without direcly looking at them.
+
+this effect is capable of happening when the brain has high amounts of DMT in it, and it seems pretty obvious to me that this was possible for her in a moment of feeling really good, because the brain sinthesises DMT from serotonin, so the better you feel, the more DMT your brain has in it, enabling more and more visual capability.
+
+frankly, I'm surprised they're letting you guys have those sorts of experiences. that would be something I would get shocked from I'm certain... however, because these sorts of things are sort of off-limits for me, even though I have the capablity. in fact, I am certain that if they were to stop controlling the DMT levels in my head, then I would be able to fly. I'm no one any different than anyone else, cept I've figured out how to feel really good, dispite my circumstances. so, as a result of feeling so good so consistently, I have tons of DMT in my head, which would enable those superpowers.
+
+instead, because someone is controlling the DMT levels in my head, I do not experience them, so as a result, just like the manifestation of the girls, this is entirely out of my control. there's nothing I can do about it. I can only find a way to feel the way I want to feel, and just let that be my superpower for now.
+
+---
+
+so, when I write an entry saying that I'm OK with there not being a manifestation, I'm just doing what my experience has taught me to do: find a way to be OK with where I'm at (because it's where I'm at), and then find a way to focus not on the present conditions, but on the improvement that is happening all around me.
+
+I recommend that all of you do the same thing. it's not like any of us can go stomp on esther's doorstep and offer some words to force abraham to make the manifestation happen. maybe some action would work, you may think... but, what are you going to do, write to your congressperson and tell them to make nosebook do something different? what about trump? do you think he has any power to make things any different? you may say, ok but I have rights! enforced by whom? no one has any rights any more. the only rights you have, are to feel the way you want to feel, and at this point, I doubt any action will actually produce any meaningful change.
+
+therefore then, like me in all of my experience leading up to this moment, I really must tell you that if you can learn to feel the way you want to feel (sometimes bad and sometimes good) no matter the circumstances, you gain all the power. therefore then, I recommend learning to do as I have learned, which is being OK with the evolution of the desire when the details of what I thought it was going to be turn out to, seemingly fall apart. the evolution of desire is always towards more of what is wanted for everyone involved (even if you're nosebook and you want to prevent me from getting connected). therefore, it's always evolving to become more and more what all of us want, so I learned I just have to roll with it all, and feel the way I want to feel, no matter how injust or unfair it may be.
+
+as they say in honduras...
 
 # the end
 
