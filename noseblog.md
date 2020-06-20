@@ -11224,6 +11224,27 @@ the evolution of desire is always towards more of what is wanted for everyone in
 
 as they say in honduras...
 
+
+### 2020-06-20 09:29 - "they only have as much power as you think they have"
+
+the reason why I concluded yesterday's entry by saying that is that really is the only way that I can find an out to this situation. another way to say it would be, "they only have as much power as you give them". I like the believe version better, because it speaks more emotionally
+
+ok so, wherever you are is precisely a reflection of how you feel. if you think about what belief is, belief is a feeling -- therefore, it could also be said, "they only have as much power as you feel they have".
+
+so, when I talk about noicing the improvement, I'm speaking exactly to that. the better I feel, the less power they have, because feeling like they control my experince doesn't feel very good. however, I am where I am, so the only way forward is to notice the improvement so much that becomes my reality.
+
+as abraham says, if you keep doing the vibrational work, they will eventually vibrate right out of your experience... that's all I can really go for, which is why I say that if you want to have a different reality than the default one, you need to find your way there with feeling. they're attracting and trying their hardest to make sure that everyone is a puppet and they have control of the strings, so if you want to do something other than react to what you observe, you have to take a different route: a route where you feel differently than what you're observing.
+
+that's all there is to it, and it's continually what I'm doing, and is the reason why I'm getting so many vision upgrades. if I felt like they were in control, then I wouldn't be getting any. the very fact that I continue to feel better than what I'm observing (in dream state or in reality) should make me feel, is evidence that I believe, or feel they have less and less control over my experience.
+
+---
+
+I dislike framing the emotional work in the frame of control, but there really is only two categories here: things I can control and things I cannot control. I cannot control anything anyone else is doing, and it's helpful to realise that it's all attraction, so somehow (doesn't matter really, but I did -- we all did) attract our circumstances, and so therefore because I have already attraced, and therefore cannot control the things people are saying or doing into my experince, the only thing I can control is how I feel now.
+
+if I react to the those things, it will produce more of the same thing (or, you could say it'll get worse). however, if I actively choose to think and feel something different, something that feels better (not necessarily good), things will steadily improve, and if I keep noticing that improvement, eventually those things that are no longer a vibrational match to me, will leave my experience or transform into something that is a match to how I now feel, which is better.
+
+that's your basic funk formula. once you get the hang of it, you'll feel invincble. my esperanza is that a good solid majority of people are capable of feeling that; it's truly the most wonderful feeling of freedom, and it's not that hard: you just have to *want* (desire) to feel better (or, you could try slogging through a crappy experience trying to focus on gratitude, lol -- I heard that works really well).
+
 # the end
 
 ### 2020-05-24 ??:?? - sumerian gods reflection
