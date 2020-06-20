@@ -805,3 +805,59 @@ well, this falls right into this question here because right now it cannot be pe
 so, my answer kinda sucks, because I'm essentially saying you can't perceive your past as perfect until you're feeling really good now -- which is why I dislike the word "perfect" so much because it's an absolute and you can always find something unwanted in an absolute. instead, I prefer the ralative prespective of only perceiving improvement.
 
 so, instead if trying to see your past as perfect, try to see it's continual improvement. you may say, well, I'm getting older or uglier or whatever... if you can't find the improvement on the physical subject focus on how much more you understand things, or how much easier things are. there's always an improvement somewhere -- just like you can always find a positive or nagative aspect about ever single thing that exists (relative to your perspctive).
+
+### 2020-06-19 15:49 - (2020-06-13)
+
+#### 18:27 - going to new locations
+
+considering the previous entry I just wrote about in noseblog: @[noseblog](2020-06-19 14:33), I felt this was a really good thing to pay attention to here...
+
+«when you are sure that your discomfort is about your conditional love, and you have shown yourself that you are more unconditional in your focus than you are conditional, then you can go to your new environment and rondevous with 'new you' in new expectation in 'new environment' and you can attract what you're wanting»
+
+this is exactly what I'm talking about.. I have become so unconditional now that I am so much more confident (trusting) in the LOA and the process, that I'm certain that as they continue to give their attention to what they don't want, I don't need the conditions to be a certain way... lemee explain better:
+
+when seen from the negative point of view, like for example, let's say that I've been giving a whole lot of my attention to some problem in my environment and I think to myself, "wow, if I could just get away from these negative people or undesired circumstances, then I'll be able to feel better" -- then, I go to the new circumstances, I can have a temporary improvement, but I am still me, and I still feel the same way, so while they are new circumstances, I will begin to attract the same things back into my experience which will prove to me how I feel. then, it's obvious that changing circumstances isn't really such a great idea.
+
+however, if the opposite is true: let's say, I've been finding ways to unconditionally feel good, then I change my circumstances, but again I bring myself with me, so even if the circumstances are, let's say in the worst case, setup for me to keep me held in bondage, the new circumstances still provide a further expansion of that 'new me' ... I'm complicating things with my explanation. point is, you bring new yourself with you, and the new circumstances provide a new enviromnnt for the manifestation of the vibrational you... whether that's the one giving attention to unwanted, or the ene giving attention to wanted.
+
+my point is, it's all fine as long as I've been learning to be "unconditional" -- which, when they say "unconditional", that's shorthand for what I mean when I say, "focused and noticing the improvement" (instead of the conditions).
+
+#### (28:42) - things are always working out for me
+
+this is the same thing as what I mean when I say noticing the improvement. I don't say, (but prehaps I should), "things are always improving for me" -- because that's something that a lot of people would really take issue with, but I have noticed that because no mattre the circumstances (or details) of whatever is happening, I'm still me, and my desires are still there. so, even if something looks like it's falling apart or it's something unwanted, they *are* improving and becoming more of what's wanted (in more of those underlying intentions sort of way, instaed so much of the exact details).
+
+that's what I've come to understand the evoution of desire to be... it's that things are *always* becoming more of what's wanted, and so the key is actually be able to notice (or perceive) the improvement instead of the condition. it often times takes a more general or broader point of view, and an understanding that you are eternal. sometimes your present circumstances do not allow the manifestation of that greater improvement, and circumstances need to change to allow that to happen (whether it's a transition into non-physical or another physical place), but things *are* always improving, even if you're still not up to speed (in alignment with) with the improvement yet -- which is why, it's so important to find a way to perceive the improvement even if the desired details aren't what you thought they might be.
+
+---
+
+it works both ways too: even for nosebook, what they want is to prevent me from getting connected, and therefore you can see that their ability to hold me back is also improving as well. as long as they can hold on to and stay in alignment with their desire o hold me back, things will continue to work out for them. they're also working out for me too because the evolution of desire *is* also an improvement.
+
+#### (37:34) - responding to negative emotion and "working through" it
+
+there is something here that I would like to add from my own personal experince. first, everything they said... trying to fix soemthing just makes it worse, and just leaving it and moving on to something that feel better will soften the negative emotion.
+
+so, for me I had to do what they said, which was just switch subjects for a while, because it was the only thing that helped. when I tried to fix it, I would go back and try to find a better or different way I could have responded, to try and affect a situation that wasn't so embarrassing, yet that never worked. I just found myself in more of those types of situations, and they would make me feel equally as bad or worse.
+
+after a while I began to just stop caring what other people think about stuff, because most people are pretty critical because they too are self-embarrassed on similar subjects. what I began to realise is that the world is reflective in nature. when I felt embarrassement, my world reflected that and I had more embarrassing moments. and the same thing was happening with those people laughing at me or being critical of sometihng I did "wrong" -- their world also was a reflection of what they were too embarrassed about -- because, if they truly were not embarrassed about it, they wouldn't be laughing at me. instead they're laughing at me to try to feel better about that same embarrassment they theirselves have.
+
+so, as I began to understand this, I noticed that fewer and fewer of those things happened -- however, when I would just switch subjects, while I did feel better and it did provide me relief, I noticed that those situations continued to show up. however, the switching of subjects was an importing step in getting to the understanding of the reflective nature of reality, because if I weren't able to allow that negative emotion to diminish enough, I wouldn't have been able to see the understanding I was looking for to really "fix" it. the only thing that I fixed was my perception.
+
+this is why I carry on endlessly about changing your perception, yet I remembered with this questioner how that used to feel, to get those flashes throughout the day of some embarrassing situation, and have it plague me. the distraction bit is an important step to being able to make the next one which is a change in perception to one of understanding.
+
+#### (38:08) - fear of change in circumstances
+
+I'm only going to repeat myself here for my own benefit. up until this morning after that dream (@[noseblog](2020-06-19 14:33)), I would perhaps have had a similar sentiment, however, I really have begun to trust that things, although unknown, are going to follow along with my vibrational (emotional) output that I've been having so far, and so if I'm sure that I'm focused on and noticing the improvement, then it stands to be certain that new circumstances are not all that unknown actually. instead, they can be expected to be in vibrational alignment with where I'm at emotionally.
+
+#### (48:48) - who's catching up?
+
+this idea that your inner being is always out ahead is something that I have believed and said on a few occasion. anyway, I don't think they took issue with the part that when you "catch up" is when you croak, because they've said that a few times theirselves. I think instead they wanted to emphasise the "cycle" bit about how you, out here in physicality are not living the same version your inner being is  living, so the difference between the two creates some sort of negative emotion, which then gets you to launch new rockets of desire for an even better version, which then your inner being realises and is now living, but you aren't living that version, so you feel negative emotion which launches more rockets, ad infinitum.
+
+I hadn't really thought of it in that sort of cycle version before, but it's clear that if you were to be experiencing the exact same version that your inner being is experiencing, you wouldn't feel any negative emotion, so no new desires would eminate from you, so it wouldn't expand. I didn't really realise the importance of negative emotion :)
+
+#### (56:10) - getting superpowers
+
+the funny thing here with this question is that the main focus on this question was about flying. I loved their answer (even though it can be perceive both ways), is that your true superpower is to feel the way you want to, no matter the circumstance.
+
+I've often said that when I learned how to consciously fly in my dreams, it was when I was able to feel an overwhelming sense of freedom.
+
+they said that our physical laws are there in place to keep our planet in perfect proximity to other planets... yet, I've never asked the laws of physics to change for my ablity to fly. I have repeatedly said that there are definite steps that anyone can take to begin levitating (flying) theirself, directing energy (shooting fire/lasers), or jedi mind tricks, or conjuring objects in 3d space which others can see. all of the prerequisitites to these "superpowers" come from strong emotion, so it is true their answer: your true superpower *is* your ablity to feel the way you want to no matter the circumstance, like for example feeling enough freedom to be able to fly even in the midst of circumstances which others are trying their best to convince you that you cannot fly.
