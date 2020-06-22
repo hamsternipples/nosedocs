@@ -11249,6 +11249,58 @@ that's your basic funk formula. once you get the hang of it, you'll feel invincb
 
 [2]: I am joking of course, because gratitude is an absolute feeling, and trying to jump from frustrated, angry or depressed to gratitude is really hard. I much prefer relative feelings, as it's much easier to feel better than make a jump like that.
 
+
+### 2020-06-20 21:37 - what's really happening
+
+I finally figured out what's going on. once again they're trying to make an illusion. you see what's happening is -- you have to picture it from their point of view: I'm sure that more than 50% of their campany wants the manifestation of me with the girls to happen. therefore, in order to keep them busy, and look like there is progress happening, they repeatedly have them setup different things that are meant to be sabotaged. this keeps people placated as it appears that nosebook is attempting to do stuff to make it happen, all the while there is strong effort in order to sabotage the whole thing.
+
+remember when I went to friendly harbor and holly was there and we were getting along quite well, when greg came and tried to get me to go home with him, but I wanted to stay? then after that a guy pretending to be on meth was trying to get my attention, then they said something to heather which made her feel really bad? all just because we were getting along so well? they never intend for anything to actually work out, but to just present the illusion that it's working out to the audience, because they know that if I have sex, I'll get connected, and they do not want that -- at least thee guys in charge of the thing sabotaging it, don't.
+
+---
+
+besides this, I am actually aligned with them on that aspect. I don't want to be doing anything until I get connected. I just don't feel like I'm quite capable of keeping things under control... control isn't the right word. I just don't feel like I have confidence that things can actually work out in a good way. I wake up right now a complete zombie, and it takes me definitely quite some time to get going. many parts of my body are not working properly, and I have all sorts of difficulties that are not otherwise necessary.
+
+they do seem to be improving though, because remember when I first arrived here in pueblo in 2017, and I couldn't even walk up and down the stairs without holding on to the rail? I've come a long way honestly. I'm in a WAYY better place now than I was, and I'm continually seeing improvements all the time.
+
+---
+
+from here, there are two branches. one of the ways of looking at it is that if I were to get connected, then it's less of a continual improvment
+
+I have given some thought to the idea I presented here: @[noseblog](2020-06-20 07:08) and I was thinking about it on the way home. since all I'm doing is just continually focusing on the improvement and letting the evolution of desire happen, it leaves a lot of time. so there really are two ways here:
+
+1. I could just continue on as I have been doing my star-watching and stuff continuing to see improvements. I imagine that I'll continue to see notable improvements the whole time, and I was thinking, "ok, well maybe I can still do some sort of project with the girls even still" ... and I suppose I would just go the asexual route and we can create something together.
+
+2. or, we can just plan on doing something, raise the funding ourselves and get something going.
+
+---
+
+in both options, both of them suppose that we set it up, and we get it going, instead of relying on nosebook to do it. I assure you they don't want it to happen, so waiting on them will be an endless task. instead, I think if we're going to do it, I really think we should set it up, fund it, and we should find the path to do it. that way, it would be our creation, and rememeber the one abe-now episode @[abe-now](2020-05-21) where they made the following quotes:
+
+> «when you've given a lot of thought to something and you've been very careful and specific about it and you thought you'd done a good job of explaining it to the others around you -- and then you realise that you hadn't communicated to them what you really meant; they don't get you; they don't know what you mean, and they get off on a toot and they perform something that is in the exact opposite of what you would have done, __if you had of been in on it__ and it makes you feel nuts, and it makes you feel out of control?»
+
+> «it's so normal to gravitate in the direction of your desire. that's why you have arguments with people. when they move in the direction of what you mean and what you want, __it is never appropriate to just give in to that__. it's much more appropriate for you to own what you want and speak what you want and explain what you want. there's nothing wrong with helping others understand your calibration process.»
+
+> «never calibrate to something you don't want, even for the sake of finding harmony and friendship with them because it will bite you over and over and over again. be true to yourself and true to your vortex -- and when you're consistently there, others will understand where you're coming from.»
+
+the sense that I was getting is that I'm definitely going to "want to be in on it" -- and since they must hide behind a shroud of secrecy and stuff so much so, that they can't actually have a conversation with me. instead, the only feedback I get are car sounds and loud birds, so it's not really an effective form of communication, so logically I have to rule out the possibility of "being in on it" meaning to be having any form of meaningful communication with them.
+
+then, the part about what they said, when they said, "it's much more appropriate for you to own what you want and speak what you want and explain what you want". that's the thing, is I do want to own what I want. I don't wan to be just forced into some thing to placate their audience. I want to actually want it, and direct is too strong of a word, and so is control, but I want to feel like it's something I created. I suppose that's why I'm kinda holding on to this idea of finishing up a first version for so long, because I want to feel like I'm creating something instead of just doing something that someone else wants me to do.
+
+most of all though, I want the girls in on it too. I don't want it o just be me or nosebook (mostly I don't want it to be nosebook) deciding what it is that should be done and trying to manipulate everything... it's hard to explain, this but I really hate sitting back and quite literally everyone knows more about what's happening than I do.
+
+I'm gonna stop there.
+
+---
+
+what I was thinking though is that if we want to do this, I think we should set it up and get it going. I don't really know where to begin, either, and I know that trying to figure out everything in a short period of time feels stressful and undesirable to me, so what if we just did something like:
+
+(this is just a draft concept, and I'll feel it more as it goes)
+
+what if we planned for november/december or something in there to give some time to do proper funding and get things set up.. like maybe a kick starter type thing (actually that feels kinda bad) or something... maybe we only need a few private investors, or maybe we did our own crowd funding type thing where that investment translate directly into investment into the organisation. I don't know. I've given some thought already to the way I want to strucure the company as well, and I'll begin writing those as well, because I think we should do thing a bit more differently than normal start-ups do them. I want the girls to feel ownership in what they're contributing, and the model will be much more "flat" than the typical model. I'll explain more soon...
+
+
+
+
 # the end
 
 ### 2020-05-24 ??:?? - sumerian gods reflection
