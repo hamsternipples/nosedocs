@@ -11243,7 +11243,7 @@ I dislike framing the emotional work in the frame of control, but there really i
 
 if I react to the those things, it will produce more of the same thing (or, you could say it'll get worse). however, if I actively choose to think and feel something different, something that feels better (not necessarily good), things will steadily improve, and if I keep noticing that improvement, eventually those things that are no longer a vibrational match to me, will leave my experience or transform into something that is a match to how I now feel, which is better[^1].
 
-that's your basic funk formula. once you get the hang of it, you'll feel invincble. my esperanza is that a good solid majority of people are capable of feeling that; it's truly the most wonderful feeling of freedom, and it's not that hard: you just have to *want* (desire) to feel better (or, you could try slogging through a crappy experience trying to focus on gratitude, lol -- I heard that works really well[^2]).
+that's your basic funk formula, right there. once you get the hang of it, you'll feel invincble. my esperanza is that a good solid majority of people are capable of feeling that; it's truly the most wonderful feeling of freedom, and it's not that hard: you just have to *want* (desire) to feel better (or, you could try slogging through a crappy experience trying to focus on gratitude, lol -- I heard that works really well[^2]).
 
 [1]: why? because the world you experience is a *reflection* of how you feel
 
@@ -11299,7 +11299,29 @@ what I was thinking though is that if we want to do this, I think we should set 
 what if we planned for november/december or something in there to give some time to do proper funding and get things set up.. like maybe a kick starter type thing (actually that feels kinda bad) or something... maybe we only need a few private investors, or maybe we did our own crowd funding type thing where that investment translate directly into investment into the organisation. I don't know. I've given some thought already to the way I want to strucure the company as well, and I'll begin writing those as well, because I think we should do thing a bit more differently than normal start-ups do them. I want the girls to feel ownership in what they're contributing, and the model will be much more "flat" than the typical model. I'll explain more soon...
 
 
+### 2020-06-22 13:53 - I don't want to try (too hard)
 
+as I was thinking about writing this entry, I was thinking to myself, "trying to make this happen, feels to me like trying too hard" -- a squirrel came up really close to me. most of the time they keep quite a bit of distance from me, but this one was different. I took it as a bit of a sign of low-resistance. if what I was saying was high resistance, chippy wouldn't have come so nearby. so anyway.
+
+what I was thinking about prior to that was simply that I sorta am just stuck. there's not a whole lot I can do, and if it doesn't happen, that's OK with me too.
+
+I just simply don't feel very comfortable about anything. from my perpective, there are a number of things that, although they're improving, I just don't feel comfortable in my present situation.
+
+this whole time, learning to watch stars and stuff, I've noticed that if I just learn that their pushing against is just more energy into the equation, soon I'm doing as well as I am now where vision upgrades are so effortless, they have to take such extreme measures as removing my consciousness, and even then I still get them. I'm stoppable, and that is thanks, in large part, to their pushing so hard against my vision upgrades.
+
+if I try real hard to get vision upgrades, they don't happen either, so I've learned to just sorta go with their flow and work my way around in the conditions that I'm given. so, I'm just not going to try real hard at all. clearly, if I try to do anything, it gets stomped upon. so, really, I guess the message here is, I've kind of stated what I want previously, and until I get some inspiration on some action to take, I'm just going to keep doing what I'm doing.
+
+the only way I know how to operate is what I called "the basic funk formula" -- which I've called releasing resistance, also. anyway, the basics of it are, continuing to, instead of reacting to whatever is happening, find a way to perceive the same thing in a better way, which feels better and better (less resistant), then, as I feel better and better, because I attract my reality, those who are not in harmony with my better feeling place will actually (from their perspective) appear as if I'm repelling them[^1] -- but I'm not, I'm just attracting new things more rapidly than the old things.
+
+eventually, nosebook will either need to transform to become like my new vibraton, or they'll be "repelled". I'm not concerned how it works out, so I'm just going to keep doing what I'm doing.
+
+---
+
+earlier today I was kinda thinking that my position should be with the girls that if they want it, they'll need to figure out how to get it, and also be ok with the difficulties I have right now, because I have everything I attempt do right now isn't working. I don't believe it's going to get better though, and probably only worse as nosebook keeps adding more and more energy into the equation by trying to prevent things from happening.
+
+so I dunno what to think there, but for me personally, I'm going to stick with the basic funk formula for now, so excuse me if I seem uninterested or distant. my goal right now is lower my resistance right now. I doubt I'll even be programming my coputer here much as I don't really feel much like it (in fact, I hate it right now... there's nothing I like about it and nothing I want to be doing either). I'm hoping that I'll be able to gain a little more capability here as I stabilise, but I don't have great expectation really. I'm just going to do my own thing... everyone can just wait until I get stable and feeling comfortable. sorry, because I don't believe there's anything anyone can really do to help.
+
+[1]: though, what's really happening is that everything is constantly in motion, and so when one is attracting something things faster than others, it appears like repulsion. I think this is how magnets work, and actually I think magnetic repulsion may have actually increased slightly if the earth is traveling through the galaxy at a faster speed, for the same reason.
 
 # the end
 
