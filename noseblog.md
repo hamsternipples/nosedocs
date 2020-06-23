@@ -11323,6 +11323,23 @@ so I dunno what to think there, but for me personally, I'm going to stick with t
 
 [1]: though, what's really happening is that everything is constantly in motion, and so when one is attracting something things faster than others, it appears like repulsion. I think this is how magnets work, and actually I think magnetic repulsion may have actually increased slightly if the earth is traveling through the galaxy at a faster speed, for the same reason.
 
+
+### 2020-06-22 17:52 - ok, it's performance anxiety
+
+so as I was trying to go to sleep (afer being way overslept), my mind was guided to a thought. ever wonder how it seems like I take a mental path sometimes through all sorts of weird thoughts, when they only have a loose connection beween the thoughts? well, I think that's nosebook guiding (steering) me toward the thougt that they want me to think about.
+
+anyway, the subject this time was performance anxiety, and it's most likely in response to the previous entry where I said I don't feel comfortable. I thought briefly about it and rejected the idea that it's performance anxiety, because if I had performmance anxiety, I wouldn't insist on programming the things the way I wanted to program them -- instead, I would just pick a mainstream option like react or something and go with that. I don't have time for performance anxiety. I just go in the direction of what I believe in and give it my best effort. I can't do anything better than that.
+
+also, if I had severe performance anxiety, my seemingly impossible time I'm having trying to actually make the code work, would really be bothering me a lot more than it is, if I had performance orientation -- or trying to pee, or my left-side's difficulty, or or or... the list is really quite long of things that I'm experiencing greatly underperform, and if they gave me anxiety, I would be completely dysfunctional. put any regular hotshot in my position, and the guy would have a total meltdown, I assure you.
+
+---
+
+but then after thinking about it, I think I'm going to change my answer to yes, it is performance anxiety. in this disconnected state, I am absolutely certain that I would drastically underprform what is expected of me, and I am certain that in order to meet those performance expectations, I must get/be connected first.
+
+so I guess, I will instead say, maybe when you think of performance anxiety, you get anxiety becaue you don't believe you can meet the performance expectations. I don't get anxiety, because I don't have time for that; I'll always give it my best go, but I do believe that trying to get myself to perform in such a disconnected state feels unnecessary. it's sorta like crawling around in the dark and even though you have a flashlight in your hand, every time you turn it on, you get shocked (or someone takes the batteries away or something), and so it feels like silliness to be forced to fumble around in dark with a working flashlight with batteries in my hand.
+
+I'll wait until I can figure out how to use the flashlight consistently first before going out into the dark. certainly anyone concerned with risk assessment and safety would understand that.
+
 # the end
 
 ### 2020-05-24 ??:?? - sumerian gods reflection
