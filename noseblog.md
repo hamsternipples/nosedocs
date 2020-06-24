@@ -11340,6 +11340,35 @@ so I guess, I will instead say, maybe when you think of performance anxiety, you
 
 I'll wait until I can figure out how to use the flashlight consistently first before going out into the dark. certainly anyone concerned with risk assessment and safety would understand that.
 
+
+### 2020-06-24 13:46 - some more thoughts
+
+so when I woke up this last time I was presented with a thought -- a few thoughts actually, but they go something like this. actually, I can't remember the initiation thougts at all now (likely because they were nosebook initiated), but the conclusion was:
+
+I just don't think that adding girls into my present predicament is something that's wanted. although I'm improving, I don't consider my present state something that I want to add girls (more specifically sex) into.
+
+next, if I think about what it is I want to transmit to the girls as the most important concept, it is to learn how to find a way to feel good no matter the situation. there is literally no better way that I could possibly do that in good feeling circumstances. if I said you have to find a way to feel good when things are easy and going well, my words, and that idea don't really carry much weight. however, if, like in this present situation, the girls don't have easy conditions to focus on or some easy way to feel good, then what I want to transmit is actually quite a bit more pertienent, so it's a good thing.
+
+I'm fairly sure that there's no way that nosebook could ever change their mind about me getting connected, so that leaves the only option of finding ways to change perception of the situation until it feels good, then just notice the improvements as they come.
+
+so, I figure, if there's no changing the physical reality, if we can continue on seeing only the improvement, then what will happen is more improvements. this is good for everyone. this gives the girls an opportunity to practice feeling good, and then as we continue on, the ones that do find a way to feel good will, either in their own timeline or in this one, find theirselves in a new situation where conditions have changed (I'm connceted and things are moving forward).
+
+however, along the way, we can definitely try to do stuff. I'm hoping that I'm going to start getting more stable in my programming (and I will if I'm noticing the improvements), so it would be cool to begin building stuff in the meantime.
+
+the counter argument to that is that if we're already doing stuff together, why not involve sex? well, like I said, I don't feel comfortable with it. it's a huge amount of (from my perspective right now uncontrollable) energy I don't want to add. I want to try and build some things that I've been meaning to build for a while now. there's no doubt that there won't be difficulty, but I'm certain that the projects will be profitable and eventually there will be a way[^1] to get connected. it may also happen that we might now even want to because we're so successful already[^2].
+
+there's nothing to lose with this because the worst-case is that we're in the same situation we're at right now. the "best" case, we have a successful thing going and we can actually fund and do our own thing the way we want to do it.
+
+I dunno, I'm just not worried about it. I can still feel some dissonance around the subject, so as I identify them, I'll make entries about different transformations of perceptions that could be beneficial to this.
+
+---
+
+lastly, I'm perfectly safe suggesting this idea, because there's nothing any of us can do about the nosebook thing. the only thing we can do is to find a way to feel good anyway, and it'll take as long as it needs to take, whatever that may be. oh well. in the process, we may all learn a rock-solid approach to only pereceiving imrovements, and if that is indeed the case, in my opinion, it's kind of an even bigger "fuck you" to them, because even without the conditions they're withholding/sabotaging, we're still successful and feeling good, while they've got all the good stuff, yet are still miserable and afraid.
+
+[1]: it doesn't matter the way. we could be working on multiple ways at the same time, so the important thing is build up the resources to make it possible. perhaps one way would be sinthesising drugs, another would be an electrical system capable of changing how my head receives the signals. dunno..
+
+[2]: in my experience, and I know it isn't like this at all, but I haen't seen too many business operations succeed when there's "love" involved (the only exception again being jerry and esther, but perhaps keyboard.io guys too, but I don't know them..)
+
 # the end
 
 ### 2020-05-24 ??:?? - sumerian gods reflection
