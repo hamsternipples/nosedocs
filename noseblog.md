@@ -11369,6 +11369,31 @@ lastly, I'm perfectly safe suggesting this idea, because there's nothing any of 
 
 [2]: in my experience, and I know it isn't like this at all, but I haen't seen too many business operations succeed when there's "love" involved (the only exception again being jerry and esther, but perhaps keyboard.io guys too, but I don't know them..)
 
+
+### 2020-06-24 18:16 - why (resist not evil)?
+
+in general, it seems there is some confusion as why I would just follow along with their idea that they want to ensure that I don't have sex or get connected.
+
+in the basic of senses, I'm really tired of fighting. if there were a way to use my computer in a way that didn't get it shut down all of the time, I would do it. however, there isn't a way that I can affect what he does to my computer, so I just keep doing the best I can to go the way I want to go.
+
+I'm well aware that it's just more energy so no problem there and the real success of any thing is not the physical evidence, but the emotional sense of how well you feel, so even if I never make any real progress on anything I'm trying to create on my computer, that's not the real success I'm looking for.
+
+as a result, you'll notice that I just don't care so much anymore either to do my programming. if they don't want me to do that, that's fine, and quite simply, I'd rather just wait until I can actually use my computer in a productive way, than to try fighting it out.
+
+I'll just go right along with their idea to keep my away from the girls. I just don't care. I want to be fourthcoming though. I don't want to live an illusion where I am pretending (or presented as) doing one thing, when in reality I'm doing another. for me it's much easier mentally if I'm just going the asexual route. they can present me to you guys however they think is best, but I'm not going to try and go for something that's always going to be sabotaged.
+
+I'd rather spend my time working on things that are constantly improving, than to try and make something happen that they're completely against. I just don't care enough to try and make it happen and would rather it didn't, because if it did, then it woudld just be where I'm at, but worse. it doesn't feel like working in the direction of an improvement for me.
+
+I guess it kinda has some similarity to the question in the abe-now broadcast (@[abe-now](2020-06-18)) about being forced to wear a mask and its final quote about resisting no evil, as well:
+
+> This doctrine of "resist not evil" is the great metaphysical secret. To the world it sounds like moral suicide, the feeblest surrender to aggression; but in the light of the Jesus Christ revelation it is seen to be superb spiritual strategy. Antagonize any situation, and you give it power against yourself; offer mental non-resistance, and it crumbles away in front of you. -Emmet Fox
+
+trying to push against what they don't want feels to me like a fruitless effort. perhaps it is "the feeblest surrender to aggression" -- but, I don't really have much choice. I only have the ability to transform my perception[^1] and notice that things are improving.
+
+I don't know of a better way to explain it right now...
+
+[1]: I'm going to be doing a whole lot more focus wheels here to show my mental process for all of you to see, as well.
+
 # the end
 
 ### 2020-05-24 ??:?? - sumerian gods reflection
