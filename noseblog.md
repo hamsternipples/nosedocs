@@ -11394,6 +11394,67 @@ I don't know of a better way to explain it right now...
 
 [1]: I'm going to be doing a whole lot more focus wheels here to show my mental process for all of you to see, as well.
 
+
+### 2020-06-25 22:48 - let the success metric be an emotional metric
+
+I'm writing this mainly for myself. I gave a longer version in a monologue yesterday, but when I'm talking the ideas flow through me and I have to pay attention to myself to actually get them. if I don't repeat them, or go back and relisten to my own concepts (I do this mentally because I don't have a tape recorder recording myself), I'll actually forget them because they're inspired (that means I am to some degree in an altered state), so they have very little staying power in the mind because they're foreign to everyday thought (very similar to how esther "channels" abraham, channeling an idea on drugs or in any inspiratve moment).
+
+as a result, when I'm giving these sorts of inspired monologues, (unfortunately often when I'm in conversation with people) I want to pay attention to what I'm saying and retain it, so I do stuff like repeat myself while I'm talking to people until I get it :) I have a whole bunch of techniques that I use to retain these ideas in altered states, which is why you may wonder why I can still remember pot smoking sessions from over a year ago, yet I have difficulty remembering some people's names[^1]...
+
+yes, I'm talking mainly to myself, not to them. I enjoy listening to what I have to say more than they do. this is actually why I appreciated so much my conversaion (arguments) with john michael, because in the process I said things and made new realisations on subjects I hadn't before made. this monologue was no different. I realised and had put words to, for the first time, some new things about my new state of non-resistance that I had not previously done.
+
+---
+
+abraham has said on a few occasion, that your "success" is how you feel, and that really resonated with me, because everything you're doing is to feel a certain way. think about it. even the most brutish of people are doing whatever they're doing to feel some sort of way -- usually superior in some way, to compensate for their own beliefs about theirselves as inferior.
+
+so, *anything* that anyone is doing, the final result is *always* a feeling! it doesn't matter whatever the physical thing is, the end result is *always* a feeling. therefore, instead of measuring the success of any intention should not be measured physically, but emotionally: did it accomplish the feeling that you wanted it to accomplish?
+
+most people are doing a whole lot of things, making a whole lot of action, but it's all for the purpose of making a feeling. all action (and thought/imagination, because they are the same -- see matt. 5:28) is to create a feeling. play a mental game for a moment and notice what your imaginaion would be like if what you imagined *didn't* produce a feeling[^2].
+
+all desires that people have are built out of the opposite part (what you don't want to feel) so you know what it is that you do want to feel, even if you can't put words to it yet. later, the rational mind gets in there and introduces resistance to the desire by trying to figure out what is the physical version of that newly desired way to feel. we say, "oh, well, if I could have this, then I would feel like that" -- but it never does make you feel exactly like that, so every manifestation always has a slight bit of unwanted feeling in it -- *at first*.
+
+---
+
+let us not look at "timelines" briefly: you can imagine that there are infinite versions of you that all feel slightly different than you do right now, and so therefore are all living in a slightly different experience. that experience is an exact reflection of how they feel.
+
+so, whenever you desire something, your inner being doesn't hear "words" -- it hears vibration. well, what is vibration? each thought you think creates a vibrational (emotional) reality all around you. you will notice that you can feel someone with really strong negative thoughs. they don't even need to speak words. it's present around them like an atmosphere. let's say someone is very depressed and even if they don't say anything, it's very evident. well, your perception is all about timing, so imagine a sine wave and your at 0°, the value is 0. at 90°, it's at the positive peak, at, 180°, back at 0, then finally at 270° it's at the negative peak.
+
+your perception has more to do with timing, than it has to do with frequency because the frequency is determined by you -- and you sample the frequency at any time on that waveform. at the same time, your inner being is projecting the same waveform but at a different phase. so, if you're seeing the negative peak, and your inner being is seeing a positive peak, you will feel discord such as anger or depression. likewise, if you're perceiving something as a positive peak, and you're inner being does not perceive that same thing to be on your way to the way you really want to feel, your inner being will say be seeing the negative peak, while you're perceiving the positive peak -- so again, it'll feel like a lot of discord.
+
+anyway, back to the person who is angry or depressed and their thoughts are creating this vibration (emotional) reality around them... their thoughts are tuning their perception to the part of the waveform which is 180° out of phase of what their inner being percieves, which is in the direction of feeling the way they really want to feel... so while they're focusing all of their attention on how awful things are, *at the same time* and *in the exact same waveform* is the opposite peak, the "other end of the stick" -- where all that person wants to feel is also being projected. however, because their perception is 180° out of phase, they're perceiving (feeling) the exact opposite of what they want to feel.
+
+---
+
+so, you will notice that while you are feeling awful, you are simultaneously creating what you want to feel (later physical details fill in), so you could say that the whole point of it all is to feel negative emotion... right? the more negative emotion you feel, the more good stuff you're creating, right?
+
+it doesn't have to be that way. you don't need to experience negative emotion to create what you want. imagine a different scenario, where you're purchasing a computer and you're looking at the specs for the different models, and there are 3 models that each have something you want, but none of them have all three. well, when you look at those models, let's say that this time now, instead of seeing wanted when it's not necessarily wanted (180° out of phase), instead, you see wanted on some bits, but you're not going to take all of models that didn't have everything you want and set fire to them or feel really bad that the video card only has 1GB instead of 2GB (or whatever). these aren't end-of-the-world scenarios in your mind, so they're just "not as good as they could be" instead of "completely unwanted" -- so let's say then in these models which don't contain all wanted things are say 90° out of phase or so.
+
+as long as you don't go and react in some negative way or feel depression that you're never going to be able to find the computer you want, you just take the feelings instead as indicators that perhaps you should wait for the model that does ring your bells or put your own compter together or something... point is, upon realising that those models weren't everything that you wanted, immediately, the vibrational model of the computer that feels exactly the way you want it to feel was created in that moment, and you're already on your way to get there. the "timeline" where you're picking up the computer that feels perfect to you exists and you only have to find a way to feel like you're picking up the computer that feels perfect to you.
+
+---
+
+therefore, if I completely take the physical bit out of it and go for the feeling, I'm actually getting to the manifestation that I want to have. ok, let's connect this back into reality, so it's easier to see:
+
+if the same waveform is contains the peak wanted and the exact opposite of it, and both are happening at the same time, then all I have to do is to change my phase, so that is in alignment with the phase my inner being feels. one cannot take absolute positions on the waveform, because it's only how much out of phase it is... when you perceive wanted and it feels bad, your inner being doesn't perceive that as wanted in the sense that it's not on the way to getting to feel the way you want to feel. the opposite could be true too: you perceive unwanted, and your inner being sees that as the way toward feeling the way you want to feel, so finding a way to change your perception of it being unwanted, can allow you to move in the direction of feeling the way you want to feel[^3].
+
+so, then, since both directions can feel bad (or good), one cannot perscribe absolute values to any (action/imagination/intention) or emotion. instead, they must be seen in relation with each other on a personal basis: the emotion in in which the action is performed, the way that the imagination makes you (really[^4]) feel. I then try to pick things that feel better. it's always a kind of trade-off in the sense that I'm trying to find things that feel little bits better, and avoid things that feel worse.
+
+for example, I missed going out to watch stars a few days ago, and it made me really want to go to watch stars -- yet, however, if it's like raining outside or something, then I won't go. trying to fight the rain and make that happen doesn't feel like something I want to do.. similarly, I really want to make a computer program I've been working on, but if when I sit down it feels like a lot of effort and not something that interests me or something I really want to do (even though I know I really want to make it, if it doesn't feel like I really want to make it when I sit down, I just go do something else).
+
+what I'm looking for is the way to find a way to getting to feel like I'm creating the thing I've always wanted to make, because that's where the manifestation I'm anticipating is located.
+
+I'm not looking to try and make the girls thing happen. instead, what I'm looking for is to feel like the most wonderful thing is happening and it's even better than I could have even imagined, because that's where the manifestation we all want is located.
+
+easy :)
+
+[1]: actually, I used to use a technique where I would mentally associate a person and their name with labels of some sort, because I found I could get their name back easily if I remembered the label. almost always the label wasn't something I could say in english, and actually, now that I'm writing this, that may be why I have so much difficulty remmembering people's names: I think nosebook is hard at work trying to rearrange the associations in my brain so that they control it's train tracks (eg. one concept only can connect to certain other ones), so when I have undefinable concepts, their system probably makes me forget them or suppresses them in some way.
+
+[2]: actually, I would imagine that the nosebook upgrades they gave to people in their imagininagion -- the real upgrade, although visual, the real upgrade in your imagination is that the resulting feeling from the imagination is stronger. this is the DMT they're forcing your brain to produce more of to make the imagination more vivid. you probably notice that your thought yields stronger emotion now too. the contrast is greater. long gone are the days of weak thoughts now thanks to nosebook.
+
+[3]: I just got a weird reaction from someone about this concept in relation to nosebook. the concept goes something like, they're perceiving something (probably me getting connected) as something unwanted, but it's actually on the path to feel the way they want to feel. whatever.
+
+[4]: I have noticed this one is a tricky one, because some things feel better than others but it's important to separate the action from the emotion. so, for example, in my imagination, hatred revenge and killing people can feel really good, but it's only because it's better than the feeling of depression -- and, if I think about killing people in any other emotion than pure powerlessness, it doesn't feel so good.. or, another example: sex and pleasure can feel good, but it's only becuase it feels better than boredom and lethargy, yet doesn't compare to a feeling of joy and pure extacy -- which then, if from there, you add in sex, see how much better the action of sex feels with extacy or joy than it does with lethargy or boredom.
+
 # the end
 
 ### 2020-05-24 ??:?? - sumerian gods reflection
