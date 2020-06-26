@@ -11455,6 +11455,21 @@ easy :)
 
 [4]: I have noticed this one is a tricky one, because some things feel better than others but it's important to separate the action from the emotion. so, for example, in my imagination, hatred revenge and killing people can feel really good, but it's only because it's better than the feeling of depression -- and, if I think about killing people in any other emotion than pure powerlessness, it doesn't feel so good.. or, another example: sex and pleasure can feel good, but it's only becuase it feels better than boredom and lethargy, yet doesn't compare to a feeling of joy and pure extacy -- which then, if from there, you add in sex, see how much better the action of sex feels with extacy or joy than it does with lethargy or boredom.
 
+
+### 2020-06-26 00:46 - opening up the eye
+
+I was out star watching a little earlier, and I was noticing that the way I was focusing, it felt like an eye inside of my head was opening. it was a very strange feeling which I want to relate here.
+
+imagine trying really hard to open your eye lid. for me, maybe afer I've been asleep for a while, it may feel sluggish to open, but certainly like it requires any effort. however, while fully awake (not tired), imagine what it would feel like if you needed to apply effort to open your eye. it's sort of counter-intuitive for me -- maybe like I need to apply effort to close them, actually.
+
+well, it was sort of like that. when I was there focusing on the light, I noticed that if I put effort into trying to open the eye in my head or focus the light into the centre of my eye, it wouldn't work. instead it happened easily when I just allowed them to open.
+
+then however, it felt like a suddenly a rush of energy, like as if I were staring directly at a very bright light trying to open my eyes -- perhaps even stronger than the sun it felt kinda like -- and then the eye wanted to close again. obviously, there was no bright light, and when that happened, I saw only blackness instead of any light, and the strong feeling of the light felt like it feels when trying to stare into the sun with both eyes at the same time. however, just like I have trained myself with the sun, I can imagine that sometime soon I may be able to open that eye and it will acustom itself enough that it doesn't automatically close from such a strong influx of energy/light.
+
+---
+
+I wanted to write this because there's a very great "secret" to understanding that opening this eye is like trying to put great effort into opening your eyes when you're already awake. it has more to do with letting your eyes adjust to the ambient brightness, then making effort to open them, cause in your awake state, they already want to be open.
+
 # the end
 
 ### 2020-05-24 ??:?? - sumerian gods reflection
