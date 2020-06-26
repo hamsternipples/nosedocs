@@ -11470,6 +11470,35 @@ then however, it felt like a suddenly a rush of energy, like as if I were starin
 
 I wanted to write this because there's a very great "secret" to understanding that opening this eye is like trying to put great effort into opening your eyes when you're already awake. it has more to do with letting your eyes adjust to the ambient brightness, then making effort to open them, cause in your awake state, they already want to be open.
 
+
+### 2020-06-26 07:55 - more real-life examples
+
+ok, so let's put a little more of what I said in last-night's entry @[noseblog](2020-06-25 22:48) into real-life terms.
+
+for me, let's say that I have this thing in my life that isn't going to change, yet whatever I think about it in my current form of perception makes me feel bad. for me, the obvious example here is nosebook. I cannot, under any circumstance ever come to the conclusion that emulating their behaviour would ever be something wanted for me. I cannot ever see myself enslaving a person, taking everything they discover, and using their own stuff against them, manipulating and trying to steer their life in a direction which is not beneficial. I could never do this to another person, so for me their behaviour us unwanted and abhorent. perceiving this part of the waveform definitely does not feel good.
+
+however, they are in my experience and there's nothing really I can do to make that different. they're not going to be going away anytime soon so there's no hope that I'm ever going to find a way to feel good, if I don't change my perception. so, that's exactly what I have to do. nothing of what they stand-for is something wanted for me, but I can choose to see how much of an energy boost our interaction is. I can choose to see how they are causing me to focus and to write things like this entry, and their constant pressure (of what can appear to be really unwanted) is at the same time creating an equal (huge huge huge) amount of wanted in the same waveform.
+
+before continuing, I want to mention that the word "vibrate" is to go forward and backward, yet the thing vibrating isn't necessarily in motion itself. a good example of this can be found at the end of this video @[youtube](https://youtu.be/snHKEpCv0Hk?t=538) or here in the demonstration of magnetic current @[youtube](https://youtu.be/OI_HFnNTfyU?t=616). you will notice that in both of those examples, nothing is moving. the circles or rods are only moving back and forward, but it gives the illusion of movement forward or backward.
+
+I don't know of a good way to visualise this so I will explain it. in alterating current, like if you had a magnet going around a coil, the current flows in one direction, then reverses and then goes in the other direction. so if you were to look at the generator's output one time per revolution, depending on where-at in the phase you were taking the measurement, you would observe current either flowing toward the coil or away from the coil. as long as your perception remained the same, even though it's not possible for the coil to only receive or transmit energy (just like it's impossible for your lungs to only breathe in), it would appear that way[^1].
+
+the diretion that you perceive the current flow has to do with the phase relationship of your perception with your source's (inner being's percepion of the same thing). so, even though it would appear to me rationally that nosebook is exactly moving away from the way I want to feel, the fact that I feel bad is an indicator that my perception could be changed... so, if instead of seeing all the manipulation, I instead perceived the huge energy boost I'm receiving and all the great new realisations (like this one) that are coming out as a result, then now my perception has altered which part of the waveform it perceives, and now once again it appears like I'm once again moving in the direction of wanted, and my emotion should agree with that too.
+
+so, does that mean I should just be a push-over and let nosebook do what they want, as long as I keep perceiving the positive aspects? yes, kinda. what I'm perceiving (feeling) is the direction I'm going, so at some point nosebook in their current form will no longer be a cooperative component to my moving in the direction of what's wanted, so they'll be forced, if they still want me in their experience, change.
+
+imagine you have a friend and all of a sudden one day he decides he's just going to become a huge douchebag. there's nothing you can do to get the old friend back, so you either have the choice of becoming a douchebag yourself and douching it up right along with him, or to find another friend. it's sorta like that. when someone changes their perception, you can either go along with it, or find something else to something more in alignment with what you percieve.
+
+or, to say that more in a similar way, if I'm being manipulated by someone, that's because I perceived (felt) myself as a victim. if they need someone to manipulate, they'll need to find other victims to manipulate, or they'll need to change their form of interaction to be one that's more in harmony with how I now perceive myself. most manipulators just jump to their next victim because they have no intention of changing[^2].
+
+it's perfectly fine that they want to continue to exist the form they are most comfortable. so, instaed of perceiving them as something bad, if you were to look at it more from the perspective of a chemical or alchemical process, these manipulator types can be seen as "reagents"[^3] or the chemical environment which performs the achemical process.
+
+[1]: I realise that peak current flow is roughly 90° behind the peak pressure or voltage in an inductor and the opposite for a capacitor because it's "discharging" instead of converting a magnetic field into electricity. however, as I realised this, I wanted to write this note to pay attention to the fact that if the peaks are pressure toward wanted and pressure away from wanted, it's important to note that all the current actually flows when the pressure is closest to 0. which, converted into the emotional scale, means that current flow roughly is the scale of dissatisfaction, resentment, OK, contentment, satisfaction feelings. this is a simplified example anyway...
+
+[2]: this I believe is because I think that most manipulators perceive theirselves as a victim, and so to be the one manipulating (or acting) gives them the illusion that they're not the victim anymore. I think if they entertained the idea of giving up being the controller, they would become the controlled, so you have this endless struggle to try and be the biggest and the strongest or the one with the most influence.
+
+[3]: In organic chemistry, the term "reagent" denotes a chemical ingredient (a compound or mixture, typically of inorganic or small organic molecules) introduced to cause the desired transformation of an organic substance. -Wikipedia
+
 # the end
 
 ### 2020-05-24 ??:?? - sumerian gods reflection
