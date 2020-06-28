@@ -425,3 +425,66 @@ musing on that for a moment, if something similar to the idea above were to actu
 ---
 
 I think if a young child wants to pick a mate for theirself early on, I think adoption is quite a good idea. there are lots of children in 3rd world countries, and this may actually be one of the most effective way of reducing the diparity between our cultures -- by giving their children opportinuties with our children.
+
+
+### 2020-06-21 ??:?? - ideas for organisation structure
+
+I initially wrote this as part of @[noseblog](2020-06-20 21:37), but then I was getting way off topic, so I separated it out and put it here instead. it's kinda a brain dump and isn't well thought out. I've had some more reactions since then, and some I think are obvious.
+
+---
+
+one thing that I want to institute is a less-top down approach, and it's instead more of a bottom-up approach. the major critisim that I have with a lot of tech start-ups is that the guys that are doing the majority of the work and providing the most meaningful impact on the trajecory of the company are actually not the ones getting compensated for their efforts. likewise, there are key components which don't provide that influence on the trajectory but are absolutely essential for everyday operations. often times they're very underappreciated, because they get lost in background to all the hot-shots making a big deal of theirselves[^1].
+
+these sorts of things are important to me, because in our case, the line between an organisation and a family will be kinda blurry, so the ones that are "holding down the fort" are just as important as the hotshot sales team or the brilliant engineers.
+
+---
+
+I've put too much emphasis on the "company" aspect to it, I think, but my experiece tells me that you need to establish some sort of metric saying that you get in return to what you contribute, and that your contribution won't be determined by some "human resources" department, but almost entirely by those you work with. sino, the investors come in an poop on and say the organisation doesn't have leadership (which they intend to manipulate and try to push bad ideas through). instaed, I want a more organic thing where ideas can be realised and put into operation rapidly without having a whole lot of top-down direction. ideas should instead come as natural inspiration to extend some aspect of the product.
+
+the reason why I want more of a peer, flat based design is that, if you allow different individuals to become "experts" in their bits of the company, collaboration happens much more easily and the product grows more organically based on identified optimisations to the product, the needs of the users and the new ideas that come to the guys working on it.. it's great when you get a new idea and it sounds good, so you get a bunch of these experts in their domain together and they each express what they can contribute to improve or implement idea -- then after it's decided what's going to be made, each go and then figure out how to make it happen.
+
+---
+
+I expressed this with the frame of mind more like a product, but if you think of the children being born and the organisation itself also as the product, we'll be very efficient in creating new things for ourselves to use.
+
+so.... uhhh, that was a pretty big brain dump. I'm very sorry it was so much mundane things. I'll try and make a more better version later, but I don't think it's all that important let it be much more than an idea. maybe actually I'm only proving to myself how complicated I'm making it out to be, when maybe we should just focus on getting the funding and get it started. I suppose we won't really know what until we have hindsight.
+
+[1]: I am, of course referring to alexia, iñigo and elena in tuenti. I can remember, for example, that without alexia doing what she did, the company would not have functioned in any meaningful way. she did everything from server orders to lunches. you also notice this in families, and it's often times the stay-at-home parent (moreso seen in more traditional-type families), and that every-day continuity is important and I want it to be compensated because of how essential it is.
+
+### 2020-06-28 12:44 - thoughts on the org structure
+
+> org = organisation, organism, company, etc.
+
+one of the reacions I mentioned was that an org structure based on those ideas would need a sort of "currency" for it, so the most natural fit would be a crypto-currency. after giving it some thought, because of my present circumstances the currency will need to be entirely open (including the private keys used to build the genesis block). this means that quite literally anyone with any amount of knowledge could "spend" the genesis block's money or do transactions as if it were the org itself.
+
+so, because the currency is not designed to be an external-facing currency, tht means that really only "internal" transactions will be made, so it doesn't make much sense for a hacker to, for example take some amount of one of the girl's and give it to another. or from one investor/shareholder to another, either. therefore, the only thing it needs is a rapid way to recover back to a prior state that was agreed upon as good.
+
+---
+
+so, let's talk about how this would work in actuality: we would generate the crypto currency to be used amongst the girls at first (I'm going to exclude myself from this affair, as I have no interest in money or monetary anything.. I am more intereested in seeing what the girls can come up with). the girls would each have their own private keys, and they could either be publicly available (just like the genesis block), or they could divide their key out amongst some number of others that they trust, which when they want to make a transaction, need to ask their friend for the key shards to be able to make the transaction.
+
+however, because I think it's pretty much impossible to keep the keys a "secret", I think that's a fruitless thing to be doing for something that's only used internally.
+
+this crypto currency represents the "shares" in the org, and the girls will give either these shares based on some criteria that they will come up with, and it could change from time to time, too. the currency will have built-in inflation as well to make sure things are continually expanding.
+
+I was initially thinking double per year, but the idea that the planetary timescale of a year as a foudation of stabilty, I don't think is a good idea. however, I can go with the year metric in the sense of 1 revolution around the sun -- however, not in the term of days, because it's quite possible that our planet may spin a bit faster, forcing us to make our best guess as to what a year is by measuring our position in relation to the galactic centre or some constellation (and a second minor year with our position in relation to the other planets, but this has a different significance internal to the solar system, because if all planets speed up, then we need that relativity as well).
+
+however, a more simple thing that may be more better is the idea that all new projects are made as new allocations in the currency. any projects that are discontinued are deallocated or removed from the chain, and their currency turned into some other form. I'll have to think about that one a bit more. maybe some form of both actually, but the point is that it's inflaing or growing, and it should be growing and shinking right along with the organism (so maybe that is a better fit).
+
+---
+
+next let's consider how such a crpto-currency would work in relation to the outside world. let's say that someone wanted to invest or to "sell" the currency on the market. each of these "brokers" would purchase a fixed quantity of this currency in exchange for some resource useful to the org. this block belongs to them and they would get "dividends" (something we haven't talked about yet) on it just like the girls would, but that would be entirely theirs to do what they pleased with it. they could trade with it at whatever rate they want to or whatever.
+
+this way, it keeps all "trade" with other currencies out of the chain and the responsibiliy of the trader to ensure its security. our responsibility is not to micromanage all of these things, and also makes it very difficult for a "hacker" to compromise the chain. they could say steal from one of the girls only by transfering that block into the posession of a broker, then getting him to convert it to something. either way, the transaction will be very obvious anyone paying any attention would revert that commit.
+
+the security of the currency will not be the level of security of the cryptographic keys but, that there are only "known" (and self-insured) input/output channels. all of the rest of the transactions will be "internal".
+
+---
+
+simultanously, the org will have other resources which I think should also be kept out in the open just as well, not only for the investor's benefit, but good and proper (and open for everyone to see) accounting will minimise theft and other forms of covert resources. these will be real-life currency like dollars, euros, equipment, land, etc.
+
+these resources, are not meant to be stable, so therefore should be replaceable. equipment can break, and things can go wrong, so no worries if they do. this is not the org. the org is not its resources.
+
+---
+
+ok, that's good for now. next time after giving some more thought to inflation/expansion, I'll try to get out the part of the dividends too, because it's part of it, because the creations, though having a cost of maintenance, (the ones that are working) should continue to expand, and those invested in that will continue to also reap the benefi of that expansion.
