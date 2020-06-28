@@ -11499,6 +11499,35 @@ it's perfectly fine that they want to continue to exist the form they are most c
 
 [3]: In organic chemistry, the term "reagent" denotes a chemical ingredient (a compound or mixture, typically of inorganic or small organic molecules) introduced to cause the desired transformation of an organic substance. -Wikipedia
 
+
+### 2020-06-28 11:28 - another chat with the pharoah
+
+yesteday, or rather this morning, I was thinking about my congestion situation. I'm having a terrible time with my nose running and lots of mucus. I thought to myself, "well obviously this is a condition that won't be something that I'm going forward with, so there must be a time split" -- and I further was thinking about how perhaps their efforts to keep my visual capacity back would continue to worsen until I perhaps would die and that may be what creates a time split -- because there's no way that this can continue to get worse like it is.
+
+I didn't think much about the thought, because it helped me to see that this condition is only temporary, and will only last for as long as their efforts to ensure that my respiratory system remains inefficient, so as to not allow me to get enough energy (oxygen) to get visuals[^1].
+
+so, I just woke up from a few dreams just now which I can remember. one of them I was unnecessarily frustrsted at writing code, and I think this is a counter to what I was realising laast night when I was thinking about how, if I were to take my programming seriously like I do my star-waching, I may have more success, because almost always I start out in a mind all over the place sort of mental state, but as I slow myself down and focus[^2], then I get there. however, in the dream, I was unnecessarily frustrated at my code. what woke me consious in the dream I think, is that in the dream I was pissed that others were doing it before me.
+
+before I go on, I've sorta had to give up on the idea of being first on things. it appears that everything I've come to realise or to accomplish has been "borrowed" and it seems like almost everyone else has been able to do the things that I've been trying to get at. that's one of the things that I think they were trying to get me to be pissed off about with the girls thing: that it was the thing that was supposed to happen to me, yet it seems like others are getting to have sex with young girls, but not me (or before me). well, that doesn't really bother me that much. I had to give up on that one because trying to be "first" to anything with these guys listening in to every single thought I have is a fruitless effort, and trying to be able to "keep my thoughts to myself until they're fully developed" (a quote from jerry) is also a fool's errand.
+
+anyway, it appears that they "practice" or try to "pre-pave" my responses to stuff in dreams, and this was just another one of those to try and keep me from programming. don't get me wrong, it's something I want to do very badly, but when I sit there and my head can't get into the space, it's miserable and not enjoyable. it's not that I don't want to program; it's just that it's unfun. the best example I can come up with would be like asking me if I wanted to have sex while I'm all congested like that. maybe I might try it te verify that it's a miserable experience[^3], but it sounds like a miserable experience for everyone involved.
+
+---
+
+anyway, there was another dream which I cannot remember much of, where they were asking me about my thoughts on the time split. it felt like they agreed that instead of having the time split (where I died), they would agree to further attempts to reduce my body's performance. I don't believe them. getting flashes in my eyes is one thing, we'll see when I'm starting to be able to do real and tangible things in my eyes. I doubt they're going to be able to allow that[^4], so they'll have to try and neutralise it.
+
+one of the first things I thought of after waking was moses' interaction with the pharoah, lol.
+
+we'll see :)
+
+[1]: this is my theory of what is happening. lately I've had a lot more visuals than normal, and while some of them are the usual kind where I cannot visually see them (they appear black), some I can actually see -- none of them have been very clear, but for example after playing the gems of war game, often I get gems popping into my eyes for some hours afterward -- and those ones I can "see" -- not clearly, but some visual artifact that looks like gems or skulls appears in my vision. I'm pretty sure it's not me translating something I cannot see. they're there for a very very brief second -- very similar to how I would move my eyes and very briefly my world would be crystal clear, but then it would immediately become blurry. so, because it seems to be triggered by eyes moving (aka REM), and eye movement (or nosebook's energy I perceive as flashes in my eyes when other people use the network) creates the energy possible to see images on the eyes. therefore, I think the trigger is energetic (aka oxygen), and the only way they know how to ensure I don't achieve those energetic conditions is to make sure less oxygen is inhaled.
+
+[2]: I think the slowing down part is the primary action of the cigarettes, when then in turn gives me the ability to focus -- kinda like trying to take a sharp turn at 100mph: it doesn't work. so something to slow my mind down, so I can get it to change subjects (lower the intensitiy of the other stuff bouncing around in my head), and let me focus more easily.
+
+[3]: from some time before I came to spain till I was in vera's house, I cannot remember getting sick (that I didn't have a simultaneous exremely bad hangover), so I actually don't really know. it wasn't until I was at vera's house that I had my first runny nose in ages -- and I'm fairly sure it had nothing to do with her. the connection is that I was, at her house, much more prone to seeing visuals, asd they were likely trying stuff to mitigate that.
+
+[4]: cause what if some kids see me creating real things in my mind, and then believe that it's possible to do the same in their own imaginations too, like me. I mean the upside (for them), is that now they will have a whole bunch more other people's ideas they can "borrow" from (than just mine)...
+
 # the end
 
 ### 2020-05-24 ??:?? - sumerian gods reflection
