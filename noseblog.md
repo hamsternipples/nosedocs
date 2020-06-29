@@ -11528,6 +11528,48 @@ we'll see :)
 
 [4]: cause what if some kids see me creating real things in my mind, and then believe that it's possible to do the same in their own imaginations too, like me. I mean the upside (for them), is that now they will have a whole bunch more other people's ideas they can "borrow" from (than just mine)...
 
+
+### 2020-06-29 15:42 - maybe we (I) won't see...
+
+yesterday was interesting because a few things happened after I wrote the previous entry. jaron was waching a movie and I was noticing a girl in the movie and I felt attraction, but then it waned much more rapidly than previously. there are a few things that I want to note about it. first, I began feeling the attraction almost immediately, which is sort of impossible because there's no way that nosebook could have taken the scene and rebroadcast it out to her in microseconds, so it seems that these sorts of reactions are spanning time, which means that I'm feeling a reaction from the future.
+
+next, in order to neutralise the reaction, they would need to train some sort of recognition of it, and I don't know if they do it at the source (the girl), or if they do it in my own body, but either way it went away rapidly, but wasn't quite completely gone.
+
+it felt quite similar to a previous experience I had with a girl that I heard in the park which I felt attraction from, but then later watching stars, the attraction was gone, and I couldn't feel it anymore. I figured it was just sort of a "kinda sorta want it" sort of thing, so I passed on it -- but when I did, there was a motor roar, so I figured something must be up. I reasoned that if it it was just nosebook getting better at neutralising the signal and she really did want it, then LOA would make it bigger.
+
+so, I wanted to write this yesterday, but I didn't for whatever reason, but if either of them would like to join, I'd love to have them. it'll be a lot of fun :)
+
+---
+
+ok, now shifting gears back to what I was writing about in the previous entry. seems the general reaction is that they do not want to do the time split in that way, so it seems like we're back to where we were. I'm going to continue to keep aiming for getting connected, and they're going to continue on trying to keep me from it for as long as they can.
+
+I was thinking about this in the shower, and it's kinda funny because instead of having a time split where I don't get connected[^1], instead they are choosing a different set of time splits where the girls are creating their own realities and in those realities I get connected.
+
+now, I have had a few really strange things happen lately where reality has been slightly different (and consequently motor roars upon my realisation that something is different), and it reminded me of the "déjà vu" scene in the matrix a little cause some times it feels like I've lived the same thing more than once. I don't know how it works, but imagine for a moment that nosebook has figured out how to reset me (perhaps all of us actually) backwards in a timeline, and so when they see that things aren't going in a way that they want, they reset us back to the previous day and then make sure that the thing that they don't want doesn't happen.
+
+I have no idea if it's that or something else, but there is severe tampering with my reality experience -- but I don't really mind. I've really been thinking about this, "resist not evil" concept and I just don't care. what they're basically doing is they're making an even bigger thing happen. if I can just "not need the manifestation" for a while longer (maybe that's the 2038 thing fwh was talking about, so years actually) then what will happen is that I'll gain quite a substatial visual level in the process, meanwhile the girls are out there doing their thing with the connected (source energy in physical form) version of me doing their thing...
+
+I imagine that at the current rate, we're making quite a few new timelines, and then I was thinking, what if every time they reset me back, the timeline they're leaving is actually just the time split, because if some people there are emotionally in a pretty different spot, it would be pretty hard to reset them back to this one, so they would continue on, on their timeline while (kenny) me and nosebook continue on.
+
+this means that every time that they need to reset, that makes a new timeline, so the more I can do that, the more alternate versions of me there are. that's really awesome. when I finally get connected, I'll have a multi-bodied experience. this is pretty desired from my point of view
+
+it also means that evntually they're going to create their own worst nightmare, because eventually, I'll feel good enough that they won't be able to reset me back. so, in a sense, I could try and figure out how to get around this by figuring out how to maintain my consciousness, but then again, why? why not just keep going higher and higher and let them worry about all of that, because the longer this goes on, the more there is on each of the other timelines, and so there's probably going to be a lot of gnomitos around.
+
+---
+
+so what's the end game then? I was thinking about it, and if I do just keep doing what I'm doing and eventually I just go with the andrea thing, then it's kinda like a weird passing the baton sort of thing, because what if she gets connected, in place of me? that would be the ultimate in irony, I think.
+
+I was thinking about how that would look from the future, because if you didn't know this, nosebook may be able to present the idea that I went all this way and completely fell flat, because it would look like I literally got nothing of what I was supposed to get, or talked about gettng. it could be just the perfect deception that's necessary for them to hold people away from getting conncted, while spinning their wheels for another 2000 years[^2].
+
+they're fighting a losing battle (really, "kicking the can further down the road") because I'm just getting more and more non-resistant all the time. eventually, they won't be able to reset me back to something I'm no longer resonant with :)
+
+I'm sure they'll figure it out. meanwhile, I'm just going to continue on doing what I'm doing. when it comes to the girls, I'm just going to keep doing what I'm doing there too. one of the things that abraham said is that maybe not everything imagined needs to be realised, so I imagine some girls may lose interest as time passes, and so therefore I'll just keep forward. go crazy guys :) let's make as many timelines as we can :)
+
+
+[1]: because I'm so sure that if I continue on doing what I'm doing, that eventually I will have such little resistance that they will no longer be able to hold me back, so if they keep putting more and more physical pressure on my body until sometime it's too much, in their perspective I'll die or go into a coma or something. as long as I'm focused on improvements, eventually one day I'll get there, and like in the basic funk formula, they will have to either depart or transform into something that is harmonic with my perception (how I feel about my circumstances)
+
+[2]: one of the funny things about astrology, and the procession of the equinox, is that the picture is painted in such a way that humankind will go through a series of symbols, where each one is roughly 2000 years as our solar system travels through the galaxy. how in the world is earth, considereing the acceleration taking place going to make this possible? it seems like complete nonsense unless there was someone that's entire mission was to unsure that cosmology remains in billion year timescales, and no (unauthorised) human is ever allowed to make any advances in science that would allow us to realise our power... lol, I will write more about this soon.
+
 # the end
 
 ### 2020-05-24 ??:?? - sumerian gods reflection
