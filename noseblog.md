@@ -11533,7 +11533,9 @@ we'll see :)
 
 yesterday was interesting because a few things happened after I wrote the previous entry. jaron was waching a movie and I was noticing a girl in the movie and I felt attraction, but then it waned much more rapidly than previously. there are a few things that I want to note about it. first, I began feeling the attraction almost immediately, which is sort of impossible because there's no way that nosebook could have taken the scene and rebroadcast it out to her in microseconds, so it seems that these sorts of reactions are spanning time, which means that I'm feeling a reaction from the future.
 
-next, in order to neutralise the reaction, they would need to train some sort of recognition of it, and I don't know if they do it at the source (the girl), or if they do it in my own body, but either way it went away rapidly, but wasn't quite completely gone.
+the other possibility is that she could have, for whatever reason, decided to check in on me right when I was watching jaron's screen, only to see herself. if that's what happened, that's even more impressive :) very cool, and good sensing the impulse :)
+
+so, for them to be able to neutralise the reaction, they would need to train some sort of recognition of it, and I don't know if they do it at the source (the girl), or if they do it in my own body, but either way it went away rapidly, but wasn't quite completely gone. this is what I noticed.
 
 it felt quite similar to a previous experience I had with a girl that I heard in the park which I felt attraction from, but then later watching stars, the attraction was gone, and I couldn't feel it anymore. I figured it was just sort of a "kinda sorta want it" sort of thing, so I passed on it -- but when I did, there was a motor roar, so I figured something must be up. I reasoned that if it it was just nosebook getting better at neutralising the signal and she really did want it, then LOA would make it bigger.
 
@@ -11569,6 +11571,79 @@ I'm sure they'll figure it out. meanwhile, I'm just going to continue on doing w
 [1]: because I'm so sure that if I continue on doing what I'm doing, that eventually I will have such little resistance that they will no longer be able to hold me back, so if they keep putting more and more physical pressure on my body until sometime it's too much, in their perspective I'll die or go into a coma or something. as long as I'm focused on improvements, eventually one day I'll get there, and like in the basic funk formula, they will have to either depart or transform into something that is harmonic with my perception (how I feel about my circumstances)
 
 [2]: one of the funny things about astrology, and the procession of the equinox, is that the picture is painted in such a way that humankind will go through a series of symbols, where each one is roughly 2000 years as our solar system travels through the galaxy. how in the world is earth, considereing the acceleration taking place going to make this possible? it seems like complete nonsense unless there was someone that's entire mission was to unsure that cosmology remains in billion year timescales, and no (unauthorised) human is ever allowed to make any advances in science that would allow us to realise our power... lol, I will write more about this soon.
+
+
+### 2020-06-30 07:59 - lol, I guess they don't like that one either
+
+the sense I got from last night's reaction to the previous entry was that they didn't really like that one either -- which, first of all is very strange because that means they actually believe me, when last entry was uncerain ideas about weird concepts like resetting me on a timeline and a whole lot of speculation based on those ideas... what do they know that I don't?!?!?! know what I mean? most people would blow me off like, "whatever dude, hilarious story."
+
+so, it gives me the sense that there must have been some truth in there somewhere... crazy, anyway I'm just going to keep going at doing what I'm doing. I have no intention of trying to force it o happen sooner. I have two topics I want to talk about. three actually:
+
+#### resist not evil - the major theme for this era
+
+as I'm reading this book "sermon on the mount", I'm realising the different eras of perception how they were important. the book talks about jesus and his message summarised by matthew with the sermon on the mount (matt. 5-7).
+
+before jesus, the era prior (in the judeo/christian world view), the law of moses was what predominated the form of thought most common. this is the law of evenness. if you take someone's eye, you may as well expect that you can have your eye to be taken. the way you treat someone else is how you can expect to be treated. law was created to enforce this equality, with penalties given to people braeking the law.
+
+this style of thought still is prevalent amongst humans here on earth, as we seek to "get even" or wish that someone will "get what they deserve" -- and it implies that there is some form of justice that enforces this reflective action take place.
+
+quickly before I go onward, I explained this because nosebook is living entirely in this form of thought. they believe that we live in an eye for an eye world, and that the things that they're doing to others can be expected to also happen to them. deep down they believe that all of us are just as petty and mean spirited as they are, so they can expect that sort of response from us.
+
+I didn't really realise it until I started reading this book, but that's why they think they need to hide stuff so much and ensure that they do not receive their "just reward" for their deeds.
+
+jesus however, taught that this sort of just reward is already in place and is the fabric of the universe in which we live. it's the law of attraction, and you live and receive in your experience an exact reflection to your thoughts and emotions.
+
+so, therefore he suggests that you could try to hold the letter of the law, and you may not kill people or commit adultry, but your thoughts of wanting to kill or to take some one else's woman are actully what is creating your reality, not necessarily the action which you perform. this is the message of the previous era.
+
+jesus continues on however and begins to tell the message of the next era: if you're creating *your* own reality with your thoughts, you should not be worried or have fear about what is happening around you. be self-focused (on your thoughts and how they feel), and "resist not evil". pushing against something unwanted (evil) in your experience will only aggrivate it and make it worse. instead, because you're the creator of your reality with your thoughts and emotions, don't worry about all of that. resist not evil.
+
+---
+
+so, what I've begun to see is that these different people that have shown up in history like jesus, moses, and elijah seem to carry by nature the mentality of the next phase in human development. they've "figured it it" or cracked the code of the previous era. each new era is either one of greater intrenal/individual/personal or external/organisation/group growth. jesus arrived at the end of a particularly barbaric period were selfishness and brutality was the norm and the law of moses (laws in general, but I'm talking the judeo/cristian world view) was instated to keep chaos from coming out, therefore jesus had a particularly individualistic and selfish message (you are the creator of your reality) -- I'll just call it aquarian for simplicity, which harmonised quite well with the arian mindset because it was so self-centred and selfish. however, what instead came out of jesus' influence was the appearance of the picean era[^1] of large organisations like the roman catholic church and the group beginning to think more in unison, instaed of like they were in the arian times of a bunch of barbaric rogues in a group without top-down leadership (mob mentality).
+
+so in a sense, because the these people coming on to the world stage contain within them after their trials and the living of life leading up to their "ministry", they accomplished the ability to comprehend the next phase.
+
+it may be easier to see with me, because it appears that I am one of these people, too, so I'll use myself as an example here. by nature I have the aquarian mentality (individual selfishness) pretty well built into me, such that it's natural for me to be like that, and I'll continue on to realise the rest of this mentality, which the whole point of this entry is to prove that the final bit for me and the rest of humankind to get in this next phase is to "resist not evil". we're all pretty well getting that your thoughts and emotions are what determine what shows up in your reality, so the next bit is the stuff that jesus talked about, but then with his death, proved (although strangely/ironically) that if you put your mind on the wrong stuff (as evidenced by cursing the fig tree), bad things can happen, but not to worry, and no matter how bad the situation is, don't try to resist the badness because it'll only make things worse.
+
+I think in jesus' time, he preached a whole lot of self-empowerment, and that the different girls thatwere around him should be able to choose whatever it is that they want to, and that insitution should not dictate what people do with their bodies. this was an aquarian concept that was ahead of its time. as a result, I believe jesus was killed for his self-empowerment teaching (which if he put his actions where his mouth is, should not resist evil) and what was put into place was the roman catholic church, which did none other than tell people what they can and cannot do with their own bodies. governments, churches and all sorts of sects had all sorts of rules about what you cannot and can do with your own body. however, in order for this to happen, humankind learned how to think as a group -- an organisaion, instead of as a bunch oof rogue individuals.
+
+so, ot recap real quick: jesus appealed to the people because he was learning as he taught in an individualaly focused environment (arian thinking), how to improve upon that thinking, so those improvements on that individually selfish thinking, jesus' improvments became what is now beginning to be realised in aquarian thinking. however, the institution at the time was a bunch of selfish romans (arian thinkers) that needed to put a lid on jesus' message, so they created the roman catholic church to do that, then the fall of the roman empire further solidified that the old arian thinking had come to and end and was the real reason for the demise of the roman empire. as a result, the arian thinkers had to begin thinking and organising as a group and taught us to do likewise.
+
+jumping back here: I have all sorts of ideas about organisations and different things that would build up the organisational structure of the planet and the human race in general as a method to improve quality of life (I'll call this capricornian[^2]), so to a particularly organisational strength (picean mentality) organisation like nosebook, my thoughts are quite appealing.
+
+however, if they hold on to their picean thought patterns, like the roman empire, it will eventually disolve as they will need to begin to learn to take an individually focused way forward, instaed of an orgnalisational focus. the reason for that I think can be summed up in the statement, "resist not evil"
+
+that is, as I'm sure they're seeing from their interaction with me, is that if they try and resist the unwanted things, they just get bigger. instead, one must understand that *you* are the creator of your own reality. right now I think we're pretty much all in the same timeline, but I believe that over the next 20 years or so, we'll all be in our own timelines. eg. we'll all be creating our own reality.
+
+the ones who want to hold on tightly to the picean mentality can certainly do so for as long as they want, and I'm right along there with them, because along the way, I'll be living in an organisational focused reality, and so therefore what I accomplish mentally here in this timeline with those who want to remain organisationally focused, will help me to realise the improvement for the next era (capricorn).
+
+I believe (and I can explain in nother one, cause this one is pretty long now), that the whole point here is to get the whole planet out there on their own timelines creating their own realities, and if you think about what would be the point of these different worlds created (like say with the gnomitos or the tesla/raquel thought experiment), it would be so that people can focus into a place like here with tons of contrast, so much so that it causes a time-split, such that virtually everyone is creating their own realities on their own timelines. I think the end result, is not for one time split, but for billions :)
+
+#### they have full control over it. eg. faith
+
+the guys in charge have full control over when they want to allow me to go up. the very worst case scenario is thst they keep kicking the can down the road until they no longer have the ability to reset me any more, and are forced to live their worst nightmare.
+
+I was thinking about how and when this might happen (never a good idea, but the tought did come into my head), and I don't believe I'll be making much of an effort to try and make anything happen. there is tons of stuff that I can do without action which get me closer, so I doubt I'll be trying to do any of the stuff.
+
+I used the example of zaryn calling me to go to spain, or how I knew some things with raquel before they were going to happen. the premonition was strong in all of the cases, and one of the examples that I didn't share is that I distinctly remember laying in raquel's bed in her barcelona house, asking her if she wanted to move to madrid with me. it was an idea that felt good pleasure-wise because we had so much fun together, but as soon as I said it, I had this premonition that it was going to turn out poorly. I couldn't take it back though because she seemed enthusiastic about it, so I just went with it.
+
+as things deteriorated, I didn't really try to fight it. in some cases I did have an initial reaction to want it to be different than how it was turning out, but I rapidly learned that it was over. I thought maybe we could go back to being separate agian and still seeing each other from time to time, but that later became obvious that it wasn't an option either. I just sorta had to find a way forward because I knew she wasn't coming back.
+
+that was my first "lesson" in resisting not evil. the next one was with andrea, which is why I sort of developed a much more aloof mentality, as I had learned from the teachings of abraham by then that my desire was known by my inner being and that things were being worked out, and so even if it looked physically like things were falling apart, just to roll with it and know that it's all being worked out. not resisting evil allows the evolution of that desire to become something even more wanted than before. all there is to it is to become so selfish as to really want to feel good, instaed of focusing on the evil (in my case it was the undesired aspect of nosebook) conditions.
+
+I'm in my third realisation now of this aquarian concept now of resisting not evil, and it's really coming along well. I've really got it now I think. they've got full control over it. they can try to continue to resist their evil, as long as they think it's necessary.
+
+#### what I will do when I'm conncted
+
+like I mentioned in the previous section, there's not a whole lot of point to me trying to take action right now. it seems pretty obvious to me that if I were to get connected tomorrow, I would likely just find remi, whether we met on the street or I felt inclined to knock on her door, doesn't matter because I'm sure that shortly we would encounter eachother. I would tell her about a great idea I have been working on, and we would go from there.
+
+really simple really. there's no much to it really. there's so much that needs to be done, because from there we can start raising the money, finding the place, etc. I'm sure it would all fit into place quite rapidly and effortlessly. not a problem there. my main focus right now is to continue on learning more and more non-resistance (resist not evil), because I am sure that it's the final piece remaining for me to fully realise the aquarian mentality.
+
+it doesn't matter how long away, or how, or what, it'll be obvious... if we can all just "keep it on the one" (your individual perception), and let the "mistakes" become instead creative segways to the next jam, we'll get there just fine :)
+
+[1]: where I think the time-split happened is that there were enough people that were quite on board with jesus' aquarian ideas of individual freedom, that they (I think the majority of them were girls/women) had such strong desire to see the appearance of what jesus was talking about, their strong desire carried them into one timeline, while another version of jesus continued on, died on the cross, and the romans did what they thought they needed to do to prevent the aquarian idea from taking hold, which made the picean era.
+
+[2]: I want very much more to talk about this, and I will. I've been thinking about how to do that effectively, but much like the matt 5:28 verse is the bridge from arian mentality into aquarian (that what visualise and feel in your imagination is the same as the action in real-life reality), the bridge, I think from picean into capricornian mentality is the realisation that there is no institutiaal justice or rights which someoen can depend on, and that LOA is the great equaliser. I haven't quite yet figuered out the "resist not evil" of the capricornian mentality yet, so this is all very much still in development.
 
 # the end
 
