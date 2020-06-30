@@ -11688,16 +11688,16 @@ it seems actually that the announcer is always one era ahead of the coming era, 
 
 so, if the coming era is picsis, before the transition:
 
-| annuncer | +1 | aquarius |
-| maybe a few people | 0 | picsis |
-| social institution | -1 | aries |
-| those who are really running the social institution | -2 | taurus |
+| annuncer | +1 | individual/internal | aquarius |
+| maybe a few people | 0 | group/external | picsis |
+| mainstream social architecture | -1 | individual/internal | aries |
+| those who are really running the social institution | -2 | group/external | taurus |
 
 after the transition:
 
-| suppressed by those running the show so they're not obsoleted | +1 | individual | aquarius |
-| the new social institution / humankind | 0 | group | picsis |
-| the old (obsoleted) social institution / those running the new social institution | -1 | individual | aries |
+| suppressed by those running the show so they're not obsoleted | +1 | individual/internal | aquarius |
+| the new mainstream social architecture | 0 | group/external | picsis |
+| the old (obsoleted) social institution / those running the new social institution | -1 | individual/internal | aries |
 | crashed and burned | -2 | taurus |
 
 the reason why it they can't allow the manifestation of the announcer because it would obsolete them being a better version of their antiquated individual/group mentality, so begrudgingly they feel "forced" to transform up to the era behind the new present era.  they feel forced to do so, cause otherwise it would be their extinction so they masqueraade as as the era behind the announcer (opposite in internal/external emphasis), so as to prevent people from getting a hold of the announcers ideas (which would obsolute them).
@@ -11711,6 +11711,21 @@ it sounds terrible, but I actually think this is a continuing trend which will a
 until then find a way to have fun and to feel good. let how you feel be your measure for success, otherwise you're going to be pretty miserable[^1].
 
 [1]: that's a good name! maybe, instead of calling them the INFECTED ONES, I'll call them the MISERABLE ONES (les miserables, lol).
+
+
+### 2020-06-30 15:00 - I forgot the punchline
+
+I wrote the last entry but forgot the most important conclusion to the whole thing. it's this:
+
+if you pay attention to the progression of things, the announcer is just a more advanced version of the MISERABLE ONES. they feel threatened, but it's important to note that they are essentially the same, so while the announcer may feel very different than the rest of mainstream social architecture, the announcer is most similar actually to the ones that are controlling the mainstream social architecture -- through the experience provided by life experience comes to understand an improved version of that antiquated mentality, and then lives that. it's compelling so he's attractive, but he appears to be a threat to those trying to run the show, but because they're concerned with the opinions of others, they must find a compromise. I think it's really important to note that the announcer is basically the same as the MISERABLE ONES but has allowed life experience to transform their perception.
+
+then, I would predict that even though there will be all sorts of time splits, I'll come to realise "if you could just not need the manifestation" bit, in it's most real terms -- perhaps in just the same way that jesus resisted not evil during his death (cept when he overturned the money changer's tables in the synagogue). I'm not saying I'm going to die, just that it's likely that the thing that I want with the improved organisation thing will not be a manifest thing. instead we'll likely have a more aquarian manifestation.
+
+---
+
+I was thinking about the end, and if they are able to keep me all the way to the end, then let's say they did terminate my body at the end, one of their outs could be, (assuming it gets andrea an easy connection to source) to completely downplay all of my existance giving her the entire spotlight while I just become an insignificant blip on her radar, and then that way they could really deceive people and make their new social architecture where they're in control and everyone is given the illusion that they have freedom (happy 4th of july everyone!), when they're just in the background pulling all of the levers, making sure no one comes close to getting their manifestation.
+
+the getting rid of my existance is the exact proper progression necessary to "fulfill" the bit about not doing what you're doing to receive the plaudits of the people around you... another pillar of aquarian mentality, and one of the foundations upon which not needing the manifestation is built. you will notice that everything they are training people to do is to care so much about what others think and do everything you do for the approval of others (I imagine this rings especially relevant to andrea's experience up until now)
 
 # the end
 
