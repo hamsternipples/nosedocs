@@ -11645,6 +11645,73 @@ it doesn't matter how long away, or how, or what, it'll be obvious... if we can 
 
 [2]: I want very much more to talk about this, and I will. I've been thinking about how to do that effectively, but much like the matt 5:28 verse is the bridge from arian mentality into aquarian (that what visualise and feel in your imagination is the same as the action in real-life reality), the bridge, I think from picean into capricornian mentality is the realisation that there is no institutiaal justice or rights which someoen can depend on, and that LOA is the great equaliser. I haven't quite yet figuered out the "resist not evil" of the capricornian mentality yet, so this is all very much still in development.
 
+
+### 2020-06-30 12:49 - if you can just not need the manifestation
+
+in a footnote in the previous entry I was drawing conclusions as to what the different things are, for the ages. for the picean age, the bridge from arian to aquarian was to realise that what takes place in the mind is the same as the action itself. then I said that I think the bridge from picean into capricornian mentality is the realisation that there is no institutiaal justice or rights which someoen can depend on, and that LOA is the great equaliser.
+
+this is the transformation to create the new basis upon the new form of individualistic perception will reside. the idea that you are the master/king/govenor of your reality and that you alone are responsible for what happens in it. therefore, "resist not evil" -- because to try and push against it only fuels and amplifies that subject in *your* individual reality. no one is doing it, cept for you. you are the attractor of everything in your reality -- or, your reality is an exact reflection of how you've been spending your time emotionally.
+
+---
+
+so, I think I got the new bridge from picsis to capricorn in which one should realise that there is no justice and you don't have any rights. there is no justification for how you feel which will make you an exception to the laws of the universe, and the enforcer of the institutional justice to make something right is a total sham. your rights are the same way: the only right you have is to feel the way you want to feel. in the previous era, you had the privacy of thought, and that was your secret (although not really all that secret, because it's easy to read emotionally what someone's thoughts feel like) and also your secret to creating the reality that you want to experience.
+
+this aquarias, your "secret" is how you feel. no one can force you to feel any way, so it is the thing that there is no real outside control over it (even though like in the previous era, what's external to you could influence your thoughts, you're best to pick the ones that you wish to think). in this era, since your thoughts are not private, the only thing you have is how you feel (perceive things). it's true that your thoughts are evidence if how you feel/perceive things, just like emotions are evidence of what you're thinking, but no one can perceive or feel for you. you get to feel the way you want to feel, and then that (the way you feel) will determine what is manifesting around you.
+
+as a man thinks, so is his heart (intentions). in other words, the way that you think is evidence of your intentions, and your intentions are evidece of what you believe (is the the proper response) and how you feel.
+
+---
+
+so then, I was thinking about what the "resist not evil" of this era would be, and I'm pretty certain that it's "if you can just not need the manifestation"
+
+there are two reasons for this. one is the physical reason, and the second is the one that fits into this symbolic pattern.
+
+as I was walking yesterday out to the field, I was overtaken by how good I felt because this is such a great thing. you see, nosebook is learning how to keep people from "getting connected" no matter how good they feel. since emotion is the precursor to reality, imagine that soon they'll need to ensure that no one ever gets connected, because of how much it threatens their superiority and their desire to control things. as a result, they must be certain that no one who feels really good, actually feels as good as they feel (like me), for fear that they'll start to get super powers which threaten their superiority.
+
+as more and more people learn to adjust their perception (like I have been doing) and therefore the way they feel about their present circumstances (it requires not fighting against the stuff that appears bad: your basic funk formula, right there), they will begin to feel better and better, which means that increasingly they are getting closer and closer to their vortex version of reality, but nosebook won't be able to allow that, so they'll (like they're doing with me) need to keep ensuring that you only feel as good as they can keep you away from any good manifestation. if someone gets too close to their manifestation, they'll probably need to terminate the body.
+
+so basically, from the perspective of people here on this planet, it'll look like things look like to me, where it seems like there's just this endlessly long another thing to get in the way of the manifestation which is accumulating and growing becuse of the increasinly better way that they feel.
+
+the cycle will probably be similar to what's happening to me right now where I get to feeling really good, then something happens, and then I have the option to feel depression dispair or anger or something, but instead I keep learning how to tranform my perception so that those things no longer bother me, which makes me feel better, which means they have to work harder to keep the manifestion away.
+
+I think this is going to happen to the majority of the people on this planet. we're going to have to not worry too much about the circumstances, and no matter how long it carries on, just learn to "not need the manifestation" (and let the emotion be the success factor). sure, there will be all sorts of people with all sorts of manifestations, and they'll be good reason to feel bad, but if that can not bother you and let your own manifestation superpower be your ablity to feel the way you want to, then you've got it.
+
+the majority of the people will build up such a great capacity to feel the way they want to feel, and then after having been deprived the manifestation how knows how much time, eventually the whole planet will reach such a critcal mass that nosebook won't be able to hold it back anymore.
+
+---
+
+I'm just starting to understand the capricornian mentality, but things fun when you're individually doing great, but things are so much more fun with other people to share the joy. so while individuality is great, if we can all not need the manifestation, the result is that in the next era, who's announcer will be focused on the further extension of individuality, the INFECTED ONES won't be able to let the manifestation happen to expand the individual, so instead, the group will all get the benefit of the promise of the previous era.
+
+I'm not saying that 2000 years from now suddenly the whole planet will have such a great manifestation, because likely it's going to be much longer than that, and none of us will live to see it. in fact, it's probably likely that the (for lack of a better term) INFECTED ONES will all do their own transformation as well right along with us, and keeping with the pattern, they'll likely not be able to allow the manifestation either, so we'll continue on with the next one.
+
+it seems actually that the announcer is always one era ahead of the coming era, and the social institution in power, dragging their feet, is always one era behind. the social institution is always run by the ones really dragging their feet even harder which is one further back even, and unable to accept change, they're only masquerading as the present era but retain their antiquated ideas...
+
+so, if the coming era is picsis, before the transition:
+
+| annuncer | +1 | aquarius |
+| maybe a few people | 0 | picsis |
+| social institution | -1 | aries |
+| those who are really running the social institution | -2 | taurus |
+
+after the transition:
+
+| suppressed by those running the show so they're not obsoleted | +1 | individual | aquarius |
+| the new social institution / humankind | 0 | group | picsis |
+| the old (obsoleted) social institution / those running the new social institution | -1 | individual | aries |
+| crashed and burned | -2 | taurus |
+
+the reason why it they can't allow the manifestation of the announcer because it would obsolete them being a better version of their antiquated individual/group mentality, so begrudgingly they feel "forced" to transform up to the era behind the new present era.  they feel forced to do so, cause otherwise it would be their extinction so they masqueraade as as the era behind the announcer (opposite in internal/external emphasis), so as to prevent people from getting a hold of the announcers ideas (which would obsolute them).
+
+---
+
+therefore, I suppose that the coming thing for us to get used to will be to "not need the manifestation" (cause it'll never happen so long as the manifestation doesn't obsolete the guys running the show or make them feel inferior).
+
+it sounds terrible, but I actually think this is a continuing trend which will actually get worse and worse, with each era building upon the last. soon, children will grow up just not needing the manifestation, and feeling the way they want to feel, be their superpower. I should clarify though, this is only the case if you're creating by default. if you're creating your own reality, you'll be on a different timeline than these guys dragging their feet so hard. eventually, I think humankind will eventually unite on their timeline though (because it's the one with the most contrast) and a long time from now, when that happens, we'll transform into something entirely new (probably a new universe).
+
+until then find a way to have fun and to feel good. let how you feel be your measure for success, otherwise you're going to be pretty miserable[^1].
+
+[1]: that's a good name! maybe, instead of calling them the INFECTED ONES, I'll call them the MISERABLE ONES (les miserables, lol).
+
 # the end
 
 ### 2020-05-24 ??:?? - sumerian gods reflection
