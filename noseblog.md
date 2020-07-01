@@ -11727,6 +11727,53 @@ I was thinking about the end, and if they are able to keep me all the way to the
 
 the getting rid of my existance is the exact proper progression necessary to "fulfill" the bit about not doing what you're doing to receive the plaudits of the people around you... another pillar of aquarian mentality, and one of the foundations upon which not needing the manifestation is built. you will notice that everything they are training people to do is to care so much about what others think and do everything you do for the approval of others (I imagine this rings especially relevant to andrea's experience up until now)
 
+
+### 2020-07-01 07:38 - I've figured it out! (again)
+
+***-> I'm the ultimate reflection :)***
+
+I was doing mental circles just before watching stars because there was a lot of activity, probably around what I wrote yesterday. I wanted to give a good way of perceiving what I wrote from another angle...
+
+first of all, I got a sense that people thought that by "not needing the (physical) manifestation", I would slogging through years of feeling terrible. it's actually quite the opposite case. if you look at my trajectory over the last 4-6 years, I'v had ups and downs, but overall I feel now the best I've ever felt, and each week now I seem to be feeling better and better. I feel so good at times, it's like I'm back to feeling like I did when I was smoking MDMA, but without the visceral body feeling of pleasure. in my every day experionce now I experience quite a bit of euphoria.
+
+following that trend, in a few years, I am sure that I will be feeling even better than I am now. a lot better. so here's the thing: they can diminish the visceral (physical) feeling of the result of my emotion, but below all of that is a much higher frequency signal that they cannot get rid of -- and if they find a way to get rid of that one, there's an even more high frequency one than that. the more they're able to get rid of the physical manifestation of how I feel, the more source-like I become.. and, as a result, I will basically, like abraham claims that source feels absolutely incredible about everything that's happening no matter how perceived to be "bad" it is. that's going to be me soon; it's not going to be some sort of mega-slog though terribleness.
+
+reducing my resistance has another side effect, because I am perceiving less and less that things are "bad" or "good" -- that means that more and more I appear and respond to people in reflection to how they feel combined with their expectations. not in the negative sense though, so if the person doesn't have any strong expectations for me, and is able to feel good, that's where I meet them, in the good feeling place.
+
+---
+
+there is another aspect to this though which I want to share: as I've been putting together the pieces, the image is getting clearer and clearer and this is what I believe is happening right now. like I mentioned in the previous time I said I figured it out, I realised that the reason why it always seems to go nowhere is that the top guys are having some people work on the project of getting me set up with the girls, while at the same time there is another team  actively sabotaging the whole operation.
+
+it's done this way for PR purposes, because it would be a PR disaster for you guys it looked like they were actively working against it. that would create a rebellion or some sort of uprising, so they've learned over time to placate people by giving the illusion that progress is being made. they'll employ people who really do want to make a difference, then anohter team will sabotage their efforts, so that no progress is made. once you see the pattern, you'll notice it happening everywhere.
+
+I'm also starting to become aware in my dreams of the different ways that they use the dream state to "pre-pave" my reaction to circumstances to be the ones that they want. by practicing them in the dream state, I am more likely to respond like that in real life.
+
+so here's the thing: like I mentioned in the procession of the equinox pattern, the announcer is one ahead and they're one behind, so the announcer is most similar to the MISERABLE ONES, but has improved. so, when I sleep and they practice these different responses, the only reason why it works is because I'm most similar to them, and they could only think up these debilitating responses, if this were something they did naturally (they're attempting to program me to respond in debilitaing way that they're obviously resonant with and able to create). so, in a sense, they're trying to make me think in as many self-limiting ways as they do. they're trying to make me respond like how they would respond. I am, when I wake up much more a reflection of them, than I am normally.
+
+however, as I move through life though, I improve my perception in a way which makes me no longer resonant with their programmed responses, so their bad ideas stop working. it's basically the super fast-track to becoming non-resistant in all of they ways they can try to sabotage it.
+
+eventually, I'll no longer be resonant with their "stuff" -- however, until then, every time they try to slow me down, my perception improves to no longer contain that resistant thought, so I feel better and better. so, because reality is a reflection of your perception (how you feel), my reality keeps improving. their "stuff" is so easy for me to transform now, and every time I do, I feel better and better. from my perspective even though there are occasional ups and downs, I'm truely having a magnificent time, and every is more magical than the last.
+
+... not in the physical sense though. my body is improving actually, but I receive very little physical pleasure from the improvement, and like I mentioned before with the girls, they're getting better and better at getting rid of that. my metric for success is not physical though, instead, my metric is by how good I feel[^1], not the physical sensation or conditions, even though those are slowly  improving as well.
+
+it really is all about letting your emotional state be the goal, and then let your physical conditions be a reflection of that.
+
+---
+
+so, because they've getting better and better at making sure I am responding in the debilitating way that they practice for me, I'm sorta by default where they're at by default, and if any situation arises where I am able to feel better, like I said they're getting better at resetting me back so that I don't have a good enough feeling for the manifestation (and it seems to have something to do with timelines). let's say that is happening. that means that the default me will always, until I'm so non-resistant that their stuff no longer affects me, be insured by them never to feel good enough to get the manifestating they're sabotaging.
+
+so, if you were to come to me and you expected me to do something, and change the conditions so that you can feel better, you will attract the conditional me, which means you won't get very far because they have my physical conditions completely on lockdown.
+
+however, if you've been practicing feeling good and you encounter me, you will attract a different me. you'll attract a version of me that is reflective (resonant) with how you feel. that's what you're looking for, I assure you.
+
+don't attract the conditional me. find the way you want to feel, and then attract from me the version that reflects how you feel :)
+
+---
+
+finally, I want to mention that on my way home there was a girl in black that went out to the mailbox. if she would like to join too, I think it's a great idea and would love to have her. :)
+
+[1]: we (I did at first, also) associate the "emotion" with the visceral feeling inside of our bodies, and that's what we've come to love. there's a definite "emotional body" where we experience our emotions physically. when in love, the powerful feeling in the heart or groin is unmistakable, but below that physical visceral feeling is a feeling of euphoria that is most similar to what I have experienced on MDMA. all emotions, even hate or revenge have an vibrating "emotion" that can be "felt" below the visceral sensation in the body.
+
 # the end
 
 ### 2020-05-24 ??:?? - sumerian gods reflection
