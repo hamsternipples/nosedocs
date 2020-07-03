@@ -9140,7 +9140,7 @@ it seemed there was this portal or something which people could escape into to g
 
 as it came down to the last moment, everyone jumped into the portal to leave the planet. however, there for whatever reason, the disaster never came or wasn't terrific. there just wasn't any electricity anywhere and nothing worked.. the whole place felt empty and deserted and there wasn't anyone on the planet anymore cept me and the girls. the remnant of human civilasation (buildings, roads, and cities) felt suspended in time, just there sitting there without any power.
 
-when everyone left us, I noticed the air seemed to change as well. when the plant had a lot of people on it, the air felt vibrant and colourful, but upon their departure, instantly it turned grey, lifeless and kind of gloomy, with grey tones everywhere like a permanently overcast day (even though the sun was still shining).
+when everyone left us, I noticed the air seemed to change as well. when the planet had a lot of people on it, the air felt vibrant and colourful, but upon their departure, instantly it turned grey, lifeless and kind of gloomy, with grey tones everywhere like a permanently overcast day (even though the sun was still shining).
 
 it was just us. the whole planet had completely jumped ship and it was just me and what seemed like about 50-100 girls and a BUNCH of food supplies and stuff.
 
@@ -11774,13 +11774,72 @@ finally, I want to mention that on my way home there was a girl in black that we
 
 [1]: we (I did at first, also) associate the "emotion" with the visceral feeling inside of our bodies, and that's what we've come to love. there's a definite "emotional body" where we experience our emotions physically. when in love, the powerful feeling in the heart or groin is unmistakable, but below that physical visceral feeling is a feeling of euphoria that is most similar to what I have experienced on MDMA. all emotions, even hate or revenge have an vibrating "emotion" that can be "felt" below the visceral sensation in the body.
 
+
+### 2020-07-03 07:58 - 7 years of tribulation (continued)
+
+last night, I had the weird reminder of this entry. I don't know if was inspired by nosebook, but I do know that I had a general sense that they're not too hot on the idea of keeping this going for another 18 years... your basic funk formula tells you that if the components of your reality are not a vibrational match to how you feel, they will eventually "vibrate right out of your experience", so it'll happen eventually, but will it take 18 more years is the question.
+
+so the reason why I titled this "7 years of tribulation (continued)" is because I was reminded of an old thor news video I saw a while ago where he said that (counting from 2012-12-12), the 7 years of tribulation woulr end on 2019-12-12. like I mentioned previously @[noseblog](2019-10-14 14:39), the chance of that happening I thought was quite dubious, and anyway for me, 2016 was much more eventful and seemed to me more of the beginning of the "end of the world" for me than 2012 was, plus my hypothesis that the 9-11 trade centers attack was to delay the timeline by ~4 years.
+
+so, anyway that would make the "end" date instaed somewhere in 2023.
+
+that's all I have to say on that. I don't even know why I wrote this, nosebook :/P
+
+
+### 2020-07-03 08:08 - being left behind
+
+the night before last, and a good portion of last night as well, I was reminded of a dream that I had, @[noseblog](2020-01-30 14:53). I just read it again and it has transformed for me a bit. I have come to understand the dream as likely what is happening in he timelines that they're leaving, what I mentioned when they said they reset me back and then prevent that from happening..
+
+so, to explain, imagine it this way: imagine that somehow the girls thing begins to take place in some way and they are caught in the middle of a reality that they don't want to be living, so what they do is they transfer the consciousness of every human on the entire planet back to a previous point in time where they can make some actions to avoid the event from happening -- like maybe get someone to pretend they're on meth and try and distract or something.
+
+the way that it would work is that you can move your consciousness to somehing that's pretty similar to how it was, so likely only the people that are similar would be able to go back to a relatively recent point in time. if let's say say that the girls and I, for whatever reason were not so vibrationally similar (like maybe cause we had sex or something), then our bodies would be so vibrationally different, there's no way they could get their consciousness to transfer back into a previous moment where they felt much worse.
+
+so, on the timeline where the transfered everyone's consciousness out of, on it, to me and the girls that got left there, there would be a whole lot of people in their verious sleeping locations that simply did not wake up. it would also appear somewhat traumatic, because surely someone would notice over the traumatic 1-5 days as people just stop coming into work, and no one wakes up. it's also possible that nosebook could take the conscoiusness of everyone, forcing everyone to sleep, so there would be random weird people collapsed where ever they were at.
+
+---
+
+thoughts and differences from my now transformed understanding, and the dream itself:
+
+1. in the dream, no bodies were left behind, yet, most certainly if people just didn't wake up, then their body would still be there.
+
+2. in the dream, people were preparing for some sort of disaster, so there were lots of supplies around. this isn't necessarily true, cept people did stock up on a lot of supplies from the COVID-19 scare, which hadn't happened yet when I had the dream.
+
+3. in the dream, there were 50-100 girls with me, yet this seems far-fetched to me because that would mean that nosebook probably set it up. it's possible that actually this is in fact what happened, where nosebook did set it up, and then upon realising their error, that by having sex, I and the girls became much more difficult to control energetically, so they had to leave us. then, back here, they switched their tactic from trying to force the girls thing (to try and control me), they've instead decided to sabotage it instead. so, it may have happened with 50-100 girls, but from then on, I would only imagine maybe only a few (maybe 1-3), would have been able to have sex with me before they aborted the timeline.
+
+4. there's a weird edge-case with new-borns, because in the new timeline they haven't been born yet, so on the aborted timeline, they would also be left-behind, too. it's kinda a messed up thing to think about, I suppose. imagine hospitals with newborn children and their moms which never woke up. kinda weird to think about, but I suppose it would be possible for us to retrieve some of those kids.
+
+5. it's also possible that some kids may be difficult for them to transfer back in time, too, because kids change so rapidly, so there may be quite a lot of traumatised kids around too. I just don't know.
+
+---
+
+it's a really weird idea this one, where the "left behind" aspect really means that instead of being, what was previously thought by christians to be the "rapture" -- where God saves the righteous ones by taking them, leaving the unrighteous ones behind to go through 7 years of tribulation.
+
+the night before last when I was up watching stars, I got my consciousness taken from me, when in the dream someone told me that nosebook had already aborted 30 (but it sounded to me like 70, or maybe the other way around -- I cannot remember).
+
+that dream experience was what got me to begin thinking about this again, because when I wrote the previous entries taking about timelines, I didn't think nosebook had anything to do with it. I figured it would be in the traditional way that I understand it, where strong enough desire creates an incompatible reality setup, where two timelines must now exist. I was not in any way thinking that nosebook would have the capabliity to transfer the majority of human consciousness to a previous moment in time.
+
+then, I began to think about it more, and imagine that you're another girl on a different timeline that wants to experience an emptied earth experience with me... or, let's say you want to improve upon the last time that you did it, you would just transfer your consciousness into the body of one of the girls on this timeline, on that got left behind on the other timeline, and then figure out how to have sex with me, so you could try it out again. it it could go on for quite some time and the possibilities are pretty much endless.
+
+there's another really crazy aspect to this too, which is that I think you can, like source be conscious on these different timelines all at once, too. kind of a weird thing to think about, but if you've ever wanted more versions of yourself to work on a project, the idea is fascinating to me, at least. I don't know how to do it, but I think it could be done. obviously, having access to so many versions of yourself, although you can jump in and out of different versions of yourself on different timelines, you would perceive much more on a higher level (more like source, which is what I'm going for here).
+
+---
+
+anyway, it feels kinda weird to say this, but there's nothing anyone has to lose on this. I'm pretty certain that nosebook has to ensure that I don't get conncted to ensure their own existance, so they must keep aborting timelines.
+
+so if you want it, follow your inspiration :)
+
+however, like I said, I'm like the ultimate reflection now, so pay attention to how the idea feels and to how you feel too. find your way to feeling good and confident in yourself, and let your inspiration guide you, cause I'll reflect that. however, if you're trying to change conditions to feel better, or trying to "make it happen" instead of following your inspiraion, I'll reflect that too.
+
+the "worst" that could happen is you find yourself in a relationship with me, and the "best" that could happen is you find yourself left behind, with all of the people who were not vibrationally similar to their past. (the most leading edge people)
+
+eventually, something will stick.
+
 # the end
 
 ### 2020-05-24 ??:?? - sumerian gods reflection
 ### 2020-05-28 ??:?? - new thought experiment:
 - what if I were to meddle in raquel's experience?
 
-### 7 years of tribulation (continued)
 ### making the whole population unsteerable...
 ... by focusing all your attention on the unsteerable ones
 
