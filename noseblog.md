@@ -11834,6 +11834,49 @@ the "worst" that could happen is you find yourself in a relationship with me, an
 
 eventually, something will stick.
 
+
+### 2020-07-04 15:59 - let's celebrate our freedom, ok
+
+so, I think the general reaction to the last two entries was something like, "well, that didn't turn out quite like we'd hoped" (explatives omited, lol)
+
+I had never really given much to such a way to make a time-split. instead, I personally like the normal way which creates a time-split because of strong desire... and I think that's where we're all heading as a human race too -- where each of us are living essentially our own realities. some parts will be shared amongst people of similar vibration, but for the most part it'll all be pretty much *your own reality* and no one really can do any attracting or feeling on your behalf to make it what it is -- only you.
+
+I think this really scares nosebook and they're trying to figure out how to get a control on this, but by "resisting their evil", they're exacerbating the problem, and making it more and more evident to them that they just won't be able to control much more than their own reality. they may be tracking hundreds or thousands of timelines by now, and the only one that matters is the one you're living *now*.
+
+the last entry was an interesting thing for me to think about though, because it introduced another variable for me. normally, time splits are created from strong desire, but in the case of them having to transfer everyone's consciousness back to a moment when things weren't unwanted, this means that in addition to desire (of what's wanted), desire to return back to a previous moment (of less unwanted) can also make a time-split. if you have two variables, you have four possibilities. two of which I haven't explored before :)
+
+---
+
+jaron showed me a picture on facebook that I thought was funny which read something like, "if the goverment said that the virus hovered 3 feet above the ground, so we should walk on our hands and feet -- people would do it" which got me thinking. one of the things that I've noticed in my changes to continue releasing resistance and to uphold what I've been learning about the "resist not evil" way of thinking, which is fight against something is only o aggrevate it and perpetuate its existance.
+
+another thing is, that abraham has suggested that people wear masks, not necessarily for your own safety, but for others around to feel safer -- almost as if to give in or go along with the influence.
+
+I've also noticed that everything on this planet acclamates to its environmental conditions -- except for humans. it's true that animals don't have such strong desire for conditions like humans do, so it's only natural that they don't push against their conditions so much, but just go with the flow (react according to their insinct) in accordance with whatever enters into their experience[^1].
+
+so, it seems there is something to this "resist not evil" thing on the bigger scheme of things.
+
+what I think is happening is that as I've lowered resistance, I'm fighting nosebook less and less, which means less and less they're unable to react to me pushing against them, and have to actually figure out what it is that they *do* want, instead of trying to constantly trying to preevent me from doing the thing they don't want.
+
+yesterday, for example, I felt tired (I shouldn't have been because I slept enough), so I laid down figuring that since it rained already (so the ground was wet), which means I didn't mind sleeping much, so if I woke up and the ground was dry I could go out to the field. I woke up at 3:30 and went out, and was successful. now, they want me to go to sleep again, probably because they want to decode the vision upgrades I got last night, but I'm not tired, cause I haven't been awake enough to sleep yet (even though I have not drank coffee). they were the ones who wanted me to sleep.
+
+essentially, if we don't fight against them, then they can't fight against us fighting against them, and then the entire list of present problems will be entirely theirs to sort out, cause they're the ones giving the orders.
+
+I'm going to continue on doing the things that I want (feel strong desire) to do, and if they're pushing really hard for me to do something, then I'm beginning to learn that LOA is working really well, and so not to worry. to illustrate this, I'll take the opposite direction:
+
+imagine that you were in (or looking for) a relationship, and you feel rejected by someone, so you go out looking for someone new, but instead of looking for the things you want in the new person, instead you begin to justify yourself by saying how good of a person you are and how much you shouldn't be rejected, and how much you deserve someone who will value you for who you are.
+
+at the end there, there is a glimmer of looking toward what's wanted, but if you're still in rejection or justification mode, then you'll be looking for someone else and attracting more rejection (either them rejecting you or you rejecting them) or more justification (either you justifying for them, or them justifying for you), and you'll notice a similar set of occurances, because you are performing the action in the feeling of rejection or justification.
+
+instead, I'm learning that the action does not matter (whether it's nosebook's suggestion or my own desire), the emotion in which I perform the action is the determining factor.
+
+therefore, if they're pushing real hard against some thing, and trying to get me to do something to avoid some portion of unwanted, their focus is still on the unwanted bit they're trying to avoid. therefore, if I fight against their action, they can fight back against my fighting back, but if I just feel good about whatever I'm doing, then, I'm attracting (and moving in the direction of) what's wanted, and let's say they're worried and trying to mitigate some disaster, they're attracting (and moving in the direction of) more unwanted things that feel more worrisome and need more mitigation.
+
+everything is going well. I like to think of today as a bit of irony, because really the only freedom you really do have, is to feel how you want to feel. action in the physical world has all sorts of physical limitations (we call this physics), but there are no limitations as to how good (or bad) you can feel -- or the way you want to feel.
+
+true freedom is found in your own perception
+
+[1]: for example, if you were to give a wild wolf or carnivore found in he wild, mushrooms instead of dog food, they probably won't eat it, until maybe when they get hungry enough, they may experiment, but they won't be fighting against it by trying to fight you or coearce you to bring the thing they want... well, it's possible that a domesticated dog may learn this behaviour from their envirenment, so not 100% true... instead, they just leave it alone.
+
 # the end
 
 ### 2020-05-24 ??:?? - sumerian gods reflection
