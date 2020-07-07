@@ -12001,6 +12001,28 @@ this makes 4 of the possibilities now relevant:
 this could make it a smoother transition, because #1 and #3 already exist now, and the other two could be rolled out at a later time.
 
 
+### 2020-07-07 11:17 - the perceived cutoff
+
+I got a few more reactions to the idea of the cutoff. first, just like whatever is happening with me getting connected or not, I just don't think it matters, because it doesn't change how things work out in the now anyway. additionally, there could be a transformation of the desire too. for example, when I finally gave up on the whole thing of trying to get connected, because I wanted to feel and perform my best, then I come to this point where, I make the realisation that if I go next logical step the whole way, then for me to become connected, it actually will be such a small thing, it'll only be the next logical step to get connected.
+
+combine that with the realisation that nosebook is necessary to ensure that I don't get access to my inner world, and in both ways of perceiving the thing, whith the cutoff, and without their keeping me from accessing the inner world is what's necessary, not the connection. so, I can have it all (cause I never cared about the inner world so much). I can get connected, use thought and emotion to create and manipulate objects in 3d space, and the girls, and everything.
+
+there was another realisation too, that if I were to lay down to rest, nosebook turned off my eyesight, then I get to explore what it's like to be blind while they do the stuff they do while I'm sleeping. that way they wouldn't have to fight with me to try and get some sleep all the time. they're going to have to agree with that at some point, because when I get connected, I'll be sleeping very seldomly, if at all. so, they'll need a way to keep their maintenance so that I don't get access to my inner world.
+
+what I'm saying is, they can go for as long as they want to go and can peace out at any time that they want, but I'm planning on contnuing on in the centre of a galaxy that's expanding around me and forming in my aura around me. this requires the "success" and sabilisation of the nosebook enterprise for this to be possible. if I desire it, there's a path to it, so the ones that don't want to be a part of it can go somewhere else.
+
+---
+
+so then, you could imagine the cutoff point as a different metric now, because in order for it to be possible for earth to become the new centre point of the galaxy, then we would have to do like tesla wanted, which is to ignite our atmosphere so that we are living inside of it. the whole planet would have temperate conditions, and 24/7 sunlight (from our own atmosphere). the sun which we revolve around right now would become another sun in the galaxy. we may inherit some of its planets or maybe some like venus, saturn, and jupiter, may become stars as well, but likely they'll stay in orbit with the sun.
+
+there's probably considerable pushback as to this whole making our atmosphere another plasma sphere from top brass, even though it'll be more and more obvious that our planet needs a plasma shield. imagine then that, say the cutoff point is not actually when things are "cut off", but instead that the resistant top brass is no longer able to continue on alive.
+
+a plasma shield like that would graetly extend the ionosphere, making the planet and the air inside of it much more conductive. we would live in a very very energetic environment, and they're working really hard to ensure that the earth -- or at least wherever I am is not able to energise too much, because it makes it hard for them to block my visual capacity
+
+therefore, you could then see the cutoff as basically the deadline for those wishing to remain in a low energy environmnt. they will need to make plans to make their own timeline where they remain with the sun and energetic conditions do not get to an unmanaeable state.
+
+an evolution of desire may come, to allow for both... because remember, I did see that the torus grew upward like a mushroom, so those that want to "remain where they are" are exactly what's necessary to make a mushroom shape :) so, likely another evolution of desire will come to allow them to remain how they are, so they can included as well.
+
 # the end
 
 ### 2020-05-24 ??:?? - sumerian gods reflection
