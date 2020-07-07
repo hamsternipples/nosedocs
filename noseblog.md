@@ -11878,6 +11878,109 @@ true freedom is found in your own perception
 
 [1]: for example, if you were to give a wild wolf or carnivore found in he wild, mushrooms instead of dog food, they probably won't eat it, until maybe when they get hungry enough, they may experiment, but they won't be fighting against it by trying to fight you or coearce you to bring the thing they want... well, it's possible that a domesticated dog may learn this behaviour from their envirenment, so not 100% true... instead, they just leave it alone.
 
+
+### 2020-07-07 06:24
+
+a few takeaways from being stoned yesterday
+
+#### there is something in space which is a tightly knit group of stars
+
+I perceived it both as the centre of a galaxy and as a grpup of stars within a galaxy. each star has a vibrational relationship to the other stars and to the centre. the red/blue shift (of hydrogen anisoropy lines) are not evidenve of blue/red shift to the observer, but these stars are actually much higher frequency and their hydrogen really is some frequential difference than our own.
+
+each star inside of a galaxy all share the same "head space" so to make a distinguishment between the stars, they each find a way to become unique. this is very similar to how we see the interaction of girls here on earth. they all share a pretty similar headspace, so as te be able to not delve into chaos, they find ways of becoming unique from the rest (so that there isn't so much crosstalk). stars do the same thing, and so therefore, they all float around in space at some distance to the others similar to how air molecules float around, and when they "bump" into one alnother, there isn't destruction, it's just wind or sound.
+
+the tightly knit group of stars in the galaxy is the super group of stars which is the centre of the galaxy. each of these stars is in tight competition with each other, yet the whole group of them is the centre of the galaxy the whole group of them is the galaxy.
+
+the stars that are ejected from this centre group are the ones that no longer want to be part of the competition anymore. they eject out, so naturally their red/blue shift to the centre mass will tremendously different, and these orbit around in proximity to others that are no longer competing in the centre there. because each of these stars vibrational relationship is always changing with each other, there will be constant movement around the centre point there.
+
+#### everything has a zero point, even the centre point described above
+
+every sructure has a "zero" point in which all points of that structure are in vibrational relationship with. I was perceiving it in the terms of stars and galaxies and stuff, but I'm realising this morning that it could easily be your heart for the human, the core of the earth, etc. and different layers are built outward from this zero point.
+
+all the zero point is ... to understand, we need to think about competition. in a competition, the leaderboard, there is a first place, and a last place, then everyone else has someone in front and behind them. in this setup for each of these three positions, everyone relates to each other somehow. however there is another option remaining and it's kind of an abstract idea.
+
+if everyone were to think about those that they were to think of as in front of them, those that are behind them (evewyone here has two lists), we no longer have a list with first and last place anymore. instead, now we have a graph or a network.
+
+to further extend this example, we will now add the concept that some people may say that they are not ahead of anyone, and others may also say that they are ahead of everyone else. these people have only one list: only those ahead or only those behind.
+
+these lists are always changing, and there's no possible way that these lists could ever be enumerated or maintained phsically. this is LOA (and maybe some very intelligent alien)'s work.
+
+the ones that have only one list are the ones that are not in that central competition. I could see very clearly that the ones that are stars orbiting around the centre point are the ones with only one list (of those behind them). I didn't pay attention to the ones with the list of those only behind them, but it's quite possible that these become planets, because they're so "stuck"
+
+for those with two lists, their relationship to the others on the list is always changing, and they're passing some faster than others so there is localised acceleration, meaning that all of these stars are all hovering around some point which is also moving. that's the zero point. it seems that the "zero" point should be considered something like "source" -- because it's the abstract (cause nothing is there) point to which all things have relaion to. that zero point is a void or a vacuum.
+
+#### I found out I can create words with voids in them
+
+one of the interesting reactions after I take drugs is that my brain signals change slightly so that what they thought I was thinking has changed slightly. it seems that what I think creates pictures, and it seems that I can now create words that don't have parts of them filled in. I often times in the past would "space out" and think about nothing for a moment, and then come back with the answer... it's sorta like what happens in meditation where you stop thinking so you can tune into the source version of those answers.
+
+obviously those look like empty signals, so that just don't broadcast anything, but I guess I can do that now mid-word, so as to change the meaning entirely of the word (or concept), because a large part of the information is "missing" in the word.
+
+I postulate that it's similar to how I think about things without thinking about them. I guess I just want to think about them, and then just tune into the answer by stopping thought.
+
+#### we think of space as a void, but on the other side is life
+
+the opposite side of space is life. I could see that they have been preventing me from going to my internal realm where thought can become manifest in space, so instead, I will be learning how to make the external space (the stuff I can see) conform to my thought. it's not going to take much work. their instruments are only capable of blocking so much from appearing in my eyes, but they can't block space from manifesting my thought.
+
+or, you could think about it another way. if I were to begin to see such high frequency stuff in my eyes, it could become manifest. if you were only able to block frequencies up to 100hz, let's say, and I put on the top of a 50hz square wave a 100KHz sine wave, then to the 100Hz instrument, it would look still like a perfect 50Hz square wave.
+
+both can be used. I also saw it affecting the water molecules in the air. perhaps the carbon as well. I think some combination of those, and I'll be able to find a way for thought to become manifest in 3d space for me (and for all of you to see, too).
+
+why? because my becoming connected cannot be a big jump, so it has to be the next logical step, so as to appear like almost nothing changed. you guys will be able to use it too, and I think it may be a pretty good incentive or "reward" for getting up to my future (much higher and less resistant than now), level of perception.
+
+#### between any two points is a line
+
+so, while it may appear that I am trying to become the zero point, I am just another person with only one list... and I think that those that only have only one list perceive theirself from that zero point (source) perspective. the zero point is the shortest path between two points, therefore a line. the shortest path between two points is a steady stream of very small "next logical step" incremental changes (a line). the change in position is never dramatic (eg. the physical circumstances), but the change in perception can have quite a magnitude to it.
+
+the only difference between a person that has only two lists (the star away from the competition centre point) and a line, is that the line has the focus, instead of on the relation to others, on to their own zero point (source). these line types are what make up more galaxies, and certainly no one is preventing anyone from not competing and perceiving their own zero point :)
+
+#### it has to be all next logical step
+
+everything does. getting connected, the girls, the whole thing. all of it has to be such a smooth transition so that nosebook is able to continue to prevent me from seeing my inner thought space.
+
+this is why I find it likely that I'll be using my creativity instead to come up with all sorts of ways to be able to do what I can do in the internal space externally. remember the chart I made about the pattern of internal/external where the announcer is already working on the next step (because he's prevented from realising the thrust of the new present age)? well, aquarius is internal, and nosebook's job is to make sure I never get access to my internal state. so, I'm beginning to work on getting that internal state out into the external -- which will be the main thrust of the next era of capricorn.
+
+anyway, it all fits together logically, and there's no problem. their only job is to ensure I never get access to my internal state, so instead of constantly trying to do that, I'll be figuring out how to manifest thought externally. this will make the transition to getting connected (and the girls) just another "next logical step"
+
+#### it's preordained that nosebook will be able to continue to "hold me" away from being able to see my inner space
+
+we can pretty much count on that happening because it seems that it's what's required in order to turn us into a galaxy.
+
+I saw it a few different ways. one way I saw it was the traditional one with the 2038 cutoff point, and there was also the idea that there would be a resulting earth that did not make the galaxy realisation and would steadly, or crash and burn? their way back to the level of percepion that they want to be at.
+
+I don't think there's going to be a cutoff like that. I could see that if things were to go too rapidly then yes there should be a cutoff, but if instead things go next logical step, there should be no reason for a cutoff either. I even saw it as earth would become the new centre of the galaxy, and the amount of compression nosebook would need to apply to keep the planet appearing like it was on a billion year timeline, then around this planet, because all of us, (including the men) would all be inside of the same headspace, just like I said above about women and stars, we will need to differentiate to prevent crosstalk.
+
+because nosebook has to apply so much compression to keep things at their level of conductivity, these will create real physical points of attraction quite a distance away from our planet, which stars and planets would begin to form at these points -- and because of our perceptual difference to each other (red/blue shift), they would begin to orbit around each other and around the central point of this earth. the real manifestation of one's perceptual proximity to another would be manifest in real-life 3d position between the celestial bodies.
+
+I don't know how I perceived (I think it had to do with the actor/observer thing) that these different orbiting rings would become a spinninng tourus (doughnut) like structure, and there would be those that decide they are stuck in their perception and don't want to change (for now) as they remained in the same spot, the progression of our galaxy over time would appear like a growing mushroom cloud. at some point, those who wanted to appear like their perception would never change, in does finally make the change (someone has to be last), and then brings about the opposite motion where the stem of the mushroom gets sucked up into the head and comes out the other side as it appears once again like the musroom is now growing in the opposite direction.
+
+you will notice that the whole structure itself becomes a line.
+
+also on earth, now being the new centre point for the galaxy, people will essentially "live forever" until they release their consciousness or until the next transition comes.
+
+#### extending out from the zero point, layers of life and perception
+
+all of this makes me wonder if at the centre of the sun there are a bunch of characters hanging out... one's call jupiter, antother called mercury, another, venus, etc. and they for fun they incarnate into bodies on the different planets :)
+
+each of these celestial bodies is now another centrepoint for the creation of life in this universe, I would imagine that it would be quite a normal thing to participate in the creation -- so if we became a galaxy, sure you would live forever, but I think it would be quite normal to take upon yourself a body on one of the planets there -- or maybe in someone else's, too :)
+
+time is perceptual, so one year here on earth may be a very short period of time for one of the gods living in the sun, and a life here on earth may be for them something similar to a short dream.
+
+#### one option for the timelines
+
+one option is to play a game with the timelines and make it perceptual. you have two types: perceivers and competitors, but I will call them actors and observers.
+
+the actors look through the different timelines they have of theirself and they pick the one that they like the most. this alternate timeline is what is broadcast out to the observers. the observers are ones that have not opted into broadcasting a version of their life, because they probably feel inadequite or whatever. the observers see the broadcasted alternate timelines of other people, but not their own.
+
+the reason why I think this is an idea worth considering is because it takes the leaderboard version of competition and turns it into something perceptual. those that are observers are "competing" (kinda but not really) with eath other, because they have two lists. however, because we know that the broadcaster is broadcasting an alternate version of theirself, no one knows for sure really. some people may broadcast a very different version of theirself and some a very similar version to how they are really living on earth. so it's not "real" competition in that way.
+
+the ones that are the actors, are the ones with only one list. they can perceive others as better, or whatever, but for them, in heir perception, there is no one else out there like them. they are unique and not a part of the competitive (observing) masses.
+
+obviously, it's possible for someone at nosebook to perceive their own timelines and others at the same time, even broadcasting the one they want to, and it's also possible for someone like me to exist where they perceive no one's timeline (3rd world countries?). those are the four possibilities, but I wanted to show that by framing two of the possibilities in this way, we go to the 1/2 list setup of perceptual (as real as you want it to be) competition.
+
+---
+
+that's all for now. there were many more take aways, but I want to take a break now.
+
 # the end
 
 ### 2020-05-24 ??:?? - sumerian gods reflection
