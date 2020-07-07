@@ -11695,10 +11695,11 @@ so, if the coming era is picsis, before the transition:
 
 after the transition:
 
-| suppressed by those running the show so they're not obsoleted | +1 | individual/internal | aquarius |
-| the new mainstream social architecture | 0 | group/external | picsis |
-| the old (obsoleted) social institution / those running the new social institution | -1 | individual/internal | aries |
-| crashed and burned | -2 | taurus |
+| announcer | +1 | group/external | capricorn |
+| suppressed by those running the show so they're not obsoleted | 0 | individual/internal | aquarius |
+| the new mainstream social architecture | -1 | group/external | picsis |
+| the old (obsoleted) social institution / those running the new social institution | -2 | individual/internal | aries |
+| crashed and burned | -3 | taurus |
 
 the reason why it they can't allow the manifestation of the announcer because it would obsolete them being a better version of their antiquated individual/group mentality, so begrudgingly they feel "forced" to transform up to the era behind the new present era.  they feel forced to do so, cause otherwise it would be their extinction so they masqueraade as as the era behind the announcer (opposite in internal/external emphasis), so as to prevent people from getting a hold of the announcers ideas (which would obsolute them).
 
