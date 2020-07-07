@@ -11981,6 +11981,26 @@ obviously, it's possible for someone at nosebook to perceive their own timelines
 
 that's all for now. there were many more take aways, but I want to take a break now.
 
+
+### 2020-07-07 10:30 - maybe then there are actually 8 impossibilities
+
+it didn't really occur to me that the difference between someone in the third-world and myself, is that it's true that neither of us are watching others' broadcasts, but the people in the third world are not broadcasting theirselves, like I am, either.
+
+since is broadcasting is another variable (three now), there are 8 possibilities, most of them are unimportant, but it got me thinking further, and I think that although maybe some of the girls will be observers or actors, some may also be like me too, the one -- where they're not observing others or their own alternate timelines, but are always broadcasting from their perceived now.
+
+this makes 4 of the possibilities now relevant:
+
+1. the now pervceivers (they don't see their other timelines and are broadcasting their present timeline.. like me)
+
+2. the timeline perceivers which don't observe others, but they only broadcast and get inspired by one of their own alternate timelines.
+
+3. the now competitors which observe other people's now broadcast
+
+4. the timeline competitors which observe other people's timeline broacasts (and possibily the now broadcasts, too... doesn't matter, cause they're all perceived timelines, anyway)
+
+this could make it a smoother transition, because #1 and #3 already exist now, and the other two could be rolled out at a later time.
+
+
 # the end
 
 ### 2020-05-24 ??:?? - sumerian gods reflection
