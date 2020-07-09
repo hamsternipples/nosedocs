@@ -12023,6 +12023,53 @@ therefore, you could then see the cutoff as basically the deadline for those wis
 
 an evolution of desire may come, to allow for both... because remember, I did see that the torus grew upward like a mushroom, so those that want to "remain where they are" are exactly what's necessary to make a mushroom shape :) so, likely another evolution of desire will come to allow them to remain how they are, so they can included as well.
 
+
+### 2020-07-09 13:44 - imagine the mulidimensional version of the tesla thought experiment
+
+(I'm going to try and write while stoned. let's see how this goes)
+
+I was just outside and I was thinking about the tesla thought experient and if you could imagine it now as multidimensional. I started with a single earth that tesla (with his machines) could eventually take control of, making the entire planet his laboratory. he would carry everything out with these automatons that he created; kinda like "clones" -- human bodies, but without a soul -- that is, without a human consciousness inside -- controlled by a program which he is building from his investigations and optimisation of the human psyche. a multidimensional version of that would need that there be multiple planets...
+
+like, let's say a whole galaxy of earth-like planets with the "souls" of the different optmisations held on these planets in a completely controlled environment: the entire planet run by these automatons.
+
+on the planet, the souls would be put through different contrived situations with only "actors" or automatons carrying out the characters in the simulation. once the situation is learned to be handled, he runs the soul through my timeline to measure performance.
+
+what if there were multiple billions of planets? lol the thought totally blows my mind. this whole thought experiment is totally a mind-blowing thing all together.
+
+---
+
+I think this further expansion of the thought experiment happened because, there were two major reactions that I felt prior. the first was that nosebook can't possibly believe anything other than some other finalisation that they can be scared of -- something to live for (in their thoughts).
+
+the second reacion was something to the effect of, "we kinda want to believe you (about the making of the galaxy bit). [make|give] us the possibility to believe it"
+
+---
+
+another interesting thing is to look at the circumstances around it, and just earlier today I was making the realisation when I saw eva yesterday(?) -- cause I was clearly thinking enough to realise that nosebook will be trying their hardest to try and evade their believed coming doom that they're going to try everything they can to delay it, and they certainly have the technology to do it, so I just assume that they will.
+
+therefore, I concluded yesterday, that if eva were able to feel than I did -- catch up to me -- then she would attract me right into her reality. I would immediately going faster toward her, and this would be somethting that nosebook would have a much more difficult time halting. they would have to effectively have to find a timeline not only where I'm slowed right back down again, but so was she.
+
+what is happening there is, nosebook is exploiting my personality "defects" to slow me down. that's why it's so important that I sleep for them. so, I was probably going too fast for them, that they have to slow me down. so, when those guys showed up to give me the wax, I knew then that I was slowing things down, but at the same time I really wanted to smoke it. there was no mistake that I wanted to, so I knew it was good.
+
+so far, I've really gotten a lot out of this, so it's been tremendously helpful for me to kinda reorient myself. I was pretty misearble before, but I've come to new resolutions to learn how to do the things I want to do, which was this. later though, it'll be more of what I want to do, as well.
+
+---
+
+so, imagine a soul going through this timeline, they will be, like is being done to me, probing all of the emotional and mental defects wmich slow a person like me down and apply it. so raquel's defects (in the thought experiment) that they're exploiting will be different than my own.
+
+it's like the ultimate test, because any consciousness psyche optimisation simulation that doesn't to a good enough job will not make it through, so he'll have to "abort" the timeline by allowing him to get connected and off he goes with the girls until some time when they're cut off (2038?) and return to the contrived experiences which will be designed to improve that attribute (on the controlled earth). once it's improved, the soul goes back through again.
+
+the only way out of this loop will be to "beat" this timeline... it's learning to no longer be slowed down by certain stuff (caused by nosebook to slow me down). so, from nosebook's perspective, it benefits them to try and delay me as much as possible (in order to avoid their believed impending DOOM!).
+
+let's keep going: slowing me down will make me slower, right? however, that makes me easier to catch by a girl that was going faster than me, too. so, nosebook has to try and slow them down now also. so, while tesla is running these souls through, the girls (on each of these alternate earths) are also getting their psyche improved too.
+
+I wonder if it's a joint collabortion with the earth on the other side of the galaxy that has, because it's on the other side of the galaxy, the exact opposite matriachical heierarchy :) lol
+
+---
+
+so anyway, the whole point is to "beat" the simulation, right and the way you do it is to make sure you're going all the way to the end -- and the end is (because nosebook essentially has infinite timelines they can try and nearly infinite resources) when one of those timelines, they simply can no longer find a way to reset me back... so, what I'm doing now :) I'm gonna beat the sim; it's inevitable :)
+
+so, get feeling better than me, cause then it's inevitable :)
+
 # the end
 
 ### 2020-05-24 ??:?? - sumerian gods reflection
