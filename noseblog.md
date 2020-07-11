@@ -12159,6 +12159,15 @@ we'll have to wait and see, but this could be infinite.
 
 in the 7 years of tribulation bits, the common theme was the idea of delays... the idea that 9/11 delayed it by 4 years, so then if it was really delayed, that means that 2023-12-12 is the end date, right, but I highly doubt that. that one probably got extended too, because half of 7 years is 3.5 years, and the "tribulation" is split into two halves, 3.5 years after 2016 is 2019... wait, 3.5 years after the end of 2016-12-12 is somewhere in the middle of 2020. wouldn't that be crazy if it were my birthday, the day I had the idea to meddle in raquel's timeline :)
 
+EDIT: it wasn't my birthday, but it was the day I had a weird idea in the shower which I wrote about after watching stars here: @[noseblog](2020-06-15 06:54). the calulation I used, uses 1280 days, the time that the book of revelation says that the two witnesses prophesied in rev 11 (which is half a year):
+
+```
+> new require('moment')('2016-12-12').add(1280, 'days')
+Moment<2020-06-14T00:00:00-06:00>
+```
+
+weird enough for me, considering that's the birthday of my best friend when I grew up, tim, and the day afterward 06-15 is raquel's... yes, I'm well aware of the "birthday attack" and how likely two dates coincide... I'm not saying it's significant; just weird.
+
 [1]: in the sirian guide, it was mentioned that this isn't necessary, and it was also mentioned that they're able to pysically travel around in time, and not just tune into consciousness (look through someone's eyes) on another timeline. so, I'm talknig about the present level of technology, not what's possible. to be able to go way further back or forward in time, the planet's position in the galaxy probably needs to be anticipated, which I doubt is possible yet.
 
 [2]: I just want to mention that I've mentioned a few times that it felt like I'm kind of like a masculine version of raquel (or she's a femenine version of me).  
