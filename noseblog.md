@@ -12187,7 +12187,9 @@ the even weirder thing is, someone is really quite interested in what I'm writin
 
 I dunno, it's weird for me too. I just type and say stuff that comes to my mind. me (kenny), is really not all that special. the only ability that I have practised and demonstrated is easy connection to receive inspiration from *somewhere* -- and I don't really know where, or doubt it much anymore. nothing outside of myself can be trusted anymore, so using my emotions instead, I figure out what to do with that inspiration, (eg. if the inspiration feels good, feels forced, feels like whatever, then I make a decision from there). I'm not a terribly accurate or perfect person, and everything that I've done almost has been a mistake or a disaster. the times when things worked out great were when I was connected, and feeling good, so I've come to learn to depend on that, because without that connection, I'm a pretty disaster of a person.
 
-one of the funny things about terence mr.kenna was that he was a bard. he told the funniest most far out stories, and people believed him. the thing that changed the whole thing for me was when abraham told one of my stand-ins to tell the story I wanted to tell. I had no idea what they meant back then, but it started coming to me little by little. I guess I'm a bit of a bard as well :)
+one of the funny things about terence mr.kenna was that he was a bard. he told the funniest most far out stories, and people believed him. the thing that changed the whole thing for me was when abraham told one of my stand-ins to tell the story I wanted to tell. I had no idea what they meant back then, but it started coming to me little by little.
+
+I guess I'm a bit of a bard, and someone believes my crazy stories, as well :)
 
 # the end
 
