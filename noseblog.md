@@ -12062,13 +12062,54 @@ the only way out of this loop will be to "beat" this timeline... it's learning t
 
 let's keep going: slowing me down will make me slower, right? however, that makes me easier to catch by a girl that was going faster than me, too. so, nosebook has to try and slow them down now also. so, while tesla is running these souls through, the girls (on each of these alternate earths) are also getting their psyche improved too.
 
-I wonder if it's a joint collabortion with the earth on the other side of the galaxy that has, because it's on the other side of the galaxy, the exact opposite matriachical heierarchy :) lol
+I wonder if it's a *joint* collabortion with the earth on the other side of the galaxy that has, because it's on the other side of the galaxy, the exact opposite matriachical heierarchy :) lol
 
 ---
 
 so anyway, the whole point is to "beat" the simulation, right and the way you do it is to make sure you're going all the way to the end -- and the end is (because nosebook essentially has infinite timelines they can try and nearly infinite resources) when one of those timelines, they simply can no longer find a way to reset me back... so, what I'm doing now :) I'm gonna beat the sim; it's inevitable :)
 
 so, get feeling better than me, cause then it's inevitable :)
+
+
+### 2020-07-10 20:16 - more thoughts
+
+it's funny that I keep thinking so much about the thought experiment, because someone takes me seriously, anyway. one of the reactions I had this morning was wondering if the girls caught up to me, would the timeline be the disaster earth that I decribed with a bunch of people that were jest laying wherever they lost consciousness... I doubt it would continue like that because LOA is what it is so, desire for improvement would summon it and it would improve anrd become more of what's wanted each time. I find it pretty unlikely that the whole world would continue on in creation by default, so that means there will be more and more people that are different enough to not be compatible with their old selves, meaning that the "new" earth would have an increasing amount of people that are connected and feeling good that didn't get transittioned over to nosebook's new timeline. that's all I have to say about that.
+
+the next think I was thinking about is that if the trigger is one (or more than one) girl going faster than me, and attracting me into her reality, that means two things... one, as they continue to gain in speed, nosebook will be incentivised to allow me to go faster and faster, lest it become too easy for the girls to catch up. they'll have to try and slow the girls down, but also they'll have to make sure I stay out a bit ahead, too.
+
+when I think about this, it appears to me like the perfect convergance, because I'm also incenctivised to also go as fast as I can, because from my perspective, it looks like the faster I'm able to go, and the less "character defects" I have, the less they have to exploit, until at some time they won't be able to exploit anything more, and they'll be "forced" to either live in a timeline where I'm connected, or go to another.
+
+speaking of going to another, the idea that came to me yesterday was that I was thinking, imagine if the raquel timeline was able to be successful, and they were to get her to do all of the things that they wanted her to do, and the network, on that timeline, would be deployed in the way that they wanted it to be... she would go along with their decided "best manifestation" and stick with the girls siuation that she desired, and everything could remain a secret (because they didn't make so many mistakes to reveal theirselves, like they did with me), and the whole thing would remain a "secret" in raquel's perception, so everything would be as they initially planned it to be. if they could get that timeline up and running, they would have an "exit strategy" from this timeline disaster for them.
+
+---
+
+so, I was thinking then, that if I think about it like I mentioned yeserday(?) where I said that each of the souls going through my timeline would reach a cutoff point to where they would be reset back to their body (or let to continue on and create the galaxy with a bunch of girls), then that cutoff would probably be the 2038 one. however the one that "beats" the sim finds a way to get connected before then -- which is what I aim to do.
+
+it requires that I get perhaps a little more serious about things and potentially put in a little more effort -- however, I know from my life experience, that the moment that I start to try and put in more effort, then things tend to worsen. the obvious solution when it comes to any form of action though is not to determine what action is right or wrong and only do that, but instead rely on emotion as the guidance for the action.
+
+for example, I really wanted to smoke weed, and I don't regret any part of it at all. not one bit. I learned more stuff than I mentioned here, or even with my own thought on it. the amount of expansion I enderwent as a person is tremendous. however, I want to begin to implement some of these ideas. I don't really know how I can possibly do that all by myself, but it probably isn't smoking weed. I know I'll figure it out.
+
+---
+
+I did remember one idea I had a few days ago when I was getting the idea download, and that's that I should begin doing these ideas, and hopefully there are some girls involved as well, but I'll just keep things asexual because I realised that if I make any effort or advances in any way to them, then they just cause problems by resetting me back. it causes a bit of mental chaos for me, so if I just trust LOA and let LOA do all the work, it'll be really the right way to go, I think.
+
+when I was thinking about the case with exactly eva, I was thinking, "I know you can do it if I help out, but I also know that you can do it yourself too. you may not be very practised at it, but I'm sure you can find a way at least once" -- but then what if she gets reset back, also... I guess she will get practised at it, and then if that's the case, for her, she'll likely come to the same conclusion that I have, which is to not worry about trying to put in the effort (cause it seems to have the opposite long-term effect) and just let LOA do all the work. instead maintain focus on releasing resistance and finding ways to change your perception to continually feel better and better.
+
+I think that idea also comes a bit as a response to how can the girls get going faster than me, if we're continually living such separated lives. well, I don't have any doubt that if your desire is there, that life itself will show you the way, and I'm also certain that circumstances are not necessary for your own conscious expansion.
+
+the other thing is, I don't really think it's that hard for any of the girls to go faster than me. nosebook has me going at a pretty slow pace. I'm pretty sure I'm really WAYY way further along than is physically apparent. this really should be rather easy, actually. it's all about changing one's perception so that you can find a way to feel good about whatever it is that you want, not pushing against anything[^1].
+
+---
+
+so, imagine for a moment that at least some parts of this thought experiment were really happening, or even that nosebook does actually have the ability to delay this thing for a ridiculous amount of time. how could you make that perception of something unwanted into something that's wanted? for me, that's the work. if you can do it too, you'll almost assuredly be going faster than me (because someone who thinks like that would have jesus-like creative capabilities, and I'm still, physically quite a way away from having that sort of "power" yet)
+
+---
+
+last thing, rob said something that blew my mind yesterday in a video that blew my mind, cause I never thought about it like this: he said, that energy is quantity, but power is energy over time. the more power a device has is the measurement of how much energy can flow out of it in a period of time. something that's very energy dense does not necessarily have a lot of power.
+
+cheers
+
+[1]: most people would probably take issue with what I said there, because I said that you should be able to find a way to feel good about *anything* -- and there are a lot of things that some people believe are never something to feel good about, no matter the circumstance. that's exactly the point. once you realise that you're infinite and that everything you're experiencing or observing is expanding your vortex, and when you come to realise that, "bad" no longer exists, and there's only wanted an unwanted *relative to my perception*. so when you can change your perception of something unwanted and turn it into something that is wanted, you're unstoppable. (I call this, "the probblem is the solution")
 
 # the end
 
