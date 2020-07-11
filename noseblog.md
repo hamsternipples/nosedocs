@@ -12113,6 +12113,56 @@ cheers
 
 [1]: most people would probably take issue with what I said there, because I said that you should be able to find a way to feel good about *anything* -- and there are a lot of things that some people believe are never something to feel good about, no matter the circumstance. that's exactly the point. once you realise that you're infinite and that everything you're experiencing or observing is expanding your vortex, and when you come to realise that, "bad" no longer exists, and there's only wanted an unwanted *relative to my perception*. so when you can change your perception of something unwanted and turn it into something that is wanted, you're unstoppable. (I call this, "the probblem is the solution")
 
+
+### 2020-07-11 14:30 - putting a few more things together...
+
+remember when I wrote that weird entry @[noseblog](2020-07-03 07:58), and I concluded it by saying, "that's all I have to say about that" -- which was because I felt like the topic was kinda being forced, and wasn't the normal feeling of inspiration. remember that thought, cause I'll come back to it.
+
+---
+
+ok, I just woke up and when I did, I had an overwhelming sense that something *must* be done, because things are becoming way too much of unwanted for nosebook. I felt like they took my idea seriously about doing the raquel timeline where they fully set up everything so that they come up with the perfect setup for theirselves.
+
+after realising that they would have to, because I'm sure they were reluctant when I first mentioned it, actually consider it as a real idea. so, it seems that time progresses at a (somewhat) constant rate, so even if you're tuning into a timeline, it's still progressing at the same speed as this one is[^1], so from the time they begin to work on that timeline forward, there would be a period where things were slightly different. they would know they have an exit and watching that exit turn into what it is that they want, so (probably/maybe) they'll be fighting a lot less hard here against me.
+
+the next thing I realised is that likely while this is happening, and I don't know if it was what I was talking about with the perceivers/actors idea I had, or something that really was going to happen, it seemed like there would be a whole lot of parallel versions of me existing at the same time, as more and more girls get going fast enuough to attract me into their experience.
+
+---
+
+as I was thinking about this, mr. motor roared, and I thought to myself, "what makes you think they're going to take you with them on their timeline?" to which then, I began to think about the 4 cardinal points of the sine wave: the +peak, -peak, +0, -0. because it's alternating current, the two peaks switch places every cycle. so, that would mean that mr. motor will eventually have to release his resistance, and he'll shoot all the way to the opposite other end and become the new +/- peak. then, that means that me, how I am now, imagine that I am now the bane of mr. motor's experience, and he's like, "dude, that guy is going to drag his feet forever, and he'll never change" (stuff I may have said about mr. motor myself)
+
+the thought was really kind of a funny thought to me, because in AC, the "worst" is also the "graetest" (and vicaversa). so, anyway as I was thinking about this, I felt mr. motor's desire to not have to change rise, like he wanted to make sure he's always the bad guy, because he could never imagine himself as anything good (only the deceptive version, to manipulate others to get his way).
+
+I kinda dropped the idea for a bit not sure really what to do about it, and I went outside and then I remembered an idea that came to me on my birthday:
+
+> 2020-05-28 ??:?? - new thought experiment:
+> - what if I were to meddle in raquel's experience?
+
+so, then I thought about this idea, what if instead of just letting their raquel timeline flourish, what if I were to meddle in it a bit? I have no idea what I would do, but the obvious thing they would be fearing is that I meddled in such a way that allowed raquel to get connected, and then they would have to go along with another alternate timeline, with raquel in it? weird, right... it gets weirder.
+
+remember a long time ago when I mentioned that mr. landscape architect (TLA), was just a rebranded version of mr. motor? well, imagine then the irony of the timeline version if those two really *are* different versions of the same guy, and then when TLA goes off to the new timeline and leaves MM behind, when I meddle in their timeline, I imagine that most of the work would be getting their timeline's version of MM to be even more aprehensive and ridiculous than this one is, to boost the contrast higher, and then work as well on raquel in my body (me) to get her to take the evolutions of desire necessary for her to gain more power than they're able to contain, forcing them to take off on a timeline with raquel[^2] in my body...
+
+---
+
+that's a really bizarre idea to come on the heels of mr. motor rejecting the idea of having to release resistance. the new idea came perfectly in time to where he wouldn't need to. instead, I can be the bane of his existance from a distance where he's unable to reach me... irony :)
+
+so then, I started to think about what's in it for them on this, because I imagine that for the version of tesla's timeline to be possible, he would need the technology to manipulate automatons and stuff like that. in that new timeline, they would peace out, leaving the new incarnation of tesla in control of the planet. I doubt anyone would mess with that timeline, unless some further improvement can be made (maybe something with automatons, giving the nosebook guys a fully controlled automaton world or something they may like... I have no idea).
+
+either way, if something like that were to happen, there's a whole lot of wanted in it, because nosebook (MM/TLA) would get their fully controlled world, tesla his fully automated world, me a world where I'm connected, and multi-bodied both temporally and spatially, raquel would get the world that LOA and the evolution of desire would bring her to receive (assuming I meddled).
+
+---
+
+so, mr. motor, we don't have to switch now, but if I start meddling in your new timeline, it starts the switch because I start giving my attention more toward unwanted to create the contrast necessary for raquel's evolutions of desire.
+
+we'll have to wait and see, but this could be infinite.
+
+---
+
+in the 7 years of tribulation bits, the common theme was the idea of delays... the idea that 9/11 delayed it by 4 years, so then if it was really delayed, that means that 2023-12-12 is the end date, right, but I highly doubt that. that one probably got extended too, because half of 7 years is 3.5 years, and the "tribulation" is split into two halves, 3.5 years after 2016 is 2019... wait, 3.5 years after the end of 2016-12-12 is somewhere in the middle of 2020. wouldn't that be crazy if it were my birthday, the day I had the idea to meddle in raquel's timeline :)
+
+[1]: in the sirian guide, it was mentioned that this isn't necessary, and it was also mentioned that they're able to pysically travel around in time, and not just tune into consciousness (look through someone's eyes) on another timeline. so, I'm talknig about the present level of technology, not what's possible. to be able to go way further back or forward in time, the planet's position in the galaxy probably needs to be anticipated, which I doubt is possible yet.
+
+[2]: I just want to mention that I've mentioned a few times that it felt like I'm kind of like a masculine version of raquel (or she's a femenine version of me).  
+
 # the end
 
 ### 2020-05-24 ??:?? - sumerian gods reflection
