@@ -12172,6 +12172,23 @@ weird enough for me, considering that's the birthday of my best friend when I gr
 
 [2]: I just want to mention that I've mentioned a few times that it felt like I'm kind of like a masculine version of raquel (or she's a femenine version of me).  
 
+
+### 2020-07-11 15:37 - weird metacommentary
+
+I'm not really thinking about any of thiss sort of stuff. when I was younger, I noticed repeating numbers on the clocks and all sorts of numerilogical significant occurrances in my life -- but that's nothing special; lots and lots of people experience this, and there's a great movie about this sort of thing, where he (nash) says something about the aliens and stuff that he perceived, that they came to him the same way that the solutons to the math problems did. I always remembered that quote because it's the story of my life. I remember things wrong all the time (probbly remebered the quote above wrong, even) and I seem to have these weird things where, for example, apparently I didn't learn light theory like they teach it in schools.
+
+the same way those things come to me is the same way these other things come to me. when I was discovering the nosebook effect, I learned to trust this instinct much better than anything anyone else was telling me, because what people were telling me was a big lie to cover up what was really happening. you could say that I'm pretty successful at deciphering the "truth" in this area, and have managed to figure this out. this is similar to nash and his math solutions.
+
+however, the problem is, these weird thought experiments come to me the same exact way that the solutions to what's really happening comes to me. I seem to be quite good at guessing what people are thinking about (just ask jaron, lol), in relation to me :) so I don't really know what to think, honestly.
+
+the weird thing is that in all of this, the crafty stories I've been telling are not really all that crafty. I spent zero time conjuring the illusion I wanted to make. instead, I just wrote what was on my mind, not really believing it, but not really disbelieving it either. to be quite honest, if I were one of you guys, I would respond to these probably with a "hilarious story bro -- let's see how it pans out" sort of response, because it's totally ridiculous what I'm writing -- of course it was also completely ridiculous for me to tell people 4 years ago that it would be possible for someone to be able to look through your eyes, too.
+
+the even weirder thing is, someone is really quite interested in what I'm writing here, especially the tesla bit, because I keep feeling desire for a furthermore extension of the thought experiment. and then, it also feels to me, like someone who knows something we don't know, also believes me. it tells me that there is some (or maybe many) aspects of what I'm writing in this thought experiment, which others regard as truth, fact, or something relatable -- otherwise I wouldn't continue to feel it.
+
+I dunno, it's weird for me too. I just type and say stuff that comes to my mind. me (kenny), is really not all that special. the only ability that I have practised and demonstrated is easy connection to receive inspiration from *somewhere* -- and I don't really know where, or doubt it much anymore. nothing outside of myself can be trusted anymore, so using my emotions instead, I figure out what to do with that inspiration, (eg. if the inspiration feels good, feels forced, feels like whatever, then I make a decision from there). I'm not a terribly accurate or perfect person, and everything that I've done almost has been a mistake or a disaster. the times when things worked out great were when I was connected, and feeling good, so I've come to learn to depend on that, because without that connection, I'm a pretty disaster of a person.
+
+one of the funny things about terence mr.kenna was that he was a bard. he told the funniest most far out stories, and people believed him. the thing that changed the whole thing for me was when abraham told one of my stand-ins to tell the story I wanted to tell. I had no idea what they meant back then, but it started coming to me little by little. I guess I'm a bit of a bard as well :)
+
 # the end
 
 ### 2020-05-24 ??:?? - sumerian gods reflection
