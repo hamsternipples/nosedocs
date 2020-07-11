@@ -12107,6 +12107,8 @@ so, imagine for a moment that at least some parts of this thought experiment wer
 
 last thing, rob said something that blew my mind yesterday in a video that blew my mind, cause I never thought about it like this: he said, that energy is quantity, but power is energy over time. the more power a device has is the measurement of how much energy can flow out of it in a period of time. something that's very energy dense does not necessarily have a lot of power.
 
+it does bring a whole new meaning to the phrase, "one who is connected is more powerful than millions who are not"
+
 cheers
 
 [1]: most people would probably take issue with what I said there, because I said that you should be able to find a way to feel good about *anything* -- and there are a lot of things that some people believe are never something to feel good about, no matter the circumstance. that's exactly the point. once you realise that you're infinite and that everything you're experiencing or observing is expanding your vortex, and when you come to realise that, "bad" no longer exists, and there's only wanted an unwanted *relative to my perception*. so when you can change your perception of something unwanted and turn it into something that is wanted, you're unstoppable. (I call this, "the probblem is the solution")
