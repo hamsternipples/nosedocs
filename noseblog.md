@@ -3790,6 +3790,19 @@ the reason is simply, you don't need to fake it to make it real, just let the ev
 
 in the talk, she said, "fake it till you become it" -- and really the key idea here is the becoming part. you become it. you are not that which don't doubt that you can one day become.
 
+
+### 2020-07-13 04:10 - my reality is not yours.
+
+what I perceive has nothing to do with your reality. from my perspective, I will perceive whatever reality I want to perceive, and there are infinite verisions of me. whatever you want to perceive about me, that is, make me imagine, is what you perceive that I perceive, which is now your reality. it's not just the girls, it's anyone that can project images into my head. girls do it and so does nosebook, for example.
+
+all of these alternate versions of me are not my reality, so for you guys it's possible to put the images into their reality. it behoves nosebook to get me, I'm sure after a few mistakes of picking some unwanted, instead of perceiving what is unwanted, but to perceive what is wanted by them. they can learn, if they want, using me as the imaginer and the infinite timelines possible as a way to discover what it is that they're really wanting, sure.
+
+that was looking from your guys' perspective. however, in my perspective, it looks to me like I just keep doing the next logical step. I don't get pissed at mr. motor anymore. instead of getting pissed, for example, I just take the next logical thing to do. my logic is the state mapper, so it determines the next state. some stimulus will cause a change in perception, which kicks that logic in, and selects the next state. state is different than the next thing to do. the next state is an emotion, not an action. all states in the state machine are emotions. that's probly why we call it, "state of mind", actually.
+
+so, from mine, it's just next logical "step" -- which for me is next logical state. this is why it would make me so angry, because I don't transfer states into action, but into emotion. it wouldn't look this way from the outside looking in, which is probably why it's so confusing. let's try again. for most people the decision to action *is* the next logical step. for most people logic makes the next action, but for me logic makes the next *state* not step.
+
+this is what gives me the multidimensionality, I believe, as it was what I was learning before the whole mercury transit.
+
 ### make more stories up
 
 ### 2020-07-13 ??:?? - vision deviod of meaning
