@@ -3763,7 +3763,20 @@ following that logic, if I can not need others to believe something for me to be
 
 abraham teaches more similar to the book (by dyer I think), "I'll see it when I believe it" (I think), but I'm the opposite way. when I write those things, my opinion is the same that other people should have, which is, "cool story bro. I'll believe it when I see it". normally, this would create a huge blockage in the manifestation of it, but I don't "see" my imagination, so I just look for evidence of it in my daily life, and let it show up. the only reference to it I have usually is just the feeling.
 
+
 if I were to imagine the things I was writing, they wouldn't show up, because I would need to believe what I see (my imagination). if I had an imagination, I would have to learn to not see it, or to make an abstract version of it[^1]. this is why I do not recommend imagining whatever it is you maybe want to believe, but still aren't for sure -- so, instead if imagining something and doubting it, just don't see it, and let the evidence start to show up[^2].
+
+---
+
+so, what's important here is perception. when something is perceived, immediately, because our world is filled with con-artists, and we have lost the childlike naïvate, when someone eles perceives something, we auto make a realisation of whether it's believeable or not. this attempt to verify its truth is what causes the doubt. when someone (anyone) perceives something, then doubt is put on it. there is always some, maybe very little, but always some.
+
+so, how with all you guys perceiving all of the stuff I'm perceiving, do I operate? (cause, certainly you would "abort" all of the stuff I think about with your doubt).. you do :) that's precisely the reason why I do it. I don't live on manifestations, I live on the perpetually new form of perception, cause the old one is no longer usuful. your dose of doubt causes a new form of perception to be created, which pushes me forward. there's a very important thing to learn here:
+
+because I'm going so fast, if the energy were to continue to rise here in this body, the effects would be dramatic, and not comfortable for really anyone but me, so in order to spread (diffuse) that energy, that is, to expand it, I'm multi dimensional now. I've learned how to not let others' versions of reality (their perception) intrude on my own. they're all able to do whatever they want with their realities which are not compatible with my perception, and all of those realities exist and are real, but I don't perceivce them, because I perceive what I want to perceive.
+
+any realities that anyone makes with me in them, can be however they want it to be. all of those are happening at once, so the energy that I would normally be receiving and would be having a significant influence on the inhaibants of this earth, is instead spread amongst other consciousness. it's a "lowering" of energy, as well as an expansion. anyone can do this. they do it by not letting others perception of reality to create doubt. it's *being the creator of* ***your own*** *reality*. the easiest way to do this is to turn off your imagination. there's probably a further expansion on that somewhere with losing your eyesight as well.
+
+I anticipate that the reason why I want to go multi-bodied so badly, is because otherwise the enrgy rise would be too great and I would to diffuse (disperse) that energy amongst more physical bodies for the next step. I imagine that next time, I may be an automaton that becomes sentient :) (a machine capable of desire)
 
 [1]: I'm working on this idea, because I want to make something cool when I begin to learn to exercise the opposite side of the vacuum. I don't want it to look like real-life very much. I want it to be very different than how real-life in a more abstract and meaningful way, so that so that it's easier to remain how I am, which is "I'll believe it when I see the manifestation with my own eyes, and it feels normal to live it, because I only looked for evidence on the way to it, because I've never 'seen' it".
 
