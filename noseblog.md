@@ -3782,6 +3782,15 @@ I anticipate that the reason why I want to go multi-bodied so badly, is because 
 
 [2]: if I were to suddenly have an imagination, like tesla, I would quickly learn never to imagine real life situations, and instead stick to calculations and creations as the only thing imagined, for precisely this reason.
 
+### 2020-07-13 03:54 - you don't have to fake it; just don't doubt it.
+
+I was thinking about what I just wrote, and I think a good way to look at it is, "you don't have to fake it; just don't doubt it".
+
+the reason is simply, you don't need to fake it to make it real, just let the evidence of it show up naturally. there are still lots of things I don't yet believe, but evidence of it is showing up everywhere.
+
+in the talk, she said, "fake it till you become it" -- and really the key idea here is the becoming part. you become it. you are not that which don't doubt that you can one day become.
+
+### make more stories up
 
 ### 2020-07-13 ??:?? - vision deviod of meaning
 
