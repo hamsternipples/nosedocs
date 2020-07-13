@@ -3742,7 +3742,37 @@ I guess I'm a bit of a bard, and someone believes my crazy stories, as well :)
 
 ### 2020-07-13 02:20 - you don't have to believe it; just don't doubt it.
 
-lately, I've been attracted
+lately, I've been attracted to a few videos on youtube. I'll talk about them more in the future because they sparked some thought in me. they are:
+
+- fake it till you make it (TED)
+- vision (jürgen academy)
+- hard work (jürgen academy)
+- dopamine detox (better tommorow)
+
+aanyway, this is the first of such videos on that subject. I'm sure it'll expand. the first one, the title is catchy to hook you, but she rephrases herself at the end by saying it's "fake it until you become it" -- which is exactly what I do myself, but I take a totally different approach, and that is: "you don't have to believe it; just don't doubt it"
+
+there's a problem with changing yourself when you're around other people, the problem is, by default, the change that you make involves other people, and their perception (or doubt) on the subject. that means that there is another place to change yourself, and that's from your own desire, instead of from someone else "nudging you to do it" that's so annoying, isn't it. it's personally the thing I dislike the most of human interactions -- which means, according to the reflecive rule that mom taught me, which was that the external things that bother me are usually a reflection of something that you dislike in yourself, and it's only easier to recognise it in someone else.
+
+you could also see it, similarly as a solution, which is what I do, and I believe that true change can only come from one's own accord. you gatta want to change, or else it's never going to get done. anyway, so instead of as a problem or a solution, I recogise it as a "basim human trait" -- something kind of built into the human genome. you know how birds basically know how to fly, but they just need someone to get them out of the nest, or the crocodile that knows how to do all of the alligator things right away, without any sort of teaching? well, I believe that humans are very physically fragile in their infancy, so they would not survive a hatching from an egg like a crocodile, situation. it is, in my opinion, a basic human trait, and built into our gnome like an alligator already knows how to hunt.
+
+other people and their perspective on whatever you're trying to not doubt, can add doubt. in order to prevent this, you need to not care what others think, which is rather difficult in a social situation, hence the recomendation to find some time to be alone from time to time, or learn how to not care about what others think.
+
+arnold said that you should not listen to the naysayers. I totally agree, but then if you have naysayers, they you also have people that believe you, and while this is good to have, in my opinion, you create the facebook effect of "confirmation bias" -- and the real destructive habit that forms there is the need to have others believe you. when they don't, this pissed me off, so due to the reflective property mom taught me, this meant that what I dislike about another person (that they don't believe me), is the same thing that I dislike about myself.
+
+following that logic, if I can not need others to believe something for me to believe it myself is the solution. it is, but set the bar a bit lower and easier to reach; that's what I do. I had never put words to this idea, but that's what I was trying to convey in the metacommentary. all I have to do is to not doubt it. the phrase is, "I'll believe it when I see it" -- and that is precisely what I do.
+
+abraham teaches more similar to the book (by dyer I think), "I'll see it when I believe it" (I think), but I'm the opposite way. when I write those things, my opinion is the same that other people should have, which is, "cool story bro. I'll believe it when I see it". normally, this would create a huge blockage in the manifestation of it, but I don't "see" my imagination, so I just look for evidence of it in my daily life, and let it show up. the only reference to it I have usually is just the feeling.
+
+if I were to imagine the things I was writing, they wouldn't show up, because I would need to believe what I see (my imagination). if I had an imagination, I would have to learn to not see it, or to make an abstract version of it[^1]. this is why I do not recommend imagining whatever it is you maybe want to believe, but still aren't for sure -- so, instead if imagining something and doubting it, just don't see it, and let the evidence start to show up[^2].
+
+[1]: I'm working on this idea, because I want to make something cool when I begin to learn to exercise the opposite side of the vacuum. I don't want it to look like real-life very much. I want it to be very different than how real-life in a more abstract and meaningful way, so that so that it's easier to remain how I am, which is "I'll believe it when I see the manifestation with my own eyes, and it feels normal to live it, because I only looked for evidence on the way to it, because I've never 'seen' it".
+
+[2]: if I were to suddenly have an imagination, like tesla, I would quickly learn never to imagine real life situations, and instead stick to calculations and creations as the only thing imagined, for precisely this reason.
+
+
+### 2020-07-13 ??:?? - vision deviod of meaning
+
+
 # the end
 
 ### 2020-05-24 ??:?? - sumerian gods reflection
