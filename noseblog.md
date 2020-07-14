@@ -3840,6 +3840,12 @@ I could see that process was essentially the thing where a huge jump forward hap
 
 so, when something gets deleted, it deletes a lot of bits from a lot of different places upon the length of the DNA. something new is created which no longer has need for the previous emotional states anymore.
 
+there is a "fork" that happens here because some entities do stil need that old code (to be able to continue to operate in those emotional states). so some entities continue on in the old state, and some go to the new one [^1]. this may be why women are so interested in me. perhaps that's why I'm so attractive in this regard. the longer nosebook holds me away from making any new replications of this DNA, the more it evolves, and the more emotional states I delete from the DNA. the longer we hold out, the less of that old code will exist, and the more emotionally optimised the new creations will be.
+
+obviously, when viewed from that perspective, things are all going quite well...
+
+---
+
 lemme back up a bit here, because I forgot to introduce the idea that you could imagine that something big experiences itself through its parts, so there has to be something that is infinite, the generator of the code. so, in order to become the new thing, you have to go infinite.
 
 I tried to explain, but I'm not even coming close to doing it well. that's where we're going :) we're going to way overshoot, so much so that it becomes something new, but then bring it back to the zero.
@@ -3855,6 +3861,8 @@ sounds fun to me, anyway. why not :)
 yesterday when having this realisation and somewhat today while writing this too, there are a lot of people that feel scared to become something other than a human, but that doesn't bother me. there are infinite things bigger than you and infinite things smaller than you. you always experience the creation from the centre point. you are always the centre of your universe. I think venus, jupiter, mars, and saturn, etc. are all real people (or groups of people) ;) we would all become gods like them in this new galaxy. the idea sounds fascinating to me.
 
 I wonder what mr. motor would look like as a gas giant or a star :)
+
+[1]: I think this happens frequencially, as I think this is a new species "thoughtform" that emerges which is the new signal, minus all of resonations with the old unused emotional vibrations. I think this happens globally, creating a new "morphic field" and essentially a new "species" is born out of it. I think then spontaneously these new "species" can now emerge all over the planet, too. I mean I just don't know enough about this to be able to say for sure.
 
 ### make more stories up
 
