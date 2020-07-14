@@ -3864,6 +3864,41 @@ I wonder what mr. motor would look like as a gas giant or a star :)
 
 [1]: I think this happens frequencially, as I think this is a new species "thoughtform" that emerges which is the new signal, minus all of resonations with the old unused emotional vibrations. I think this happens globally, creating a new "morphic field" and essentially a new "species" is born out of it. I think then spontaneously these new "species" can now emerge all over the planet, too. I mean I just don't know enough about this to be able to say for sure.
 
+
+### 2020-07-14 16:31 - I want to delay further
+
+real quick. so yesterday (the last few days, really), one of the things I was talking about is learning how to not perceive something. while it is true that I have my imagination turned off, I have been learning to see what is not visible, so in some sense I do kind of have a knowledge that *something* is there, even if I can't see it. however, I don't think I need to feel things in such a way to where they create an image. I think I've learned a more optimal way to experience emotion, and it seems to have something to do with the heart.
+
+think about that for a moment, cause I think it's relevant. if what I want to do in this new galaxy is to add two more dimensions, then what I need to do is to relocate the physical dimenasion into the imagination (nosebook is helping me with this), the imagination into the emotional dimension, and the emotional dimension into the heart[^1].
+
+the goal, I think is for nosebook to get everyone into the new story dimension... it's one not unlike a movie or a video game. it involves the imaginary dimension (has depth), and the physical dimension (has physical sensation to it), and also the emotional dimension to it too, where, like a movie, you see it from an external perspective, and do not live inside of the characters. in addition to the outside perspective, also, like a film, the experience does not need to be in chronological order, and are really just different scenes. you could think of each of these as different timelines, where the thing persistent is the observer (the audience). in this dimension, you are the audience of your own story. you feel the emotion of the characters in this story, like you do watching a film.
+
+I believe this is already beginning to happen, but as soon as things really start to begin to take off, nosebook will have to do something with all that DMT going on in people's heads. it sounds like OOB experiences are becoming more common[^2], and I find it quite likely that as my vision continues to expand, nosebook is holding people inside of their bodies, only allowing them the ablity to use their expanded inner world size.
+
+so, as we continue on, I believe people's inner worlds (and so logically, their external aura as well) will continue to expand. I find it very likely that when we get to the "cutoff" (transition) point, lots of people will have planet sized auras, some solar sized, and I'll be arriving to a galaxy-sized aura. the size of your perception determines the size of the "celestial body" which becomes the physical manifestation of your thoughts in 3d form.
+
+simultaneously, I believe this planet will continue to exist, and those celestial bodies will too, and in large part, the interactions we have with each other on this planet will kind of play out in 3d space over, what appears on those celestial bodies, to be a munch longer period of time. so perhaps if perceived that way, it could be seen that the "birth" of this galaxy is actually happening over the next 18 years. I have no idea if this is like an energetic template (a complete wave, like 0-360°), for which the real thing will occur later, and be like the frequencial start from which the whole thing will continue to resonate with and keep expanding. or, maybe it's someting that's already happening now, and we're just not yet seeing them physically manifesting yet.
+
+I don't know.
+
+---
+
+the point is, I want to continue to work on learning this new version of feeling emotion in my heart, because I believe that's precisely what needs to happen to add the story dimension and the thrust dimension on top.
+
+I don't know how long it'll delay things, but yesterday I could see that the manifestation of the girls is certain to happen because as my power level continues to increase, it needs to be spread over multiple bodies. so, if they didn't difuse the energy and let it continue to collect in my body, I would get conncected. that means that they need to make more timelines of me to difuse that energy more throughout. assuming they do this, and they become proficient at it, using timelines, they could tecnically hold the girls manifestation off for as long as they can continue to lower that energy with more timelines.
+
+it just means that there will be a whole lot of girls out there experiencing timelines with me, while I continue on here learning to experince emotion in my heart instaed of my stomach. I don't mind, either way, and I was trying to think, because maybe in order for the timeline to difuse more energy from me and keep me disconncted here, they need to be increasingly more successful[^3].
+
+---
+
+clearly, a lasting solution will be to replicate physically and also temporally, because they will eventually run out of the ability to make increasingly more successful timelines. they'll need more girls and stuff. that probably won't happen this time, but maybe next time around, it could as I climb up to having an aura much bigger than the size of a galaxy :)
+
+[1]: I'm not talking about mathematical dimensions; I'm talking about perceptive dimensions. physical awareness only leads to 2d vision (screen). when the imagination expands and becomes a part of your reality, you get 3d vision (has depth now), after that emotional vision is where you perceive yourself from outside of yourself (or inside of yourself, your inner universe, much like a planet or a galaxy experiences itself).
+
+[2]: this is perfectly normal for me to think about, because as your perception expands, you see yourself further and further away from your physical body. the first step here is getting depth, which is when you're finally perceiving from inside of your body, but as your perception expands, you feel yourself growing bigger and bigger and you perceive yourself from further and further away from yourself (inside your aura). this is how all things like planets, stars, galaxies, etc. all perceive theirselves. the thing in the centre and the spherical perception of itself from all around itself within its "aura".
+
+[3]: I'm using simple averages here to make this assumption. let's say there are 3 timelines and one here. their magnitudes are: 30, 60, 90, and 20. the total is 200. 20/200 = 10 so I would be here 1/10th of my total. if a new timeline is added with magnitude 400, then I'm 1/20th of my total and my power level has decreased.
+
 ### make more stories up
 
 ### 2020-07-13 ??:?? - vision deviod of meaning
