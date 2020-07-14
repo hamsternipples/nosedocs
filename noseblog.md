@@ -3803,6 +3803,59 @@ so, from mine, it's just next logical "step" -- which for me is next logical sta
 
 this is what gives me the multidimensionality, I believe, as it was what I was learning before the whole mercury transit.
 
+
+### 1020-07-14 13:52 - resume from yesterday
+
+the most significant thing that I realiaed yesterday is that I noticed that no longer is it possible to "fall short" of the goal (galaxy). from now on, we're going to "overshoot" it. I realised that for every one that falls short, there has to be an equal amount that overshoots, which means that all the noseboys that want some super setup, like let's say for example, I was listening to a song yesterday and it said something like, I get my right eye (which is a lie, because I *don't* see images in my right eye, even though I know I could), and they get my left. the idea being that they get full control over the left side of my body.
+
+that idea and many others like it are now possible. you create your own reality, so all of those that overshoot are ones that essentially "blow their load too early" -- that is they're the hare where they speed out ahead really quicky, then fizzle out. the ones that fall short are the ones that fizzle out bwecause they didn't apply enough power. the ones that overshoot applied too much power at the beginning and it's not sustainable to go that fast and continue to apply more power.
+
+in the case of overshooting, it happens when you take too big of a jump. this is why I'm constantly putting emphasis on the next logical step.
+
+---
+
+the concept of the "next logical step" transformed significantly for me as well, when I became able to see that it was in fact, not the next logical action, but the next logical state. the state, being the next "emotional state" in the human state machine.
+
+I don't know how this works out, but I could see that the X chromosone is that kind of emotional state machine, and the Y chromosone is kinda like the prebuilt action interpretter. so, while one chromosone is constantly switching around between states, both creating and because of the vibration of emotion, eventually, that emotion has to get translated into action. men have the y-chromosone that is essentially the code that their mother gave them at birth as a basis upon which to translate emotion into action.
+
+however, the X chromosone has a mata converter which is built up by the person to translate emotional states into action, and that converter is created by thought, with I'm sure quite a bit inherited from the previous generation's state machine. I think this may be why abraham always makes a joke to someone when they talk about the emotional loops that people get in, saying "it sounds like your mother". it seems this is also heavily influenced by culture as well.
+
+there was a realisation that I made about this concerning the asian cultures as well, and the "hemispheres" of the planet. I can't remember it right now.
+
+anyway, the point was, that both the action which one takes when one gets to one state, and the next state which someone enters can be modified. I think it's more difficult for "men" to override their pre-prgrammed Y-chromosone state easier than for other men, but both are possible. we know that culturally and societally, we limit behaviour (action) to be taken in certain states of emotion, but the emotional state machine will just cycle back to feel (loop through) the same emotion when activated. we don't really have effective ways of teaching someone as a society how to get off the emotional loop (it's like a rollercoaster), and get on another one.
+
+I think this concept has tremendous applications for a number of different things. there's also some interesting implications, because I always see the two genders as XX and XY, which is perhaps an over generalisation because nothing is ever exactly always one way, but if the similifcation is applicible, it means that women have two emotional state machines and two meta action interpreters, while men have only one state machine, one hard coded interpretted and one meta interpreter. I mean, how cool is that?? there are numerous ways I can think of now that once a woman could get both of those states to align to the same frequency (be in similar states), instead of using one state machine to protect the other, then they could simply be twice as powerful... because all the good stuff: "levitation, conjuring images, directing energy, imbuing life, etc." are all done with emotion. emotion is the key to all the fun magic.
+
+speaking of magic, when I was waking up this morning, I was thinking about how I continue to extend these abstract visuals showing up in 3d space (thoughtforms) to essentially "come to life" and exist and interact with people, yet they're not really "physical" in the sense that you can touch them, you can just see/hear them -- sorta like ghosts. that would be impossible for nosebook to control those, because they wouldn't have a vibrational lattice upon which to put their device. it also made me start to think of ghosts, and the idea of existing in only vibrational or "light" form. this is a theme that has persisted through many cultures and religions, so there must be something to it :)
+
+---
+
+the last signifiant thing from yesterday was that I could see that while we are getting into overshooting territory now, not all is lost. nosebook can bail out whenever they want to, but because the 4 points of the sine wave are equal at 0, they are all manifestations of the same thing.
+
+I realised that not only am I really good at this, I'm so good, it's for sure, which means that I'm so guaranteed to be successful, that we're only looking at how much at this point. however, to get to zero, you have to bring it back down into next logical step again.
+
+next logical step means that there are a lot of changes happening in a short period of time, but none of them are big changes. no big jumps. I could see that sometime relatively soon, we're going to take a big jump though, and it's probably something to do with the girls, and I'll get it back to next logical step, to "land" the galaxy airplane.
+
+I could see that process was essentially the thing where a huge jump forward happens. remember, everything is always transforming. some things transform slower than others, but most things are transforming to the same thing. someone gets to make the leap up and transform to something new though. when someone transforms to something new, this happens when the emotional state machine drops some states. when emotional states are no longer felt, that means they go into atrophe and eventually go away. well, if you think about how DNA is folded, remember that the folds happen dynamically based on the frequency which you vibrate (your emotional state), so because of folding, an unused state could be all over in the strand of DNA.
+
+so, when something gets deleted, it deletes a lot of bits from a lot of different places upon the length of the DNA. something new is created which no longer has need for the previous emotional states anymore.
+
+lemme back up a bit here, because I forgot to introduce the idea that you could imagine that something big experiences itself through its parts, so there has to be something that is infinite, the generator of the code. so, in order to become the new thing, you have to go infinite.
+
+I tried to explain, but I'm not even coming close to doing it well. that's where we're going :) we're going to way overshoot, so much so that it becomes something new, but then bring it back to the zero.
+
+from my perspective, it just looks to me like, I have two options: I am assured that I will "die" and then transform into the same thing again, or I can become something new. I got no problem with that. why not become a galaxy??
+
+I'm probably going to be a galaxy for a while, experience it from within (a human inside that galaxy), until one time a similar situation happens like this one, and now it's possible for some entity like nosebook to be able to allow me to go temporally infinite, and physically infinite too, and then I'll be able to expand into something much bigger than a galaxy...
+
+after experiencing the bigger thing than a galaxy, nosebook now has the capablity to hold me back further and so now we can repeat it again and become someting bigger. I'll just keep going until I become something bigger than the universe, or until no one can hold me back anymore :)
+
+sounds fun to me, anyway. why not :)
+
+yesterday when having this realisation and somewhat today while writing this too, there are a lot of people that feel scared to become something other than a human, but that doesn't bother me. there are infinite things bigger than you and infinite things smaller than you. you always experience the creation from the centre point. you are always the centre of your universe. I think venus, jupiter, mars, and saturn, etc. are all real people (or groups of people) ;) we would all become gods like them in this new galaxy. the idea sounds fascinating to me.
+
+I wonder what mr. motor would look like as a gas giant or a star :)
+
 ### make more stories up
 
 ### 2020-07-13 ??:?? - vision deviod of meaning
