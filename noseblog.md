@@ -3945,6 +3945,43 @@ maybe, if they want to try and make me feel crappy so I mess up my own manifesta
 
 [3]: you may wonder, as do I, if they're so good at conjuring a false reality in their head, why not instead use LOA, instead of trying to manipulate others with their words to get what they want...
 
+
+### 2020-07-15 16:22 - another idea
+
+I just woke up. I went to sleep but someone in the dream started tickling my feet. I'm pretty ticklish, so I woke up.
+
+anyway when I woke up, I got the sense that there were like a lot of younger girls. I also got the sense that nosebook does not want DNA replication. I thougt about this for a moment, and I can see some definite things that I like about the idea.
+
+if you take the current progress I have been realising around the DNA being an emotional state machine (ESM), then when certain emotional states get atrophied, then they get removed, because they're no longer needed.
+
+so, what if we put off the replication bit for a while and just started with younger girls, then they would also "grow up" (assuming they remained feeling pretty good throughout the process) without those states in their DNA that don't feel so good. the result would be DNA with very few emotional states that don't feel to good, and if they did, they would transition up to better feeling ones pretty rapidly. it's a really interesting thing for me to think abuot and explore mentally. there's something I really like about the idea.
+
+---
+
+there is a problem, and that is that there are quite a few girls that are older, so here's a revised *draft* idea. I could stay here without getting connceted, and be with the younger girls. all of the rest of the girls (both young if they want and the old) can participate in a timeline version. obviously the reason why the timelines are created is because I get connected, and on those timelines, they're allowed to reproduce as much as they want.
+
+the reproduction is advantageous on those timelines because it'll increase their magnitudes, keeping this one to be the one where I'm still the least energetic (still not connected).
+
+nosebook can go for as long as they want to go for, and when they're ready to bail out, they'll have a whole lot of other timelines to choose from.
+
+we should also do the idea I mentioned in @[noseblog](2020-07-07 10:30). you can imagine that for all the rest of the people not participating in the timelines that exist with me in them, those other people will want all sorts of other timelines, most likely without me in it. for some time here, we could play the perceivers/actors game, and the actors could make the timeline that they want to make, and eventually go there to live out their reality, when they decide to depart. there shouldn't be any limits, so for example, imagine you wanted a timeline where there were no [insert some race here], then on that timeline all of those people could be terminated and the person could live in that timeline. what about without terrorists? what about without any people over the age of 35? the sky is the limit here for experimentation.
+
+the ones perceiving would, if never making their own timeline, eventually by default stay on the default timeline.
+
+---
+
+I really like this idea, and I want to expand on it further, because it solves a lot of problems, because there are a whole lot of differeing opinions about what is the "best" or the difference to the way that they want to go, and all of that can be solved in this way. nosebook I'm sure will remain in control of stuff, likely making the essentials of the planet, like the power grid and stuff completely automated and remote controlled to ensure that control is kept -- stuff like that.
+
+it may seem like a weird idea to let different people do what they want to do with their own timelines, but it'll greatly difuse desire related to certain things in society that are a stumbling block. I make it sound like it's all going to happen now, but this should be rolled out in an organised and planned fashion instead of being like a reaction to some unwanted circumstaces.
+
+I'm going to keep thinking about it, anyway :) I kinda like the idea of the girls, and I was thinking mainly because of eva here that the cutoff age should be 12, but maybe for example if she were to see me in another timeline where I'm connected, she may really like the idea of making something with a connceted version of me. what I'm saying is, the age can potentially be lowered, because I think the timeline alternative may be more appealing.
+
+there are also lots of advantages for the noseboys too -- or really any other men, but maybe women too -- out there that like to make contrived siuations arise, and get the girls (or boys) they want into the situations that they want, too[^1].
+
+interseting idea. I'm glad someone tickled my feet :)
+
+[1]: everyone has infinite versions of theirselves, and all are possible, but you exist where your reality reflects your emotional output. so, making these sorts of experiments isn't in any way "harmful" to anyone other than the experimenter. "if a tree falls in the woods, but no one is there to hear it, did it happen?"
+
 ### make more stories up
 
 ### 2020-07-13 ??:?? - vision deviod of meaning
