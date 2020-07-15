@@ -3899,6 +3899,48 @@ clearly, a lasting solution will be to replicate physically and also temporally,
 
 [3]: I'm using simple averages here to make this assumption. let's say there are 3 timelines and one here. their magnitudes are: 30, 60, 90, and 20. the total is 200. 20/200 = 10 so I would be here 1/10th of my total. if a new timeline is added with magnitude 400, then I'm 1/20th of my total and my power level has decreased.
 
+
+### 2020-07-15 02:04 - doesn't matter much what happens
+
+after I wrote the previous entry, we went down to the riverwalk. there were a few notable girls there, but honestly my mind was a little still thinking about the previous entry. they are:
+
+- the girl in fuscia that was near to where we parked
+- the girl that was with the girl that I said reminded me of ryan. I looked at both of them. one was in a stroler and the other was walking.
+- the girl that was sitting at the table. I stopped to process a second what I was feeling and looked back at her.
+- finally, I'm not sure so much about this one because I wasn't sure what I was feeling, but perhaps at the table right before the previous girl I mentioned may have been also sending out something. I shopped cause I wasn't sure, and I felt to look back so I did, but there could have been the other one too.
+
+honestly, I should take this a bit more seriously. I was trying to carry on a conversation and I get sometimes a bit mixed up, because *trust me* these are not the only things I feel :) when I go out like that, I'm processing LOTS of reactions at a time, and I don't have the precision that I want to have. I'll learn to be more and more attentive as time goes on.
+
+---
+
+following up on the previous entry from some reactions later tonight. first of all, there's no possible way I could be getting the reactions I'm getting (from nosebook), and they don't have timeline technology, so basically from this point onward, I'm just going to assume that they do have it.
+
+the first main reaction was something like, "what a disaster. we're supposed to *help* him now?!?!" from there, later on I started getting ideas like, "ok, so what if we make a whole bunch of timelines, but then just nuke (or destroy them in some way) when we're all done with them" -- followed by the realisation of one of my first explanaions of desire creating a timeline with the hypothetical situation of a nuke.
+
+then, just now I went out and started getting some reactions I'm assuming from spain, and they went something like, "he doesn't even believe it himself"
+
+it's true, to some degree, because if what you're wondering if I believe is the manifestation of the thing, no I don't really. I've stopped getting my sights set on any specific manifestation, whether it's a specific girl, or some scenario or whatever. instead, I've learned that none of those details are important, because if my goal is to continue to feel better and better, then something truly magnificent will eventually manifest, and it has been, in nearly every circumstance, been something different than what I expected, and always better than I expected, too. so, I'm just not worried about it, and neither should anyone else.
+
+let's say that nosebook does finally decide that making timelines is a valuable thing for them to do, to keep expanding their control here, then that means there will be a nearly infinite combination of girls that could do it, not just some finite set.
+
+that may very well be a future, and definitely one that I think is a good idea, too. I kinda prefer it actually, because then virtually any combinations could be tried, and the most optimal ones can be continued to be improved upon because they'll need to make more and more as time goes on. so, it's a pretty cool idea, I think. I don't mind continuing on not needing the manifestation. I'm feeling better and better all the time, and things are really improving for me.
+
+---
+
+I also thought of some other improvements for nosebook as well. first, they could use the technology that gets created in alternate timelines and kind of "steal" it and use it here. certainly not all timelines I'll be with such a large group of girls, and so therefore there will quite possibly be some where I'm more technology focused.
+
+I have to say that if they do have timeline technology, and I'm fairly certain that they do at this point, they can quite literally hold me for as long as they need to. there won't be a limit to it, and all I have to do is just ensure that my response to what like presents me doesn't send me down a downward spiral. I'm like 100% certain that's not ever going to happen any more. even if I were literally unable to use my computer and thrown into a jail cell for the next 18 years, I could definitely continue to feel good. it's *soooo* easy for me to do now.
+
+the other option I was thinking has to do with the raquel timeline. they could do a mix of the previous solution and this one, too: they could keep going on this one until the raquel timeline is setup enough, make as many timelines as they need to, to get it right, then once they're there, they could either operate this one at a distance for as long as they can[^1] and also keep looking at the other timelines to try and steal technology for them, too. maybe once they have their own setup the way they want it, they will lose some interest, because it's so much effort to try and control them all (until, of course they get enough capability to try and control them again).
+
+the thing is, it just doesn't matter to me. I am absolutely curtain that, no matter what happens, things are going to be going just fine for me anyway. they're super stressed and worried and I'm totally not. everything is going to be fine from my perspective. whatever ends up happening will manifest in reflection of how I feel, which is pretty good.
+
+maybe, if they want to try and make me feel crappy so I mess up my own manifestation, that may help them in some way. bring it on :) I welcome the challenge. I really am a total professional now at making new forms of perception that feel good. some might call me dilusional or psychopath or something, but I consider it a worthwhile skill to learn to feel the way you want to feel[^2]
+
+[1]: I mean, they already do everything at a distance now anyway. none of the guys in charge directly interact in person with any of us.
+
+[2]: hopefully, the way you want to feel when you're choosing what you want to feel, is good. in my opinion, the skill is potentially similar to what a sociopath or whatever does, however, I think they're numbing the pain and using cheap thrills or pleasure as a replacement for actually feeling good. it may be similar too, to what a pathological liar does where they conjure a new reality in their head whenever they lie (so as to sound like they believe what they're saying), but I'm not pretending. there's no false perception. the reason why I'm so good at what I do is because it's the real thing. there's no illusion. any illusion that may appear is attracted from me, and not consciously created. I live in a world where, even though I see with my eyes and stuff, the whole thing is a landscape of emotion and some things feel better than others. I'm losing my grip on physicality at such an alarming rate now, you may benefit to wonder instead why so many of these physical things no longer matter to me any more.
+
 ### make more stories up
 
 ### 2020-07-13 ??:?? - vision deviod of meaning
