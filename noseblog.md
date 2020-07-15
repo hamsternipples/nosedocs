@@ -3974,7 +3974,9 @@ I really like this idea, and I want to expand on it further, because it solves a
 
 it may seem like a weird idea to let different people do what they want to do with their own timelines, but it'll greatly difuse desire related to certain things in society that are a stumbling block. I make it sound like it's all going to happen now, but this should be rolled out in an organised and planned fashion instead of being like a reaction to some unwanted circumstaces.
 
-I'm going to keep thinking about it, anyway :) I kinda like the idea of the girls, and I was thinking mainly because of eva here that the cutoff age should be 12, but maybe for example if she were to see me in another timeline where I'm connected, she may really like the idea of making something with a connceted version of me. what I'm saying is, the age can potentially be lowered, because I think the timeline alternative may be more appealing.
+I'm going to keep thinking about it, anyway :) I kinda like the idea of the girls, and I was thinking mainly because of eva here that the cutoff age should be 12, but maybe for example if she were able to make a few different timelines and see me there with her in a connected state, observe herself too, then when sh finally has what she is looking for, she can wake up one morning and make the decision to live it out in her own timeline. she (and many others, including other women) may really like the idea of making (or watcing) something happen with a conncted version of me until they're ready o ake the plunge into the version they want to experience.
+
+what I'm saying is, the age limit for the girls here with the disconnectd me can potentially be lowered, because I think for a lot of them, including their parents, the timeline alternative with a connected version of me, may be more appealing.
 
 there are also lots of advantages for the noseboys too -- or really any other men, but maybe women too -- out there that like to make contrived siuations arise, and get the girls (or boys) they want into the situations that they want, too[^1].
 
