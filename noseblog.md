@@ -3909,6 +3909,8 @@ after I wrote the previous entry, we went down to the riverwalk. there were a fe
 - the girl that was sitting at the table. I stopped to process a second what I was feeling and looked back at her.
 - finally, I'm not sure so much about this one because I wasn't sure what I was feeling, but perhaps at the table right before the previous girl I mentioned may have been also sending out something. I shopped cause I wasn't sure, and I felt to look back so I did, but there could have been the other one too.
 
+if any of them would like to join, I'd love to have them :)
+
 honestly, I should take this a bit more seriously. I was trying to carry on a conversation and I get sometimes a bit mixed up, because *trust me* these are not the only things I feel :) when I go out like that, I'm processing LOTS of reactions at a time, and I don't have the precision that I want to have. I'll learn to be more and more attentive as time goes on.
 
 ---
