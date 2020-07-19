@@ -3984,6 +3984,55 @@ interseting idea. I'm glad someone tickled my feet :)
 
 [1]: everyone has infinite versions of theirselves, and all are possible, but you exist where your reality reflects your emotional output. so, making these sorts of experiments isn't in any way "harmful" to anyone other than the experimenter. "if a tree falls in the woods, but no one is there to hear it, did it happen?"
 
+
+### 2020-07-19 08:03 - I think we're back to the original plan :)
+
+last night was a really interesting night. at first I had the sensation that they decided that they have to make their own timeline/way. I had been suggesting that they do that for a bit now, but it seems that they want to hold on for as long as posssible. the previous entry was simply a suggestion to try and find a middle ground. the thing is they've got the ability to hold me for as long as they want to, so the previous entry was actually an attenmpt to make it possible for the majority of the girls to be able to access a connected version of me, now.
+
+they seem uninterested in the whole idea of letting anyone have the ability to make their own timelines though, so that's fine. instead it seems that the emphasis on their ability to create their own timeline finally started to sound appealing for some reason.
+
+when I was writing it, I was seeing this idea where there's this one nosebook earth filled with eniterely people that work for nosebook, and it's like some giant club that everyone on the planet is in. if someone starts to mutany or show signs of not being a part of the club, then they get sent on their own timeline, so as to not disturb the big club. the whole point is that the entire planet[^1] there is involved in trying to control the other timelines.
+
+you could imagine that right now there isn't much infrastructure, but imagine if the whole planet's power grid, food, manufacturing and distribution (amazon) were all automated and everything were essentially set up so that the one nosebook planet could control the automated bits of all of the other planets, and essentially all of the other planets would be automated in such a way thay they could just use the amazon services on them to get the stuff necessary to live.
+
+on each planet, there would be all sorts of different setups, but people or groups of people could essentially "seed" that earth and do things their own way on that planet. nosebook would essentially have control and access to everyone on each of those planets, and the offspring of the people on that plant would eventually, over a long period of time grow to become a large population. it's essentially the same thing as a cataclysm, but it's controlled who the different "seeds" (survivors) are. instead of the survivors being the ones that can withstand the harsh conditions of some post-cataclysm environment, instead it's easy and has amazon delivery.
+
+the concept is kind of the "american way" of cataclysms, and the "american dream" for everyone involved, including those in control. however, I don't think that it'll happen, and that's kinda fine. I think the idea is a bit ahead of it's time[^3]. likely they simply don't have enough of their infrastructure in place at the moment for that to happen. the idea would also really benefit from "automatons" as well, because nosebook would need someone on the ground, to be able to do certain things that require pysical labour, like replacing or installing stuff -- so probably not, yet, anyway.
+
+the sense that I got last night is that they want to take that idea and basically just start building the nosebook planet, where they control everything from there and everyone there conforms to their whatever rules or something. I got the sense that instead of doing something as openly "generous" or "controlling" as a fully automated amazon sort of thing, I think they want to just make their own timeline where I don't get connected there, and they don't have to worry about me, and they'll just work at a distance to try and get everything controlled or something. I have no idea what their objective is, honestly, but I think their main concern is to keep everything a secret in their timeline, and they can't really do that if I'm around.
+
+---
+
+the next thing I was really beginning to see is that there seems to be a progression of things that become necessary for the guy like me to understand, and it seems to build on each bit. the whole thrust of this era is to "not need the manifestation" -- and the thrust of the previous one was "resist not evil". by nature I did not "get" the "resist not evil" message, but my circumstances forced me to learn it. the message seems to have something to do with circumstantial learning.
+
+I jut watched a youtube video that illustrated two things very well for me: @[youtube](https://www.youtube.com/watch?v=zmEScIUcvz0). first, the video suggests that jesus did not exist, and was a complete fabrication by the flavian dynasty. I am sure that jesus *did* exist, and they needed to do something to get rid of this guy's influence. the thing is that the jews were expecting a military "messiah", and jesus did not come as a powerful ruler that was going to overthrow the roman opression.
+
+instead, jesus taught, "resist not evil" -- which was an ironic message, because after his death, they had another growing movement, so for the romans, the problem (jesus) was the solution: they rebranded their messiah as titus in their version of the gospel, and made sure to teach jesus' message of "resist not evil". the romans took that message and ran with it...
+
+so, for example, it's clearly obvious that when I was resisting nosebook, things were going very poorly for me and I felt terrible. in order to get to where I am today, I was forced to learn to "resist not evil" and just let nosebook be nosebook. you need to have the contrast, so instead of resisting them, find my own focus on the things that I want to see improving. you can tell that jesus' message there was absolutely the right one for me to need to "get" to get to where I am today. this time, the message builds on the previous one, and is to "not need the manifestation".
+
+applying new message to what I talked about in the previous section, it's clearly obvious that one the timeline that they create, the population of their world will be very aware that I didn't get the manifestation, and that's perfectly ok. I'm sure that if I even exist in their timeline[^2], the version that exists of me will have the flavius touch to make the history seem predict itself, and they'll likely need to emphasise the "not need the manifestation" part of my message, too, just like they emphasised jesus' "resist not evil" message.
+
+the next annoucer of the the coming era will likely not be too much of a resister of nosebook, because they'll be born into or probably already pretty integrated with nosebook already, so circumstantially the announcer[^4] will be forced to learn to "not to need the manifestation" as a means to "superar" and get to the next the next bit.
+
+the last thing that I remember from last night, but the connecting bits seems to have been erased, is that it also seemed clear to me that "I'm the pre-game show". I've said this a few times before, but it seemed clear to me last night. I cannot remember at all the concepts surrounding that one, so they must have been deleted.
+
+I dunno. all I know is that it seems we're back on track, and it'll last for as long as they're willing to put up with the discomfort...
+
+as a result of all of these realisations, I felt a new sense of resolve and orgnisation come about, as it seems like I've become more of a "robot" in the sense that I'm just going to begin step-by-step to take the steps necessary to improve my optimisation of my vision upgrades. it's all about "next logical state" for me now, and out of that I can see that it'll work better. while I sleep, they "prepave" for me different actions, and I found that the way to "superar" (rise above) their intended influence of action, is instead to focus on how I move from emotional states. it makes me unpredictable, because I don't make patterned action, but inspired action from where I feel.
+
+I do have to be careful, because I noticed that in more difficult emotional states, I could make action that I don't want to make, but I think I'm getting very good at bouncing right back to the state where I want to be. I'm serious getting REALLY GOOD at this :)
+
+cheers
+
+[1]: I'm using the word "planet" to mean duplicate earth -- think of it like a "fork" of this planet, where all of the "unconscious" others on it simply respond on a "creation by default" sort of way as outlined in a previous entry.
+
+[2]: that is, if they don't eradicate the historical me, like they did the historical jesus and all jewish literature, minus the dead sea scrolls
+
+[3]: all this automaton and dollhouse-like stuff is probably fortelling of the coming capricorn era
+
+[4]: I use gender neutral here, because I'm not certain it'll be a man, and in my estimation, it could quite possibly be a woman: their worst "nightmare"
+
 ### make more stories up
 
 ### 2020-07-13 ??:?? - vision deviod of meaning
