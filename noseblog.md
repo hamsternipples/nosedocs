@@ -4033,6 +4033,47 @@ cheers
 
 [4]: I use gender neutral here, because I'm not certain it'll be a man, and in my estimation, it could quite possibly be a woman: their worst "nightmare"
 
+
+### 2020-07-19 15:26 - don't worry; I got this
+
+in the previous entry, note #4, I postuated that it could be possible that the next announcer of the era could be a woman. I went to sleep thinking about this, because one of the reactions that I was feeling was something like, "sounds hard. why not just let someone who's motivated to do it?"
+
+well, I woke up just now with a really interesting dream that had something to do with the progress I'm making on the emotional state machine. I could see that after maybe some (5-8?) more interations, the thing I am creating is so far superior in every way that it'll be irrestisable in the end.
+
+I could see that even though right now those that I have blanketly titled "nosebook" or "THE INFECTED ONES" "THE MISERABLE ONES" or the documentary identifies as "the flavians", and perhaps in the old times they were the pharoahs or before that, the atlanians... all of these different ones are just different names to describe a worrisome form of thinking mixed with a superiority/inferiority complex. the pattern emerges in almost every place on this globe and takes many shapes.
+
+---
+
+anyway, in the dream that I had, I could see that they can't or didn't want to or didn't know how to change in a way that felt like something that was appealing for them. so, that's why I'm here :)
+
+seems that I took a few steps back, which is why I'm starting with the "resist not evil", followed by "just not need the manifestation" -- and one more which I haven't yet identified. you can see that these are just transformations on their common thoughts: "fear not evil" turns into "resist not evil" and "accomplish it any any/all cost" turns into "don't need the manfestation"
+
+anyway, what I'm creating over a large period of time and many iterations, comes from some part of me which is not really conscious here for me in my everyday human experience. it appears that a paradox is being created: in order for me to remain the fastest, I have to do the difficult steps necessary to change the rules of engagement in the human mind, and to do so, I need to create something faster than me to slingshot me into even faster.
+
+so, for a while (few thousand years I guess) I have to "turn speed into acceleration" and let them get ou ahead of me by a considerable amount. I seem to be creating some new form of human which is much faster than my own version. since it's so superior, it's completely irresistable, and the ?best? part is that even though I'm kind of creating it by being held a few steps (maybe more) behind them, this is what's actually creating the slingshot.
+
+see, the whole "problem" that they get to use all of the stuff I discover before me is actually the slingshot, and the fact that the thing I'm creating (from my perspective, it looks like a big puzzle I'm solving, so it feels more like discovery to me) is so far superior, that means that the thing that I'm going to eventually slingshot past will be a bazillion times better than the present form of the human.
+
+if I were to look at it in physical terms, probably it's something much bigger than a universe is, and it's quite likely that along the way, we'll create many new large-scale things that are bigger than a galaxy but smaller than a universe, but then finally something much bigger than the universe (cause why not, right?).
+
+while there are incremental steps of improvement I have termed "eras", there is also a large scale thing that's being improved upon all at once, and it seems to be the human race as a whole. kinda cool if you ask me, and the only thing that it requires is the "humility" of basically the most "egotistical" person allow everyone else, including those "persecuting" me, to use the stuff I come up with, first.
+
+so, while I did postulate that it could be a woman that is the announcer of the next era, it'll probably be me[^1] :)
+
+don't worry; I've got this :)
+
+something about all of this is becoming more and more fun by the day. I really am completely intoxicated with learning how turning a few "objective human rights" on their ends, actually gives an infinite source of all of the power that the person wishes to focus their attention into. if you notice, the principals all seem to have an egotitical and a temporal value in them.
+
+resist not evil, because *your* attention to the thing is actually making it bigger, but don't worry even if you do, because enventually, your perception will adjust to see that the desired part of that "evil"[^2] and its use in the bigger picture.
+
+need not the manifestation, because you slow down when the thing manifests. just keep letting the universe make it more and more of what's wanted, forever avoiding the manifestation, because if you can grow to where the manifestation does not feel like something big anymore, then it's no longer a manifestation, and it didn't slow you down. it's the only way to perpetually be out ahead of the manifestation, because you're summoned to go faster than it for it to be something that's no longer necessary. there's a tremendous amount of "entitlement" to be found here, too when you no longer have "need" of something, and they just feel normal or natural to experience.
+
+it's all good, is what I'm realising :)
+
+[1]: perhaps though, in the shape of a woman... who knows. I don't think it matters what gender it is. actually, maybe it does. this is something that's obviously fascinated me, because for example, take the difference between a sun an a planet. a planet creates things (like spores or bacteria) which leaves the planet and "seeds" other planets, while things grow and cultivate within its sphere of influence. the "offspring" of the planet could be seen as it's bacteria or spores which relocate like "seeds" (masculine), even though the idae of nurture within its atmosphere is also very feminine. however, a sun for example, also has things growing within its sphere of influence (planets), and the sun does become "preganant" with the material used to create these things in the from of CMEs, so the sun also displays both "masculine" and "feminine" principals in the same thing. it seems that all of the advanced forms (including what I know about galaxies), seem to use both masculine and feminine principals. I dunno really. as a human race, we may actually "superar" the genderness of things, because it seems like for most "lower" forms, gender is necessary. the best example I can come up with would be to say that right-left is necessary, but later, in higher dimensions, describing something in right-left terms feels like not enough detail to describe the thing anymore, which I think is kinda how gender becomes in more complcated forms like planets, stars, or galaxies.
+
+[2]: one of the most interesting things in the panel at the end of this video (@[youtube](https://www.youtube.com/watch?v=M4LRHJlijVU)), was the part where eric was talking about making a "what if" book, where he postulates as to what would have changed had some of these disasterous things *not* happened. it's a great thing to ponder, I think.
+
 ### make more stories up
 
 ### 2020-07-13 ??:?? - vision deviod of meaning
