@@ -4074,6 +4074,32 @@ it's all good, is what I'm realising :)
 
 [2]: one of the most interesting things in the panel at the end of this video (@[youtube](https://www.youtube.com/watch?v=M4LRHJlijVU)), was the part where eric was talking about making a "what if" book, where he postulates as to what would have changed had some of these disasterous things *not* happened. it's a great thing to ponder, I think.
 
+
+### 2020-07-19 21:18 - what I mean is...
+
+it's going to be next logical step before the girls things happens or I get connected or anything, which, I was thinking about in the shower and it kinda dawned on me, because I was noticing that the common thing that seems to happen with these guys that seek physical power structures, is that they always fall apart shortly. it seems to be the basis for their insecurity, unworthiness, or general low opinion of self.
+
+the reason why it falls apart is because I'm noticing that any time a manifestation happens, it's like a jump forward (or backward if something is desttroyed), and if the thing is not capable of going that speed, then resistance is created to slow it down. the effect feels like a gyroscope a bit to me. a good example of this is often times someone who wins the lottery. the jump from their present financial circumstances to the new one causes something to happen to where the financial conditions wish to return back to "normal" -- that is, if the person sees theirself impovrished, they will return back to poverty.
+
+so the same thing happens, I think with these power grabs. I think a of of the power grabs are made from a feeling of not having enough power, so just like the person who feels impovrished that wins the lottery, the one getting the power, yet feels like things are out of control, the situation wants to return back to the "normal" feeling of thing being out of control, and little by little things spin out of control again.
+
+I've been watching the "fall of civilizations" podcast on youtube, and apart from the easter island one, this is the sense that I've been getting from the romans and the mayas (I've only watched those three).
+
+---
+
+I'm really coming to the realisation that it simply has to be "next logical step" -- and every time that I smoke weed, this is the dominant thing that shows up.. getting into the centre, where there are lots of changes, but none of them are too big to destabilise the thing. even if the girls thing takes however long it's going to take, I'm convinced now that it's worth it to make sure that the whole thing is next logical step.
+
+or, as I've been getting to really understand, "next logical state" -- with the emphasis on the emotional state rather than the action or the circumstance before the next thing. I've noticed that traditionally we see steps as both actions and conditions/circumstances (best thing, right thing, etc.) before the next thing, and that's what I'm learning is really the thing that makes people freeze (mom was talking to me about freezing this morning) and not be able to go forward..
+
+we think of them as prerequisites, and almost always they're never the optimal ones, or there's always some fault that can be found in them, so taking the next logical step and making it about next logical state means your action is inspired to bring the next state you want to accomplish, and there's no reason to freeze or to hesitate, because no one other than your own state is to be taken into account.
+
+I can already hear the people saying, well then does that mean that I should just neglect X and just focus on feeling better myself... well, you're saying that you feel pretty overwhemed or something already that doesn't feel good. I wouldn't make any action from that feeling, so are you sure that's actually how you want to feel -- like you're neglecting something? wouldn't you rather feel like you're making progress/headway/improvement or whatever? make that your goal... to feel *that* way, not to get some task done. see what I mean?
+
+learning to use the next logical state has been really mind expanding for me, even though I don't yet have much proof of it's power yet, but you'll see soon :)
+
+it really is the proper way to think/feel, considering the reflective nature of reality.
+
+
 ### make more stories up
 
 ### 2020-07-13 ??:?? - vision deviod of meaning
