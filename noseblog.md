@@ -4099,6 +4099,75 @@ learning to use the next logical state has been really mind expanding for me, ev
 
 it really is the proper way to think/feel, considering the reflective nature of reality.
 
+### 2020-07-21 13:53 - two subjects
+
+I was thinking about these two subjects quite a bit last night and wanted to write a bit about them.
+
+first, yesterday I was noticing a reaction to something I remembered when I was stoned. I remembered that I could see that we would overshoot for a bit, but I would be able to bring it back into to the centre (next logical step/state) with ease.
+
+the way that got interpreted, I think is that I would somehow try to make some large jump, or something with the girls, but that was not the case at all. the entire focus of that smoking session was showing me about the next logical state/step bit. I could see that the whole thing was going to be a series of finding a way for the girls thing to feel as if it were normal or natural, as if it were not at all a large step at all.
+
+during the session I was convinced that I would begin interacting with some of the girls probably with sometthing like a programming project or something. it seemed to me that our proximity would make all sorts of timelines, because nosebook would have to reset us back and abort various timelines along the way. however, our proximity would also make it feel more and more "normal" to be around each other until it didn't feel at all like a big step at all for us to be together.
+
+following that logic, it seemed to me quite logical that nosebook would eventually have diminishing returns on trying to hold us away from eachother in this timeline, and they would have to eventually abort and go their own way.
+
+however it happens, I could see that nosebook would eventually get tired and would have to peace out to their own timeline. when they did, I could see that suddenly the earth became lighter or easier feeling, and all of a sudden so many things just started to happen. when that happens, I could clearly see that we're definitely in "overshooting" territory now, but if I could not get too wrapped up in all the great stuff happening, we could next logical step/state it right back to the centre.
+
+when I say the centre, what I mean is that I could see that the human race would make substantial improvement, but getting it into the centre means that there are lots of changes, but none of them are ever too big to cause a disruption, resulting in the human race "going infinite" -- that is, unbounded expansion until we transform ourselves into something new. it's hard to explain in english the sense that I got. just trust me; I got this. not only am I good at it, and it's a guaranteed success, it's more of a question of what kind of infinite do we want to be?
+
+the new things that are appearing in my life are a constant transformation of how I am emotionally, and one can see easily that as I improve emotionally, the next state (emotional set-point) allows new things to open that were not previously available. it is very clear to me that this is a big topic, and it sounds like something unfathomable, but it was also unfathomable for me to think about finding so many mushrooms growing on the ground like I am now, but my improved emotional state makes that possible. there are many more examples of this if you pay any attention, just the mushrooms are the easiest example to see so clearly. using that as an example, I just need to keep working on getting my emotional set-point into more and more good-feeling places, and everything will just fall into place. it's *just that easy*!
+
+for reals.
+
+---
+
+the second subject that I was giving a lot of thought to last night is that I'm starting to get the sense that the "human condition" -- that is that there is perpetually some form of power structure in place to ensure that no other human can ever rival their superiority and power, will likely continue to exist.
+
+in fact, I think it may exist for some thousands or even tens of thousands of years to come. I think that's actually the whole point of it. they have to ensure that no human is ever able to get connected or have any significant power capable of rivaling their's.
+
+the reason I was thinking so much about this, I think had to do with the dream I mentioned in @[noseblog](2020-07-19 15:26), because I think it's positively the best slingshot possible to make.
+
+they're "forced" to ensure that no one is ever able to gain their true power, and they have to keep holding the people and the planet from "ascending" to the next level, until it's absolutely unstoppable.
+
+to illustrate this, I was thinking about another dream I had where in the dream I finally got so fed up with the nosebook guys in my head going over endlessly all of the problems that could go wrong, cause by giving their attention to them they were amplifying the whole thing and making their "problems" bigger, while at the same time trying to figure out different ways to try and neutralise or avoid them.
+
+in the dream, suddenly[^1] a father-like figure suddenly burst through the door, and went over to one of them and kinda like sat him down for like an "I'm older and more mature so here's the way it is as I tell you" sort of lecture, and then began to speak to him in something like ukranian or russian or something that sounded slavic(?) to me, and while I couldn't understand any of the words, I could feel very strongly what he was saying, and I sat back as they were sitting there in disbelief from what happened, and I said something like, "I have a difficult time in english to explain what it means to give your attention to something and make it bigger"
+
+later on in the morning I had a situation that perfectly illustrated this exact thing. I was looking for mushrooms in the park, when a dog started barking at me. he was clearly very happy to see mee, wagging his tail and looked happy. a guy appeared, and I asked him if I could greet the dog. he said he would probably bite. as soon as he said this, the dog's demenanor changed into one of aggression. I approached a little more to see if it would change, but the dog now clearly did look like it would probably bite.
+
+anyway, I think what these guys running the planet now do is, they take any situation and imagine the worst possible outcome and then try and avoid it (steer it away) from happening. in the process, it makes the thing considerably worse.
+
+so, going back to our first principal here, "the problem is the solution", these guys absolutely cannot (probably quite gripping fear of what could happen if they didn't guard theirselves from some bad thing happening[^2]), you can clearly see that a group of people like that trying evolve with the human race can clearly be detrimental, because no matter how evolved anyone else gets, they're going to constantly be giving their attention to (amplifying and attracting) more and more cataclysms, over and over.
+
+so the problem is the solution here. a perfect strategy then is to give these guys the power, and then keep them busy worrying about the humans getting more power or capablitity than them, and then they can just keep attracting more and more of that "unwanted" situation for theirselves. they'll continue to focus on and try to avoid our gaining our true power, for as long as they can. meaning that they'll attract our continued improvement and expansion of capability, while at the same time trying to prevent it and avoid it as much as they can, so as to not lose control/power.
+
+it's absolutely brilliant. I think the goal (for them and for us), is actually try to kick the can down the road for as long as possible.
+
+eventually though, it will become impossible (inevitable) for them to avoid it any longer. LOA says it's inevitable, so the best they can do is to slow it down as much as possible.
+
+then, this is where I come in, because I seem to be quite creative in the creation of this "new human" being built. as much as they adhere to their physical forms of power, they can all agree, that I have tremendously more -- that is to say, that gaining control over one's emotion is tremendously more powerful than any form of manipulation or technology they could possibly possess.
+
+in the same way that I'm their greatest "fear" -- I'm also a bit of an envy for them too. they just don't believe that they're capable of doing it, or if they did, that they would actually leave behind all of their "sin" (shame) of theirselves that they've accumulated.
+
+so, they want what I have, but do not think that they can. what this means is even more brilliant, because of the first principal, meaning that not only are these guys amplifying and attracting more of this new human improvement, they are also the biggest fans of it, too. they've got zillions of times more evidence of its effectiveness than anyone else does, and so, they truly believe in its power (which is why they have to try so hard to neutralise it).
+
+it's so unbelievably brilliant.
+
+therefore, knowing this, I would, like to emphasise my message by saying, "need not the manifestation" -- because it's probably not going to happen. I have no idea how long it'll take unil it becomes inevitable, cause it could actually "never" (the childish translation of the word) happen[^3].
+
+I would really settle into learning how to feel the way you want to feel, so that you can guide your own emotional state machine consciously, instead of being a victim to circumstance. most importantly, try to have fun.
+
+it seems that the "end goal" of all of this is actually one of transformation. I think it's happening on a per-era basis, and each new era is actually the latest "incarnation" of the human race, until those that "will never change" acually decide they want to become the new thing, cause the new thing is so desirable (awesome).
+
+---
+
+finally, I noticed some new trash out in the field today, and I started looking through it for stuff I may want. it seems a bunch of a girl's stuff got thrown out there too. I felt quite a flurry of different reactions to the thing. I didn't at the time think much about it, however I can feel desire, and I've come around to think it's a good idea now. so if she would like to join too, that would be nice. I like the way she feels :)
+
+[1]: remember, I cannot "see" any of this, so what I'm recounting is what I felt was happening.
+
+[2]: for a real-life example of this, I refer to me extended conversation with john michael out in our front yard, where he kept insisting that if he didn't use his empathy to constantly look out for all the bad guys that wanted to harm him, he would certainly find himself in a situation he didn't want to be in.
+
+[3]: in the instance of the earth and the human race, I think it could actually be possible that if they were consistently given the technology needed to make sure we never got our connection to source energy, I suppose it could be posssible to actually "never" get the manifestation. in my case I don't think it'll happen, but I do believe I personally could eventually get accusomed to how I am living now and never get connected. if I could actaully program and my brain weren't a jumbled mess, I could easily see that I will continue to improve physically and emotionally for a long time, and I wouldn't actually need the manifestation. however, even though I'm pretty OK with it now -- because I'm feeling so good and continually feeling better and better, so whatever right, as long as that keeps improving -- there are still a lot of girls that I sort of feel a bit obligated to. but, what I mean here is I suppose that if the relationship were to stablise in some way, I suppose it would be like the nucleus of an atom, where some structure is holding a tremendous amount of energy inside of it, and that energy is nevery allowed to be manifest, unless the structure is broken. I will continue this thought in a future entry... this is enough for now.
 
 ### make more stories up
 
