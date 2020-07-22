@@ -4157,7 +4157,7 @@ therefore, knowing this, I would, like to emphasise my message by saying, "need 
 
 I would really settle into learning how to feel the way you want to feel, so that you can guide your own emotional state machine consciously, instead of being a victim to circumstance. most importantly, try to have fun.
 
-it seems that the "end goal" of all of this is actually one of transformation. I think it's happening on a per-era basis, and each new era is actually the latest "incarnation" of the human race, until those that "will never change" acually decide they want to become the new thing, cause the new thing is so desirable (awesome).
+it seems that the "end goal" of all of this is actually one of transformation. I think it's happening on a per-era basis, and each new era is actually the latest "incarnation" of the human race, leaving always a timeline where the manifestation does not happen until those that "will never change" acually decide they want to become the new thing, cause the new thing is so desirable (awesome).
 
 ---
 
