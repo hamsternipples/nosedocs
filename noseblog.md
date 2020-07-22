@@ -4169,6 +4169,39 @@ finally, I noticed some new trash out in the field today, and I started looking 
 
 [3]: in the instance of the earth and the human race, I think it could actually be possible that if they were consistently given the technology needed to make sure we never got our connection to source energy, I suppose it could be posssible to actually "never" get the manifestation. in my case I don't think it'll happen, but I do believe I personally could eventually get accusomed to how I am living now and never get connected. if I could actaully program and my brain weren't a jumbled mess, I could easily see that I will continue to improve physically and emotionally for a long time, and I wouldn't actually need the manifestation. however, even though I'm pretty OK with it now -- because I'm feeling so good and continually feeling better and better, so whatever right, as long as that keeps improving -- there are still a lot of girls that I sort of feel a bit obligated to. but, what I mean here is I suppose that if the relationship were to stablise in some way, I suppose it would be like the nucleus of an atom, where some structure is holding a tremendous amount of energy inside of it, and that energy is nevery allowed to be manifest, unless the structure is broken. I will continue this thought in a future entry... this is enough for now.
 
+
+### 2020-07-21 20:40 - more?
+
+I feel like I should address this because it seems to be causing some mental chaos amongst some.
+
+my criteria for saying that a girl can join is none other than a stong feeling of desire and essentially not a feeling that says something to the opposite. I don't really have much to go by on this, really.
+
+if I use abraham as a deciding factor, they have said in relation to the subject, "if it feels good, it is good" and "he wants options" and well, I can't really remember much else, but the general rule is "you can have it all" or, just let LOA work out the details, and just pay attention to how it feels.
+
+my sole focus right now is learning to navigate my emotional states using the feeling as the guide instead of the action. it makes things a bit weird because for example, today I wanted to program, but I was afraid of getting my computer shut down, and the resulting demoivation that comes from that, so I simply didn't go for it. I opted instead to watch youtube and play gems of war because those don't really cause much emotional disturbance. if mr. motor shuts off my computer at the end of a video, it's rarely too much of a disturbance.
+
+as usual jumping out into unknown territory (of not knowing whether my computer will be shut down) halts me from moving froward. I really like feeling like what I'm going to do is going to be successful, so I rarely try things that I don't feel I can get any control over the way I feel about them.
+
+originally, this is larely the reason why I abstained from involving myself with any relationship with women for the majority of my life. it's only been recently that I've got the stability that I feel like I can feel any way that I want, and no other person really can take that from me anymore. as a result, I'm comfortable now with the idea of a relationship because I'm secure that I can feel the way I want to.
+
+---
+
+how this relates to the girls, is I just don't see a problem with feeling the way I want to feel, no matter how many of them there are. to me, it's all relatively the same, and it actually kinda really inteerests me a lot because there is such a wide variety of them that I feel like there will be always so much more interesting stuff to learn and pay attention to, there will never be a shortage of things that don't catch my attention (isn't the right word... more like interest or captivate me or absorb me).
+
+as a result, because I don't really have much of a criteria other than how *I* can feel in relation to them, I think it's all good. I really do. I want to create some stuff, and it sounds like they do too. so, I think we'll just figure it out as we go. I really think the most exciting thing for me is really found in the long-term more than anything. we'll be kind of a weird village with all sorts of different types in there. it's going to be completely new, and as many as want to be a part of that, I don't really see much of a problem, either.
+
+additionally, looking at it from a purely scientific perspective, if you want to see if in just that way, we should actually be optimising for a more diverse gene pool, anyway.
+
+up until now, the only thing that has felt bad about the continued expansion has been my own logic, and some reactions from others' logic around the situation, as well.
+
+so, I don't know what to say really, other than I have had to quell my own logic this whole process in so many different ways and on so many different things (remember, for a while it really bothered me that some of them were really really young) that I don't really know much other than to say, "we'll figure it out."
+
+---
+
+finally, I want to mention that I felt a bit of a chaos around another addition in relation to something that I felt seeing a girl in one of brien's videos, which is pretty much the inspiration for this entry, and I just want her to know too, that if she wants to join in as well, I'd love to have her.
+
+
+
 ### make more stories up
 
 ### 2020-07-13 ??:?? - vision deviod of meaning
