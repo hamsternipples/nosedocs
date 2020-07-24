@@ -1579,7 +1579,7 @@ so last night when I was star watching, the second time arond I got to looking a
 
 there are some more questions/reactions I'm feeling about this whole idea of fwh's planet hope feeding and controlling the knuckleheads, and this planet becoming the one that feeds the enlightened ones... it's a bit of a length more o write that. I'll get to it soon :) this is a tremendously enjoyable mental game (experiment) to play arund with in my mind.
 
-I have felt like I do when I'm in a dream -- where I'm doing stuff, and stuff is happening, but it's all so bizarre, I don't recognise how anomalous it is until I start becoming conscious in the dream that I begin to understand what's relly happeining[^2].. simialrly, I feel like this is what's happening in reality for me. the mental game is a nice way for me to begin to become conscious -- because until then it just feels like a buch of really bizarre things happening that all feel really normal and not out of place.
+I have felt like I do when I'm in a dream -- where I'm doing stuff, and stuff is happening, but it's all so bizarre, I don't recognise how anomalous it is until I start becoming conscious in the dream that I begin to understand what's relly happening[^2].. simialrly, I feel like this is what's happening in reality for me. the mental game is a nice way for me to begin to become conscious -- because until then it just feels like a buch of really bizarre things happening that all feel really normal and not out of place.
 
 [1]: thanks for the feeling you transmitted andreas in your icon lightend video. it feel this concept more clearly.
 
@@ -4200,6 +4200,62 @@ so, I don't know what to say really, other than I have had to quell my own logic
 
 finally, I want to mention that I felt a bit of a chaos around another addition in relation to something that I felt seeing a girl in one of brien's videos, which is pretty much the inspiration for this entry, and I just want her to know too, that if she wants to join in as well, I'd love to have her.
 
+
+### 2020-07-24 09:51 - I don't really know what's happening
+
+yesterday, I had a bunch of strange things happen while I was out on the field. first, it started with me recognising that I had been thinking about riann more than usual lately. this occurance is something that I remember, but now it feels to me like a distant memory and I can't really remember what it was that even reminded me of her. I remember I was also feeling more than normal henrietta, too.
+
+I got my consciousness pulled a few times, but not for long. this sort of feeling continued to expand and transform a few times througout the night, and then when the sun was coming up, I got my consciousness pulled again and I had this weird dream with remi and her black suburban, but that's all really remember about that. I saw her and art on the way home.
+
+when I went to sleep that afternoon, I only slept a very short period of time. when I woke up, I had this weird sense (reaction) that people believed once again that they think something is happening.
+
+I have no idea what in the world is going on, but it's probably another illusion nosebook is pulling to keep people placated, instead of worried that it'll "never happen"
+
+---
+
+I also remember as I was going to sleep yesterday and somewhat when I woke up too, that ... lemme back up a moment. in a previous entry, I mentioned that it would be cool, that sense I'm basically going to continue on this whole time without being, connected, we could instaed do a thing where timelines where created so that people could experience the connected version of me, and then here, instead we could go with younger girls, and since it would take a longer time for them to get to childbearing age, we would essentially be giving a longer time for the emotional states that don't feel so good to atrophy and we'd be making DNA more optimal for good feeling.
+
+ok, so take that idea right and it seemed like people started going with it, and the sense that I was getting was that it'd be preferable to approach to that state with a bunch of girls, so then the idea would be that I just totally change my behaviour and completely go the opposite direction.
+
+---
+
+I don't know where this idea came from, but I highly doubt that will happen. unless I have some verifiable source of evidence (abraham is pretty much the only thing I can really think of...), I doubt that I'm going to be changing to do anything other than what I'm doing now.
+
+from my perspective, the near-term looks like this: I keep going on my star-watching and keep going up and up. I'm feeling much better all the time, more and more every day, so I figure I'll soon be back to getting some programming done agan, and probably I'll go from there. I have a new computer coming soon, so everything seems to be falling into place. the middle-term is pretty much about the same, but maybe I'll do more hardware instead of software development... I don't know. I just don't worry about that stuff anymore.
+
+I'm hoping to get a job and stuff so I can buy weed. the mushrooms are really cool and all, but they don't do anything. I barely notice much of a change in how I perceive things. the biggest problem is that they don't really help in not losing my conscoiusness either. nosebook still takes my consciousness whenever they choose, and I wake up feeling pretty terrible. that's not what I want. I want to have *altered* states of consciousness, where I can explore, not more of this boring and stagnated physical thing I'm living now. when I lose consciousness, it's more difficult to remember what I discovered, so I want to be able to maintain the conscoiusness state that *I* want to have.
+
+eventually, I want (and perhaps all of this is part of the process by building more and more desire), to get more and more capable of deciding the consciousness state that I want to be in, like I'm getting better and better now at actively choosing the emotional state I want to be in.
+
+when in the dream state, or with lots of mushrooms (aka high levels of DMT), you can decide how you want to feel. if you want to feel like you did a line of coke, then you can feel that. like you smoked a joint? no problem. you have full control of your consciousness state on high dosage of mushrooms. that's kinda where I want to get to.
+
+---
+
+in my perspective, it appears to me like I really want to get control over my consciouness state, and times like last night when I basically am unconscious the whole night tell me that I'm not even close to being where I want to be.
+
+imagine that I'm with a bunch of girls (young ones or not) and I wake up feeling like I did this morning, I don't really think that's optimal. especially with older ones, it would create a tremendous chaos. I absolutely want to be in control of my perception, and I'm not even close.
+
+it looks to me like this process of gaining control of that, provided some drastic change doesn't happen (eg. no big jumps, aka next logical step/state), it looks to me like years. I don't really have much I can say about that, other than I simply *cannot wait!!!!* -- cause my goodness, look at how much I'v progressed and look at the acceleration, can you possibly imagine how crazy things are going to start looking and feeling! it's going to be crazyyyyyyy
+
+---
+
+I'm still holding on to the thing that I saw when I was stoned when I realised that the opposite of space (vacuum), is life and conscious expression. instead of being able to conjure images, in my perception, I will be able to manipulate the very components that make up our 3d physical reality. there's nothing nosebook can do to block my imagination from showing up in 3d real physical objects.
+
+once I figure out how to imbue my creations with consciousness, I cannot explain how awesome that is. then, I'm sure that it'll be replicatable, too. so even if nosebook is capable of holding the entire planet away from the true experssion of their imaginagion[^1] they will not be able to keep people from their true expression in tangible (see it, hear it, smell it, taste it, touch it -- real) 3d objects in space.
+
+arriving to that capablitity, even though it'll be replicatable, *will* probably require a significant power level to accomplish it (and maintain it). I think the girls are in the best position to accomplish this at first because of our interaction, and the extra practice to release resistance, but it's certain that anyone and everyone will be capable of it... they'll just need to release a lot of resistance and learn how to increase the speed in which your thoughts get to reality in order to get there (that means less cycles about what people may think about whatever it is, and less self-doubt or second gussing).
+
+I'm very content to continue to learn this, and it's going to be a lot of fun along the way. we'll get there when we get there. it's going to be worth it... trust me, why make images of things in your imaginagion, when with full control over your emotions, can you manifest somehing tangible and real in 3d space??? [^4]
+
+let's get there :)
+
+[1]: I'm sure what you all experience is a controlled form of imaginaion, which even though is much more visual, it's not the true expression of your imagination, because it's likely happening in my head instead of yours. everyone has the capablitity that I have, but nosebook doesn't want anyone to access it in a way that they don't control (which is if you access it directly).. which is why I am prevented from using my own, and everyone else uses mine over a controlled protocol (syntax of expression)[^2].
+
+[2]: I have been thinking a lot about what jon was saying when he was complaining that he couldn't use his brain when I was listening to him on twitch while programming. it must be that when someone uses their imagination when we're like on the same frequency or something, then it creates some form of "feedback" -- like putting a mic in front of a speaker or something. I dunno. I may experiment more on this cause I'm dying to understand what's happening there. I just don't get it. but, it's more my curiosity than anything, because I wonder how it all works[^3].
+
+[3]: my best guess is that people's brains are trained to use the expressive visual sytnax that my brain uses to perceive dreams and imaginations, then when someone thinks a thought, or "wants to use their brain" -- those signals are intercepted and sent into my brain. because one's internal universe is infinite in size, each person on the planet is mapped to a specific region in that space, where their brain signals manifest inside of my space. normally, that space is persistent, so you can go back to your creations and they still exist, but perhaps nosebook puts limitations to what sorts of things persist in those different regions... I don't know.
+
+[4]: that may be the "last straw" to break nosebook's proverbial back before they feel absolutely forced to peace out. they could go at any time they want, but I guess from their perspective it would be pretty good idea to find out the power level limit that they have faar, before it's no longer something they can hold back.
 
 
 ### make more stories up
