@@ -4258,6 +4258,65 @@ let's get there :)
 [4]: that may be the "last straw" to break nosebook's proverbial back before they feel absolutely forced to peace out. they could go at any time they want, but I guess from their perspective it would be pretty good idea to find out the power level limit that they have faar, before it's no longer something they can hold back.
 
 
+### 2020-07-24 17:30 - strange reactions
+
+I woke up thinking about some of the reactions to the idea of creating life with my thuoght. I was also thinking about the fully mechanised version of this planet run by an AI where the humans are the AI's "drones" -- and is interested in our survival and well-being as a function of its own existance. then, finally some of the strange reactions to some things I said lately. I don't really know how all of those subjects are related, but I'm sure someone does.
+
+first, let's start with the dream where the guy burst into the room and spoke a slavic language to clarify what I kept trying to say with the english words of "giving your attention to unwanted amplifies it". in that dream, from my perspective, these guys were just going over and over all of the things that could go wrong over and over, and usually, I don't have vision or capability to seeing or interacting with their conversations that happen in my head, but this time I did. I even said, "if I'm here, I feel obligated to say something".
+
+anyway, nothing I could have said would have made any difference, and for whatever reason, I had to listen to them talking -- kinda like when you're in a meeting, and you have to just listen to hours and hours of a manager's insecurities rebranded as "company concerns" or some other bad name for it. I don't put up with it any more. after having been around zaryn for a long enough time, he would get me drunk and then just go on and on about all of the stuff he was worried about. it's basically one of the things I hate the most, because I've seen zaryn's "concerns" and stuff he's worried about come to manifest.
+
+I don't want to put up with that, or sit there and just listen to it, so something *had* to happen. at that moment, a guy burst through the door and gave these guys a lecture in a slavic language, which I dunno... was it serbian? I can't see anything, but it seemed like the guy had quite some stature to him. I don't know. some reactions seemed to point to this being some sort of manifestation of tesla... I dunno. I have no idea what it was. from my perspective, I was sick of listening to their worries and concerns and something *had* to happen. you can thank zaryn for my hatred of worry and concern.
+
+the reaction when I was waking up had to do with the first person perspective of which I tell that story. if it was a tesla-like person speaking in another language in my dream, I don't know how it happened. beats me.
+
+---
+
+the next set of reactions revolved around the possibility of creating real things in 3d space with my imagination. I mean really, *anything* is possible here. I could make impossible structures like the pyramids, but I think that's fun I'm sure I would do that, but not quite what I had in mind.
+
+you could see that rapidly, I could begin to create all sorts of drones, mechanical and organic which would be controlled by me. but, imagine the conceptual version of it: if I were to imagine a duplicate copy of my body in 3d space, and he were to walk, talk, and behave like I do, who is me? better said, where is my consciousness located? nosebook may be able to say, "this is the original body. we know that because it has our devices in it and we can read his body and brain signals there" -- but then, what about the other bodies that I can summon with my mind?
+
+it's pretty easy to see how I would go building up gradually all sorts of different bodies, and I could animate them and give them the life that I wanted them to have based on some sort of characture profile in my mind (much like how story-book characters can easily exist and interact with each other in your mind[^1]) -- instead of this happening in my imagination, this could happen in the physical world as well.
+
+---
+
+when I was taking a shower after I wrote the previous entry, the majority of the reactions revolved around manifesting "stuff" -- like cars and computers and things. other manifestations were around manifesting the most beautiful lovers ever before seen. I think those are very simplistc desires and stuff.
+
+it's hard to accurately articulate what all of the stuff I would create would be, but I'm certain that the whole planet would be filled with different physical manifestations of my consciousness, both mechanical and organic. I can't possibly think of it all now, but I'm sure I'll just be totally going nuts creating more and more new things.
+
+there are obviously different things that, in a sense "conflict" with what nosebook is trying to keep under their control. like, for example if I wanted to study and modify weather patterns, if I were to do it here, certainly if I were to increase the conductivity in an area, their machines would automatically attempt to neutralise it and get rid of the conductivity. I could easily create (in microseconds, once I figured out how the device operates) as many machines as I want to force the weather to be the way that I wanted it to be.
+
+the location where these two opposing forces were happening would likely have quite a bit of "bad weather" result, and instead of creating good weather, the manifestation would be tremendous storms of cataclysmic potential... so, then, you wonder, why if I could create things that my mind comprehends, why not first learn to create a planet with my mind, and learn about weather from a bottom-up approach, instead of a top-down one. why not try and figure out how to replicate an earth-like planet and do all of my experiments there, instead of trying to conflict with others here. let them run things the way they want to here.
+
+same thing with stars. as I gain more and more scientific understanding of the cosmos and how they *really* work, most certainly I would be interested in creating all sorts of new celestial objects, certainly. up until now nature has created things based on some sort of natural order of things, where one thing leads to another, but new forms can be imagined which don't have logical proceedings to their arrival.
+
+in fact, I was just talking about this with jaron this morning in the instance of villainy. in the story form (whether it's books or movies), there seem to exist these completely dysfunctional criminal organisations which are completely incapable of turning a profit in any way, and both the villans and their henchmen are complete bufoons incapble of performing some of the most basic operations, yet somehow in this story this criminal organisation exists in some form, without any logical method for its evolution into the present form.
+
+so, the mind is capable of creating all sorts of really crazy things which don't need to have had a "next logical step/state" evolution of being.
+
+I talk about this sort of thing from my perspecive, but I'm pretty convinced now that quite a few of us, if not all of us are actually going to begin manifesting our minds in 3d space. I don't know the process upon which it'll happen, but I imagine that the majority of us will become very uninterested with what is happening on this planet, and will begin spending more and more of our conscious time out on other planets and stars that we've created.
+
+---
+
+the possibiliies of what happens elsewhere are endless, but the possibilities of what happens here, still kind of interest me a bit. I imagine that nosebook will insist that this planet remains as unenergetic as possible, so following that it seems to me that probably I (because I've released so much more resistance than most people have) will likely be one of the only ones that are capable of manifesting things in 3d space here (until nosebook peaces out probably), but then I believe everyone on this planet will be able to create things with their minds in that way, and the "galaxy" being formed around us, will be composed of planets and stars that our we inhabit with our mental characters.
+
+someting like that, I suppose... who knows, because for me the proper order of things is starting right here on earth. as I continue to gain more and more power, I'll gain more and more faculties to create things, until finally I launch my first planet into space. then maybe a star... who knows... when you can make *anything*, you're not so limited to the normal order of things.
+
+however, obviously on of the first things that has interested me since I was a kid was the superhero I made, "multiplier man" -- which is a character not particularly "super" in any single aspect, but he can make as many copies of himeself that he wants. obviously for me this is the first step. there will be quite a few of copies of myself I suppose. I think the limiting factor is really the conscious "macro" perspective that I create to percieve through so many different versions of "me".
+
+---
+
+finally, I want to end on a rough note: my mind really gets racing here, because these other things that I create don't even need to have ... let me explain it like this. imagine I create a very beautiful woman. how would anyone except for those who work at nosebook capable of knowing that she's just a recent creation? they would need to look up her history and see how long they've been on the network and stuff to really know if she's a construct or not. what if she's so beautiful that they forget to do the research on her. really, *anything* could be possible.
+
+***are you ready to stop limiting yourself to just the sky???***
+
+[1]: similar perhaps to the manifestation of the tesla characer in my dream?
+
+[2]: I kinda want to do this[^3], or some variation of it just to kinda "force" them to become more closed off to anything new. they could only interact with humans that they can verify that have been in the network before 2020 (or whenever I get this capability). because, otherwise anyone after that could be one of my constructs, that they're interacting with...
+
+[3]: there are so many other more fun things that can be done, I doubt I'll waste my time with this. so probably I won't. but, who knows :)
+
+
 ### make more stories up
 
 ### 2020-07-13 ??:?? - vision deviod of meaning
