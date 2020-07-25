@@ -4317,6 +4317,54 @@ finally, I want to end on a rough note: my mind really gets racing here, because
 [3]: there are so many other more fun things that can be done, I doubt I'll waste my time with this. so probably I won't. but, who knows :)
 
 
+### 2020-07-25 07:36 - stop n go
+
+last night when I was out, I felt a bit of frustration/depression regarding my last entry, and it seemed to have to do with deception. there's not really anything I can do about that. it doesn't appear that people are interested in giving up secrets and purposful deception to hide something. I figure that trend will not change until the whole planet (including the leaders) is in perpetual broadcast mode, and we have a kind of collective memory, where I can look up certain emperiences that happened in my own body and also in the body of others.
+
+we're pretty far away from that happening, and it'll likely be rolled out primarily over time, such that the new kids will all be in automatically broadcast mode, with the adults (and leaders) remaining with their ability to hide and hold secrets. so, eventually it'll be possible to have a world where there are no longer any secrets, with all of humankind working toward the common goal of further advancement of the planet and everything we're responsible for (planet, solar system, and eventually galaxy), but this too is likely quite a distance away. things will improve, and it's just going to take some time.
+
+---
+
+back to the subject of being led to believe that things are further along, while at the same time they appear to be falling further apart.
+
+so, yesterday(?) when I could feel henrietta pretty strongly, after I lost consciousness, that went away entirely. that's a pretty strong nosebook signature sabotage for me. then, I lost consciousness again and had the dream about remi and her suburban, and then this time I felt ali(?) stronger. I also had a sense that the feeling I had of henrietta seemer to motivate in part the dream with remi. once again I lost consciousness and all of those feelings went away and I felt pretty terrible, with clouds such that I couldn't really return back to normal staring at the sun.
+
+for me, all of this is has nosebook's signature all over it. I can see now that it's been happening since lyia, even though I first really noticed it with hayden, because they turned it on and then back off while I was still still conscious.
+
+---
+
+it seems that they have both the technology to hold me "indefinitely" (in the childish sense of the word) away from getting connected, and it seems that they also have the technology to reset me back to a previous state of not feeling the connection with the girl so well. I don't really know how they do it, but the easiest explanation that seems to explain it, is they have the ability to abort a timeline that we were successful in getting together, and then put our consciousness into the one we're experiencing here where something happens all of a sudden where it seems like it suddenly falls through.
+
+the mechanism I believe they employ to do this reset back is to find a flaw in our personality -- something that makes us feel bad and throws us off of our game -- or, at least that's what I expereince.
+
+however it works -- whether it's timelines or whatever, in my experience it seems to be happening. however, I think this is actually a good thing, because it's like REALLY GOOD PRACTISE.
+
+it would not surprise me that they're not just resetting me, but the  the girls too, and exploiting weaknesses in their emotions to convince them (cause them to believe) that it's not going to happen, or whatever it is that they need to feel bad, and go from feeling the reality of it happening to the powerlessness of inability to get what they want.
+
+---
+
+I experince this all the time in my life. the easiest one to see is my programming. I can often find a way to program, but then my computer gets restarted, and it's kinda demotivating for me. the same thing happens when I'm star-watching when they pull my consciousness and reset me back energetically to a lesser state. unlike my computer, I can kind of hold on to mental state a bit even though I lose consciousness and when I come back I can resume where I left off a bit and get back into it easier than normal[^1]. so, in a lot of ways beause I can modify my mental "operating system", easier than I can modify OSX to come back to where I was easier, it's easier for me to get back to where I was emotionally and mentally during a star-watch than programming.
+
+as a result, even though I keep getting reset back, I tend to continue to have more and more progress with star-watching than I do with my programming (each reset, my code gets further and further from where I want to take it).
+
+the programming example is probably pretty similar to how people feel regarding the girls topic. however, people's perception of the girls topic can change to be more like the star-watching example. the big difference between the two, is that in the star-watching example I don't really know until the sun comes up if I've made any progress, and even then often it doesn't really look to me any different. it looks about the same. however, I trust the process of continuing to release resistance and I can see when I compare over the longer term, that progress has happened, even though daily and usually not while I'm star-watching do I actually notice any improvements.
+
+ironically, also I want to mention that because it's so difficult for me to measure my success visually, I instead measure my progress in the moment, not visually (because I can't), but instead by on how many times nosebook was "forced" to reset me, or how many animal and motor sounds are happening during the experience. meaning, that if I'm doing really well, they're definitely fighting really hard against it.
+
+sometimes, like for example last night it felt really easy, and it often times now feels easier and easier each time, which means that I was unconscious for the majority of the time, so I know I'm doing really well even if I spent most of the night unconscious and it still looks about the same, because I'm noticing instead of visual progress, how much easier it is for me. if it keeps getting easier and easier like that, that's what I'm really looking for. also, if they weren't doing that, I couldn't recount this experience as an example of how things will be as people start to get more and more the hang of it.
+
+---
+
+the last thing I want to mention is going back in relation to my experience programming. right now, because I don't yet have an effective way to continue where I left off on my programming, I find it more demotivating and counterproductive, meaning I actually go in the opposite direction of creating what I want to create, if I try to push it by trying and putting in a lot of effort. the reason why is because I'm making the effort from a position of demotivation, instead of a place of feeling like the code is "calling me" to write it. when I feel like the project is "calling me", not like it's something I have to do or even think that I want to do, then the code writes itself. it's almost effortless when that is the case.
+
+so, what I'm doing is periodically I go back to try and write some code. if it feels like it's flowing like that, then I let it flow, but if it's not, then I don't try and apply the effort because I know that its result will actually be counterproductive and make me feel worse about the whole thing because it does not appear to be (feel like it's) approaching but, actually distancing itself from where I want to see it go. therefore, because I'm not in positive territory like the star-watching example where things appear to be getting easier, instead, in order to not make things worse, I instead work on how I feel, and I try and regain that sense of accomplishment again or whatever it is that I want to feel.
+
+this is all a part of changing myself from an action state machine (ASM) to an emotional state machine (ESM), and to be completely honest, it really seems to be working very well, especially with star-watching.
+
+I let the goal be the feeling instead of the condition now and it totally works :)
+
+[1]: actually, I think women are better at this than men are, and I think that if women were to learn the technique of star-watching, they would actually be better at it than I am, because of their ability to "switch" personalities or emotional states or whatever it is that they do... a good example of this is esther finding so quickly abraham. it would take me a lot longer time, so to do what she does, I would have to essentially work my way up so that the difference between normal operation kenny and my source was so little, I could get there pretty rapidly -- which is in fact, what I'm working toward :)
+
 ### make more stories up
 
 ### 2020-07-13 ??:?? - vision deviod of meaning
