@@ -4538,6 +4538,73 @@ as things get worse (from their perspective), but the symbolic representation im
 
 that's good for now. I have more thoughts, but I'll let them develop a bit further first.
 
+
+### 2020-07-27 13:13 - why do I want to give them tips?
+
+I've come to appreciate the contrast more than you can understand. it's common thinking for someone to think that you have to resist the unwanted aspects of things, but I have learned that it's all a part of the process. resist not evil.
+
+it's actually a bit of reverse logic as well. they seem to have been notoriously resistant to the ideas that I write in here and have only wanted to do the opposite of them, or consider those ideas the worst possible thing that they could do -- because aferall, why would I give my enemies solutions to their problems.. or maybe, they think that it's not a worthwhile thing if it's just given to them. they feel they need to "earn it" by acquiring it through devious means.
+
+so, worst case scenario, they think my idea is something they don't want and reject it and they end up creating their own reality that doesn't feel so good. or, if you remember the pattern of the eras, they are one era behind, which means that they're in the process of acquiring the ability to "resist not evil" which means life is giving them multiple opportunities to resist not the things they perceive to be unwanted.
+
+if they do take the technique of indirectly perceiving our realities, that means that they can go further into hiding and lastt for a longer time without attracting disaster for theirselves. this is super good because the amount of extra energy it would provide is tremendous.
+
+I am skipping a bit though, because when I woke up this morning (or maybe it was yesterday... can't remember), I noticed that if they were able to find a way to peacefully exist here and not attract certain destruction for theirselves in such an energetic environment, then that means that the environment could be more energetic. it also means that the girls thing *could* still happen with them still here, too.
+
+this is perferable, because of all of the extra energy. it's possible that technically they *can* hold me indefinitely, and that their desperation is only evidence of directly perceiving the things that are considered unwanted.
+
+this is perfectly normal. for example, this is precisely why I don't watch the news. I am aware that there is a total clown fiesta happening in the presidential elections, and that the coronavirus exists and is presented as a very real thing, but for me, neither of these are that real, because I don't perceive them. out of sight; out of mind. you will notice that when I do go somewhere and the news is on or I'm on a confrence call and we talk about the coronavirus, then all of a sudden that creates a ton of chaos, because now I'm more directly perceiving the things that for me are unwanted.
+
+---
+
+additionally, in the long-term, if they can find a way to hold on and not create their own reality by observing and giving their attention to what's wanted, which creates a not good feeling, which then in-turn creates a not good reality in resonance with that feeling, then they can hold on for much longer.
+
+if they can hold on for a lot longer, then that means I'll be able to continue to (even though I can't see my imagination) get better and better at creating real tangible reality instantly with my mind.
+
+that really is the reason why I want them to stay so badly -- because they provide the necessary components to continue getting more and more DMT in my head. if they weren't doing what they are doing, because I'm getting basically to having smoked DMT levels of DMT, naturally by releasing resistance, all along the way, I wouldn't be able to get it nearly as fast because the majority of the time I would be seeing fractal patterns as my brain takes a bit to get up to speed with the new levels of DMT. instead, all of those fractal patterns are removed for me, so I can focus on the important part of continuing to release resistance and raise the frequency of my perception, which makes more DMT...
+
+...which normally would cause a fractal pattern, but I don't see it, so I can instead increase the speed of my perception further, which increases DMT, which would create a fractal pattern as I get up to speed with it, but I don't see it, so I can continue to get more speed increases. this is why I can get so many so rapidly nowadays, because I'm already pretty much up to speed with the increased perception. in the past, when I saw lots of fractal patterns, the star-watching was pushing me beyond my speed (hence the fractals), but now, I've released so much resistance, that I'm actually so far behind now, that just relaxing a little bit and I can get upgrades nearly effortlessly.
+
+---
+
+I think it's possible to "have it all" -- but that really depends mostly on nosebook more than anything. whether they make their own reality or not, for me is inconsequential, because I'll continue on perceiving more and more improvment all the time. however, if they stay, they are an enormous booster for me, because their effort to keep my imagination from showing up *is* the reason why I'm gaining so many levels so rapidly. so, if they can technically accomplish that I still don't get an imagination, then like now, my vision upgrades will continue to accelerate.
+
+the only thing they can do to stop that acceleration will be to go somewhere else. they can slow it down by perceiving it less (that is amplifying it by giving their attention to it). if they were to go away, that acceleration would slow, but also their own acceleration would also slow (which is why they want to stay). what I mean is, they depend on my conintinued presence for their continued expansion, and I depend on their continued presence for my continued expansion, too.
+
+it may be advantageous for both sides if they were to take a step back and perceive a little less what they don't want. this will happen naturally, but, in my opinion, if they're smart, they would turn off the kenny news and stop amplifying that disaster.
+
+did you notice how the more I watched the presidential elections, and the whole politics thing in general, the worse it got? when I finally gave it a rest and stopped watching the news, it certainly continued on getting worse and worse (it had a lot of momentum), but that momentum did start slowing. also, have you noticed that every time that I gave my (brief) attention to the coronavirus, it seemed to suddenly make a resurgance when before then it semed to begin to wane a bit? I noticed quite a similar thing that happened when abraham would give their attention to various troublesome subjects in the abraham-now broadcasts, too.
+
+---
+
+my point is here is that if we accept that resisting evil (giving attention to unwanted) only makes it bigger, then maybe we can be more selective of what we give our attention to.
+
+this will happen naturally I think, and as nosebook begins to make the correlation of the different symbols that strong reality creators "notice", and the corresponding reality that manifests later as a result, they may see that there is some merit to this whole thing.
+
+however it works out, I would guess that the way this is going to work out, is that nosebook does not want to create disaster, so they'll find their way (whether it's with timeline tech or not), to the way of not making a disaster manifest. they absolutely need me to continue their own expansion, so they'll have to find a way to let that happen too.
+
+all in all, what I think will happen, is that nosebook will find a way to entrench further to try and remain more and more hidden. in the process, I'll continue to gain ever more capability to manifest my thoughts in my reality more more and more rapidness, and as I care less and less of what others think, this process will happen more and more easily whether others are perceiving it or not.
+
+I would even go so far as to make the bold claim that because of the reasons mentioned above, I think the girls thing *will* happen, they'll be able to mitigate the effects of the rising energy and not avoid disaster for quite a long time.
+
+I also think that if you guys think that things are really weird now, they're only going to get weirder and weirder until nosebook finally peaces out, then they'll transform from really weird feeling into really smooth feeling (effortless), but then, without the constant constrast, the expansion and effortless will wane into boredom.. at which time, I'm sure we'll (or at least I will) find a new body on nosebook's timeline to continue on the expansion process.
+
+I have no idea when they will finally peace out, and I have no idea if they'll peace out consciously or if they'll do it by giving too much attention to something unwanted. if I were them though, and I say this becauze it's more energy in the long-term for all of us, that they continue on and begin preparing a timeline that contains the stuff that they want and consciously move to that one, instead of resisting evil and unknowingly create something unwanted.
+
+I actually hope they can figure out how to not mess this up (not the best choice of words, but I can't think of better ones right now) because all of our continued acceleration of expansion is because of their presence. if they were to go away, we wouldn't experience that expansion, which is why I anticipate that I'll follow them on to their new timeline, to continue the exansion. also, I noticed that each time it gets easier and easier, so eventually, it won't be such a big deal to "start over" on a new timeline again.
+
+further, if I were to make another "prediction" here, I doubt it'll happen this era, but in an era to come, I'm sure that eventually nosebook will eventually figure out how to for-reals capture me indefinitely without shooting theirselves in the foot in the presence of ever increasing energy.
+
+in that case, that's a weird kind of infinity because it means that we've reached some sort of equilibrium where neither of us ever get the "manifestation" -- but both are improving and expanding at an accelerating rate. I don't know if that's possible because it basically means that -- in the example of frequency, things ebb and flow, so you breathe in and you breathe out. this would be the way that I imagine source energy to be, where it's *only* expansion. it's like only breathing out, but made possible if you were to have an inexhausable supply of air to breathe out.
+
+oh that totally answered my question I had a long time ago where I postulated that there was something for source energy, like source energy is for us -- meaning that if source is only expanding, that means they would have had to tap into an inexhaustible source of energy for that to be possible.
+
+that means that for them, they too, never accomplish the manifestation, because that would be the end. by never accomplishing the manifestation, there is continued everlasting, eternal, infinite expansion.
+
+I just realised that's where we're heading!!! once nosebook gets their act together and learns the things that these eras are teaching for continued everdlasting expansion, neither of us (me or them) will ever get the manifestation, which means that all of us likely will, after a few more eras, eventually become the new source energy of the next universe. woah :)
+
+I guess it's something to look forward to :)
+
 ### make more stories up
 
 ### 2020-07-13 ??:?? - vision deviod of meaning
