@@ -2274,7 +2274,7 @@ I hypothesise in this science that *all* cultures and other large groups of thou
 
 I believe the easiest example I can use here will be one of the difference between the human and its cells or the general and the army. as a soldier down on the battlefield, you're in the nitty-gritty of the battle, or the hardship of being without supplies or whatever -- however, to the general, all of these microorganisms are just little bits accomplishing a larger goal; the nitty gritty details of the individual microorganisms are not perceived by the general.
 
-likewise, in your body, there are millions of cells in battle, trauma, dieing or whatever at almost any given moment in time, however as the human, you will only feel sick or healthy (and some gradient inbetween). just like the general of the army directing the macroorganism, the human, in the same way does not perceive each of the individual battles and conflicts that its cells are engaged in.
+likewise, in your body, there are millions of cells in battle, trauma, dying or whatever at almost any given moment in time, however as the human, you will only feel sick or healthy (and some gradient inbetween). just like the general of the army directing the macroorganism, the human, in the same way does not perceive each of the individual battles and conflicts that its cells are engaged in.
 
 #### the primary function of the consciousness unit (macroorganism) is to ensure its own survival
 
@@ -4476,6 +4476,67 @@ I wish I could explain better. it's so wonderful knowing that nothing is going w
 omg. so cool!
 
 
+### 2020-07-27 07:11 - another option
+
+some of the reactions I have received are that I'm not eating psylocybin mushrooms. to that, I say, "bring it on" :) if someone gets me, or somehow there is a thing like in spain "psycodelice" where I could buy enormous boxes of mushrooms, I'll take the psylocybin challenge and eat *enormous* amounts of mushrooms just to show you guys that once you have a ton of DMT in your head from releasing a lot of resistance (eg. your brain already runs at a rapid rate), then the mushrooms have a nearly negligable effect.
+
+almost never when I'm looking at a light do I get the sensation that there is a fractal pattern in my eyes (it's happened once when I had the THC eyedrops). this used to happen all the time when I would watch stars. it shows up for me like a circular flashing of darker lines around the star when it happens, so I usually know when the fractal patterns are showing up, and they almost never happen.
+
+when terence recalls the experience of what it's like to smoke DMT, he says that you have to take a huge puff and then hold it for as long as you can (to let your lungs absorb as much DMT as possible), then you will begin to go through a fractal pattern he called the "chrysanthemum" until you finally break through into the other side into a another world where you're able to perceive energy and communicate with them in this sound frequency way and create objects in space.
+
+well, the most important thing that I came to realise over the last few days is that when your brain is running at a lower speed than the signal that is entering your vision, you will see a fractal pattern, and that fractal pattern is the extra information overlaying itself in a circular parabolic shape (just like your eyes/vision is). it's just the extra emotional information that's missing now from my perspective. I lost it somewhere in val verde.
+
+if you think of a video signal, you have to essentially divide the signal into "frames per second" -- meaning that if the signal is running at 30 frames per second, then the signal is divided into 30 parts per second. if you have some extra information like closed captions or something that is added to the end (or beginning of the frame), that's what I'm talking about...
+
+however, unlike closed captions, imagine that if the image data is let's say 100kbps, that you would see normally in 2d vision, then you add in spatial data (to make the image look 3d/spatial) and suddenly that data, let's say because your vision also improves, is now 150kbps, but the extra spatial data is another 300kbps... now your brain is receiving a 450kbps signal, but it's still running at 150kbps. there seem to be other factors involved as well, like the frame rate goes up significantly as well so say it also jumps up to 60fps too, so all those numbers are doubled..
+
+anyway, your vision is getting double the number of frames and a whole lot of extra (spatial) information. until your brain catches up to that new frequency, your brain doesn't discard that extra information, it continues to display it, but the extra data overlaps the previous frame and you will see these brighter spots showing up in the shape of a chrysanthemum flower -- which is an organic represenation of the parabolic shape of the eye.
+
+so 3d is normal vision. when you add in spatial information, this is what I call 4d, and you get the ability to see images in your eyes spatially. I'm not really sure when it happens, but I believe a bit of emotional (conceptual) information is also in there as well, but nosebook discards this when they retransmit it and only send the image data. if they sent all of the data, or you were directly connected, the amount of data entering your vision would be overwhelming and it may cause serious injury or death if you felt like you couldn't handle it.
+
+this is why often times people feel like they're dying on mushrooms, because all of a sudden the extra DMT is putting so much extra information into your vision that you feel so much like you cannot handle it, and so if feels like you're dying.
+
+anyway back to smoking DMT... when you smoke it, you are unnaturally putting lots of extra DMT into your system, and so it takes a bit for your brain to get up to speed with the amount of information that it's receiving, so before you break through to the other side, your brain is just adjusting its frequency up to the freqency of the new quantity of DMT.
+
+in the case of nosebook, they can't possibly have people who want to see through my eyes going through a fractal pattern every time before they see it, so they have to artificially simulate your pineal gland to produce more DMT, so that you run at a frequency fast enough to see it without a fractal transition period. this frequency is only a fraction of what I should be experiencing (but neither experience it) though.
+
+instead of actually seeing the speed at which I should be seeing (the extra DMT should tune my brain to go at a much much more rapid speed), instead I see the image that they put in my eyes, meaning that even though I should be going at a very rapid rate, my brain instead runs at the speed of the image that they put into my eyes. essentially, they're constantly limiting me to a lower quality experience.
+
+a while ago, this really pissed me off, because I want to actually have the full experience, esecially if I'm going to be with the girls, but after a while I realised that by forcibly slowing my brain down like that, I don't experience the fractal pattern and other things that would limit one to stay around longer in that visual quality for longer. instead, I'm constantly wanting to improve my vision. I see things blurry, but they are clearing up slowly. I do see much better now than I did some time ago. I'm incentivised to keep going for the improvement.
+
+for this reason, because there's nothing I can do about it or to try and change it, I've come to just enjoy this as a time of expansion. while they have my eyes focused in this way, it naturally benefits the expansion experience and allows for much more rapid expansion (remember, the manifestation always slows you down). this is why you'll hear me saying things like, "I can't wait to see what my vision looks like in a few years" -- because I can't :) I've fully accepted my predicament as a time for expansion. the only thing I can do is to expand as rapidly as I can. nosebook can do whatever it is that they want to do. I don't really mind.
+
+for me though, I really am enjoying seeing the constant improvement, and I kind of actually wish they were able to hold me indefinitely, because even if they were, I'm getting to the point that even what I do see, even though it's blurry, is still so much more than I used to and is still quite impressive. I'm really enjoying seeing it constantly improve, and I really wish they could actually hold me longer.
+
+---
+
+this is why it's kind of sad for me to realise that they're getting desperate and are showing signs of desperation, because that means they can't keep holding me.
+
+the first was how the fractal pattern emerges, and the second major realisation that I had these last few days is that there is a natural cutoff point that will occur. nosebook has more data than I do on this one, but I would imagine that they have been noticing an increased correlation that reality is beginning to manifest more and more rapidly, and it seems to have to do with their perception upon my experience.
+
+the cutoff that will occur will happen naturally as the amount of DMT continues to rise and instead of thoughts becoming manifest in my eyes as a fractal pattern, instead thoughts (my own and others) are becoming manifest in my experience as real tangible things. my reality is starting to become more similar to the dream state where things manifest more and more instantly. this will continue to happen more and more rapidly as time continues, and there's nothing that they can do about it. if they try to fight it, it'll just make it worse, and the natural cutoff will happen more rapidly.
+
+the natural cutoff will happen when people who don't have such good feeling thoughts begin thinking and manifesting in my experience. if those things are things that are compatible with me, like tarantulas (I'm not really scared of them that much), then those things can manifest just fine and although it's a bit of a bizarre experience for me, it's perfectly fine and doesn't really affect my expansion. for example, even though the mosquitos appeared in my experience and I did say they were annoying, you will notice that they didn't make me feel bad at all. the way I felt remained pretty constant.
+
+however, imagine that someone were to give enough attention to something incompatible with how I feel, that the incompatible thing were to manifest into my experience. it woulr create a natural time split, because I would not experience it. they would because they would be creating their own reality by the things they're giving their attention to, and I would be creating my own reality by the things I'm giving my attention to. those two realities would be very different. this is what I mean by the natural cutoff.
+
+---
+
+so, I was thinking about this yesterday in the shower, because it felt to me like nosebook doesn't really want to head off into their own created reality (of awful feeling things manifesting in my reality) yet, and they don't really want to give up on trying to control my experience either.
+
+a compromise could be made, so that if they indirectly perceived my experience, they wouldn't be directly manifesting their own crap they imagine in their minds (but don't feel the emotion of it because nosebook deletes all of that data) right into my experience.
+
+a way of inderictly perceiving the experience would be to make some sort of symbolic language... think like the matrix. you could look at the symbols on the screen and know what is happening without actually perceiving the thing.
+
+symbols are shorhand for situations. a situation is an action and some conditions which are present where the action is taking place. as a result, these symbols need to describe two things: the surrounding conditions (location, lighting, feel, mood, etc) of the situation, and the symbols need to also describe the action itself. obviously not all of the data is important, so just the stuff that's important should be conveyed, so some sort of selection process needs to take place where the perceiver of the situation symbols can give feedback as to what is important and what isn't.
+
+probably there will need to be a transition phase where the situation is perceived, and already nosebook has the data of how the perceiver of that situation has processed it, and then they can directly take that data and turn them into symbols. so let's say that the perceiver -- let's just use mr. motor here because I can definitely tell when he drops what he's doing to instead try and micromanage my situation. he should be able to switch back and fourth and give some sort of feedback as to what was important or something that wasn't actually important.
+
+antoher thing too that could help is to, instead of jumping into my experience in real-time, instaed give that feedback in a replay -- after it's already happened, so as to not really affect the outcome of the present situation.
+
+as things get worse (from their perspective), but the symbolic representation improves, then he could be limited more and more from perceiving my experience directly, and spend more time indirectly perceiving it.
+
+that's good for now. I have more thoughts, but I'll let them develop a bit further first.
 
 ### make more stories up
 
