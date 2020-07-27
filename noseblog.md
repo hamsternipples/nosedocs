@@ -4422,6 +4422,61 @@ finally, I want to mention that last night I was reminded of a girl that jaron s
 
 also, yesterday when I was walking back home I saw a woman in the garage, which I have to assume is the daughter of jane kimble(?), and she seemed to want to remind me of something. well, ever since jane mentioned that her daughter (and I'm assuming granddaughter) were living with her, I sort of made the connection and anticipated already that it would happen eventually, so yes of course, if she wants to join, she's more than welcome :) last night, for the first time I felt her strongly. I like how she feels :)
 
+
+### 2020-07-26 17:08 - so, this is goodbye
+
+@[youtube](https://www.youtube.com/watch?v=cUijIydN8t8)
+
+I just woke up from a dream where it was obvious that the k-train was heading to a new reality where your thoughts become manifest into reality at an increasingly more rapid rate. the people who don't want that and are like the illusion (and privacy) that the imagination provides will stay behind... let me explain.
+
+when I was writing the previous entry, I had a growing sense that those in charge would, instaed of letting me get to where my thoughts begin to become manifest in 3d tanglible reality, allow the girls thing to begin happening now, and everyone can continue to enjoy my imagination for a longer time.
+
+however, when I woke up just now, this was not the case at all. it appears that we're at an irreconcilable impass, and they simply cannot allow that to happen. as a result, eventually I will get closer nd closer to where I was last night where my (and others) thoughts in my head were beginning to become manifest nearly instantly, almost as if it were a dream.
+
+this is a natural separator between the "dimensions". I will call imagination 4d, and I will refer to the instant manifestation of thoughts and emotions into tangible 3d space, 5d.
+
+the reason why it's such a perfect separator is that let's take the gun thing for a moment. I'm certain that I will not be shot. I am so certain that not only am I really good at this, I'm so good that we're looking not at if I get it into the zero point, but what kind of infinity do we want it to be.
+
+so, imagine that something happens like last night, and I'm on shrooms again and some dude is shooting his gun again. a bunch of people will likely be inclined to "fear the worst" or "worry that something bad will happen" -- and in both cases, the worst case scenario will play out in thier minds and then at some point, that reality *will* become manifest. while I do not experience that becoming a reality, cause for me, it can't, the illusion of your imagination will separate these two dimensions, with one existing in the manifestation of thought into tanglible 3d reality, and the other will continue on as the illusion of imagination (that is it is shown without all of the extra emotional information encoded into it, the image will be seen without any recogniion of the reality of the feeling associated with that image).
+
+becsuse the imagination does not in itself contain the emotional information associated with it (nosebook deletes this when they "decode" the image that my brain returns from the signals put into my head to be made manifest), then you do not feel the full "emotional" (conceptual) reality of that image in its truest form, so the only thing you really have to go by, is your own emotions there. if what you see feels good, then it is good, but if it doesn't feel good, then it's not something you should continue to visualise because it'll become reality.
+
+I'm not saying that I'm necessarily going to get shot, but that really was a kind of good example. it could be anything really. whether it's soon, or it's something that happens over a longer period of time is really not up to me. I'm just going to keep going and doing what is natural for me. I want to learn how to manifest my thoughts into 3d space. I'm not at all scared, but since they're manifesting more rapidly on shooms, I'll be paying extra care to give my attention to only the things that are wanted.
+
+nosebook's job, to try and keep me disconnected is to try and get me to perceive things that are unwanted, to try and slow me down. however, the joke is on them though because instead of just perceiving those things, instaed they're becoming manifest. it really wouldn't surprise me that a lot of the chaos that I experienced last night happened as a result of them trying to put ideas into my head while I had lots of DMT, and those ideas conceptually started to manifest. like for example, they probably try to tune to me irriation and annoyances, so mosquitos manifested and got worse the more attention that was given to them.
+
+---
+
+ok, now real talk. I'm pretty sure that this is going to continue to get worse and worse as we go along. it's not the mushrooms. this will start to happen more and more frequently as the DMT levels in my head continue to increase -- and for those using their imagination in my head, in order to be able to see the image, nosebook must keep your head at higher and higher levels of DMT too. certainly not as much as mine, so reality won't become manifest quite as fast as for me, but you will definitely start to notice your emotions become manifest more and more rapidly into your experience.
+
+the real question here is to shoom or not to shroom. the cutoff point that I'm talking where the illusion manifesting in your imagination becomes the reality that you live, meanwhile the reality that I perceive will be different -- is rapidly approaching (at an accelerating rate), and if I stop eating mushrooms, it could slow that down a bit, but it will eventually happen. there really isn't any way to stop this. you can use my imagination and see its images for quite a long time, but without the emotional or conceptual data associated with it (what shows up as a fractal pattern in your vision until your brain is up to speed with the signal and can receive the emotional/conceptual data as well)... however, eventually, perceiving any image that you conjure without being aware of how those thoughts really feel, will eventually cause something in resonance with how that feels to manifest in your experience.
+
+you could call this a timeline split if you want, but it's more like an explosion as so many people begin to live out the reality that is reflective of how what they're imagining feels. in my opinion, nosebook still has the option to create the timeline that they want, and some may very well do that, but the majority will be in "creation by default" mode, and will just accept the "worst-case scenario" imagined (and amplified by giving their attention to it), reality that someone at nosebook is sure to manifest.
+
+so back to the question: to shroom or not to shroom. if I continue on with the shrooms, I'll likely gain levels at an increasing rate (actually, I was in some ways far more effective sober and made more progress while sober, than I do on mushrooms). if I go sober or stop star-watching completely, then it'll take a longer time but it's sorta like pulling a band-aid off as slow as possible.
+
+I'm really liking the mushrooms because they're so much more fun than my everyday experience. I would really enjoy a break from the everyday experience and that's why I want to smoke weed so bad, because it's not terribly fun, otherwise. so, if we wanna go the sober route, I kinda want to take breaks from it and smoke weed from time to time, cause otherwise significant amounts of aggitation seem to build up -- and I love smoking weed cause it's so much fun for me to do from time to time. it's not sustainable to do for any length of time, but it certainly is a nice break.
+
+however, knowing what I know now about the mechanism that DMT has for creating reality, I'm more inclined to instead of needing a break, learn to use that reality creation mechanism to continue amplifying what I want. eg. start manifesting more and more mushrooms, which means eventually, I'll probably learn to grow them, because I've been noticing by studying the rain and the cold's effect on water conceptually, and I think I figured out the energetic trigger for their growth, so I can probably grow them pretty easily in non-sterile conditions, just like in nature... oops derailed.
+
+so, learning all of that does sound interesting to me and I totally want to learn how to grow shooms. I'm really going to enjoy this next time of learning from the mushroom. you can tell, that they have activated something that was pretty dormant in me. sure, it's not fun and feel good like weed or MDMA, but this is the work of learning how to become a reality technician.
+
+it seems to be right on the path toward what I want, because the more I learn from the mushroom and the more proficient I become at creating my own reality, the sooner the girls thing will manifest too.
+
+to be quite honest, I really like the idea of slogging along with you guys and dragging this out for many more years, but I'm quite ready to start the girls thing up pretty soon here and I think I like that idea more. nosebook can create the reality that they want to create. I really like mushrooms and it's something I've been wanting to do for such a long time now, that is likely (who are we kidding, right) the direction that I will go. the mushroom route was provided for me naturally (not forced), and even though it's not nearly as fun as weed or MDMA is, its effect seems to have a lasting and definite effect on my perception. weed and MDMA (for me anyway) are not so persistent, and they seem very heavily influenced by the environment, yet the mushrooms seem to be exactly the opposite, as instaed my thoughts while on them heavily influence my environment (instead of the environment heavily influencing my thoughts).
+
+for me, the rate at which I'm learning is going so fast, I just want to go go go. I really really really want to start the girls thing too. for me, it's kinda like the k-train is leaivng for 5d soon, and if you want want your thoughts to begin manifesting in 3d space, you'll come right along, but if you like the privacy of your imagination and don't want to continue on further, that's all perfectly good just as well. you are where you are, and where you are has to be ok, because it's where you are.
+
+as I wrote that, it occurred to me, that there will always be infinitely more things more and less perceptive than you. you are always at the centre of your universe, and in your perception, you always change to be a repeat of the same thing you last were, until you transform and transformation happens when you gain a broader perspecive; a new macro perception where you perceive a new collection of bits in some form of organisation that provides that new macro perspective.
+
+I keep getting these glimpses of how the structure of things deermines its form of perception while at the same time being a part of that since stream of consiousness: the source of perception for all structures that came before it, and everything similar to it. the perception of the whole universe is contained within that "source energy" and all of us are that ... abraham says "extension" -- and I get why, because it's hard to express that word in english. it could be said that you (all of us -- even the ones you don't like) are an expression or a facet, or the lastest version of the perception in resonance to the form of that (source) energy. it's so cool.
+
+I wish I could explain better. it's so wonderful knowing that nothing is going wrong, and there are no "bad guys" and that all reality is just a reflection of your form of perception (that is, your interpretation of that energy) as perceived by you (resonant with you) from within your form (and resonant with your form). your form is your human body.. so like your current DNA implementation. you really are a product of your own perception, and a reflection of how you perceive the world.
+
+omg. so cool!
+
+
+
 ### make more stories up
 
 ### 2020-07-13 ??:?? - vision deviod of meaning
