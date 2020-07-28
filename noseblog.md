@@ -4605,6 +4605,47 @@ I just realised that's where we're heading!!! once nosebook gets their act toget
 
 I guess it's something to look forward to :)
 
+
+### 2020-07-28 14:21 - the subtle art
+
+I can't really sleep, and I wanted to write earlier, but now I have a subject to write about...
+
+jaron showed me a picture on facebook that was some sort of informational thing called "the subtle art of not giving a fuck". it reminded me of a stream I watched earlier from slysssa where this guy, jake(?) or something was trying to apply makeup to her.
+
+at the end when he finally said he couldn't go any further, she concluded that makeup and makeup artistry is any artform. I never really thought of it as an artform. for me, it's a just like any other mechanical process where you start out not very good at it, but you develop your technique and you get better at it.
+
+a lot of people in her chat were quoting bob ross and I think that was quite apt, because when he was trying to apply eyeliner, I was thinking about my sister melissa and how she does her eyes, and she darkens the edges to make them stand out.
+
+now when I used to work on the firearms mod, the common thing to do when skinning the model, is to lighten the edges, because the steel is dark, so to show use or shinyness, you lighten the edges.. like so imagine the clip for the ar-15 or m-16. it has slight ridges in it, so these indentations get darkened to give the illlusion of shadows and the sharp edges get lightened to show that they've been handled enough to lighen the edges.
+
+I was kinda realising that makeup is pretty much the same thing. you're accenting the shapes you want people to see more to give the illusion or sharper or more rounded edges.
+
+anyway, so these sorts of things, like skinning a 3d model *is* considered by some to be art, and I guess I agree, but it's 99% technique to make it so that it doesn't look terrible, then the last bit is what you do with it. if it's a 3d model, it needs to look good enough that people aren't distrcted by its terribleness, but then you need to put the model in a pose or a scene that actually conveys an abstract concept to the viewer. the scene should give some sort of illusion... whether that's mountain feeling, cold, warmth, fear, pain, etc.
+
+for me, when it stops becoming a mechanical process and becomes an artform is when the thing, whatever it is conveys or produces an emotion in the viewer. cosmetics is probably intended to be that way, and that's what I'd never really thought about before today. cosmetics is there, I think to accentuate and hightlight things so that people perceive or recognise a beauty there that was more difficult to recognise otherwise -- I think.
+
+anyway, one of the things that I really liked about the rob ross series is when steve came on, because he is really mechanical, and would talk about the process of painting in a more mechanical way, and what was interesting to me is that his entire message was that once you start to get the hang of how to make the simple shapes and turn them into something that gives an appearance, then that makes you *feel* a certain way. he always talked about how the mechnical process of painting was such a great way to produce emotion in yourself and to build confidence in the mechanical process as a means to making you *feel* like you can create anything.
+
+steve would, in every episode I saw, would chide his father a bit by showing that he didn't need a reference piece, and could just do all of that painting in the moment of inspiration without needing to copy something. he seemed to constantly make a contrast of how his father was a slave to upholding some sort of image, where as he could just decide he wanted to do something, and there it was ... a big tree or whatever, whereas bob always had to make "big decisions" -- which was ironic when he had his decisions already made in the reference piece off-camera.
+
+it seemed to me that the message that steve was trying to get me to hear was that you just have to go through some of the mechanical motions for a bit and build your technique, and then you build a confidence in yourself and your ablities enough that you can essentially freestyle and do anything you want, and you don't need to follow a formula or copy an existing work.
+
+clearly, slysssa does this in battlegrounds, so I doubt we disagree on this, I had just never really thought about it as a form of art before...
+
+anyway, now back to facebook. the idea of "not giving a fuck" for me is prohaps a bit mechanical as well, and so again I do not consider this any more of an artform than the wet-on-wet technique is an artform. if you boil all of the stuff down that all of these "not giving a fuck" style motivational jargon is saying, is just simply to stop caring what other people thing and to do stuff out of your own inspiration instead of the formula that society, culture, or your mother or father has taught you to follow. in my opinion, this is exactly steve's message in reference to the formula his father taught him to follow.
+
+for me the "art" of not caring what people think is again a mechanical one, and you get better at it with time, just like painting or makeup or hearthstone or whatever... for me the method is exactly the same: improve your technique until you *feel* so confident in it and yourself that you perform out of your own inspiration, instead of the formula that is expected from you.
+
+I would like to notably metion that after watching slysssa's stream, I watched @[twitter](bechillcomedian) online, and she definitely does her makeup from her own inspiration, and not from some formula :)
+
+it was weird because my own conclusion from these to different online videos is probably opposite of what is to be expected, because I determined that I thought slysssa was perhaps more attractive without makeup. actually, I should say it backwards: the picture that she showed of herself with makeup, I did not find any more (and perhaps even less) attractive than her without makeup. however, with bec, who has *much* more extreme makeup, I concluded that I really liked how her makeup looks... I dunno.
+
+I get some reactions to that last sentence saying that it's kinda like clown makeup, but I disagree. have you ever seen a clown with makeup on? it's gross. consider what bec would look like doing the videos if she didn't have that makeup on. first, she'd have to do a wider angle shot, and you couldn't see the contours of her face move around so much when she explains things with so much animation, so her videos would be a whole lot less visually captivating..
+
+I mean, I literally just stared at someone's face for 10 minutes without looking too long elsewhere. if you have ever paid attention to me, you will notice that I have tremendous difficulty looking at someone for more than 10-20 seconds, so to capture my attention like that for so long, definitely for me says something. I dunno
+
+I think this subject will get more thought from me.
+
 ### make more stories up
 
 ### 2020-07-13 ??:?? - vision deviod of meaning
