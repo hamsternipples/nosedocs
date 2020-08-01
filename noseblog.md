@@ -4646,6 +4646,59 @@ I mean, I literally just stared at someone's face for 10 minutes without looking
 
 I think this subject will get more thought from me.
 
+
+### 2020-08-01 11:05 - today is a weird day
+
+the last few days, really. it started for me a few days ago (7-27) when I was sitting out in the shed and I remembered that I wanted to look up the girl that that the most points in the battlegrounds competition thijs was in. I went to go look her up, but it seemed there was considerable effort for me to go to sleep. I finally compiled and decided that I would look her up the following day.
+
+the following day I woke up pretty early and went out to go watch stars. I found a few mushrooms along the way and then I really felt like I was making quite notable progress on the star-watching. it felt like I got more than 20-30 vision upgrades that night. however, when the sun came up and I looked around expecting to see things quite differently, but to my surprise, they looked all about the same. I don't get it. the only thing I can think of is, I lost consciousness a few times, and when I was out they forced my eyes to see more blurry (today is also quite blurry too), and even though I see more, I can't really tell because it's so blurry.
+
+I tried to look for new shapes, but I couldn't see anything new. some things looked kinda different, but nothing was significant enuough to positively declare that I see more.
+
+I came back and on the way I ate a lot of mushrooms. I didn't really have much of a trip though, but it was the most I had had in a while.
+
+I can't remember, but I think the following night (or maybe the night of 7-30, I dunno) I went out there again, and I remember that it took a bit, but once again, it felt to me like I accomplished quite a few vision upgrades, yet once again it looked all roughly similar. that day was really blurry, and I remember the walk back was really difficult, and my vision started phasing in and out and the sky wasn't just blue anymore it was starting to get shiny. this time I hadn't ate any mushrooms in ~24h, so I didn't know why I was having such a psychedelic experience.
+
+there were tremendous rains inbetween these events. last night was no different, and it rained a lot. the night previous (7-31), it rained so I star-watched here in the back yard on the patio and I only woke up in time to watch a bit of mars and venus before the sunrise, but I felt successful.
+
+oh. I'm forgetting something here. while it was raining the night before last I was sitting down here thinking about writing this next entry and I was thinking about what I was so write, because earlier that day I went down to the riverwalk too. I concluded that I wanted to ensure that slysssa and the girl that turned to look me directly in the eyes were given an invite, but then I was feeling other things too. there was a more minor feeling from someone that was around when I saw the kids swimming in the river, and I felt too something from the women that met us on the ramp as we walked back to the street, too.
+
+I just don't really know what to think and I kind of went into a kind of depression a little because I started feeling overwhelmed or something. I decided I didn't want to write when I felt like that.
+
+ok, so I'm thinking about that stuff and feeling a bit overwhelmed, and then I remember that I keep feeling something from eddie maths class videos when I saw his new one for the sign of the derivative. I want to watch it and start to understanding better the statistics and the area under the curve and stuff, but my head isn't processing proper maths in the same way it was before (may have been the mushrooms), but also I have no incentive anymore to watch them. previously, I really liked watching them because I could directly apply those formulas to the stats and gain interesting data on the opinions that people have in the site that I was building, affinaties.
+
+my brain just isn't totally working on that bit yet, and I think it has more to do with motivation than anything now, because even while high on mushrooms, I sat down to do a difficult task I didn't want to do, and it worked on first try. I'm not sure it's the way I want to do it, but it did work on first try, so something's working in my head. I'm not sure, but I think I just need to find the desire to write it again...
+
+anyway, back to what I was feeling there... I didn't really know what to think about that now mixed with all of those other feelings, because it feels to me like I *do* want some more austrailian girls, so I want to say yes and I will say yes, but I don't really know how...
+
+this morning, again it had rained really heavy yesterday evening, and when I went out, there were different weird things that happened. I started with jupiter and then clouds covered it, so I decided that I wanted to try staring into remi's garden lights to see if I could get that to work. something must have been working because there were a lot of weather-machine flashes and then finally the light (which is always on cause it gets more sunshine) turned off on me. it was weird.
+
+after that I got the sleeping bag and got right into it with mars. I had a tremenous session where I dunno, again where it felt like I accomplished 20-30 vision upgrades. I then went out to cut through and circle around to where the trees were, which had mushrooms, but before I got there, I found a very large amount of mushrooms (the most ever). I didn't eat many of them though.
+
+I'm gonna go to sleep now so I can rest up for tonights epic session, I'm sure. I've really figured out quite well, how to do it now. I'm so good, I can do a garden light. I kept wanting to apply my new technique to my mbp charger light, but I was so captivated by mars and venus that I didn't. if it rains tonight, I'm gonna do the mbp charger light :)
+
+---
+
+oh, also one thing that was kind of interesting is that there was this funny reaction to something I said to mr. motor about star-watching in the winter, and how cold it'll be, and the reaction was really weird because it felt to me like the reaction was telling me that there wouldn't be a winter time star-watching.. like almost as if something would happen before then.
+
+again this morning when I was watching venus before the sunrise, again I got a sense that something like this christmas or something... don't get me wrong here, because they basically have two stations of the year that they pretend things are happening: christmas and my birthday. I don't expect anything more than another show, so don't think that was what I'm saying here. the sense was more different, almost as if they're not sure they can survive until then, or some sort of concern that they may be causing injury(?) by letting the energy rise so high -- or something like that...
+
+it's really really really weird, people are acting weird and the sun is starting to wake up, and while I'm really really good at star-watching, I notice that when I'm playing these stupid games (or even when I was playing no-minion mage in hearthstone), I just completely spaced out on stuff. my ordinary thoughts seem to be missing steps, almost as if I'm missing the greater portion of each second or something. I'm the slowest I've ever been, as well.
+
+I think it's all part of the challenge, and I'm gonna keep pushing the absolute limit on how much resistance I can release... obviously.
+
+I don't know that any of my senses are correct on their feeling of desperation. that's important, because I trust my feelings more than physical reality, so while they did feel like that, I'm not 100% sure, and I'm likely wrong, so consider them as theories or something. as always, they're developing as I get better and better at sensing and interpretting the emotions and concepts that I receive.
+
+---
+
+I also want to extend the invite to the girl that I felt which was swimming, the girl that the two woman (one had a stroler) had in mind, and finally the one that turned to look me right in the eyes. you're all welcome to join in if you want to :)
+
+finally, I would like to mention, slysssa. she's influenced me tremendously the last few days, see @[noseblog](2020-07-28 14:21), and also in other thought as well. however, since she's a bit older, I don't know I felt it right (adults tend to give me weird mixed feelings), but I did feel strong desire, so if she's wanting to join in too, that would be awesome :)
+
+lastly, the austrailain girls... I can feel strong desire, so if you don't find a way to organise yourselves, we'll figure it out later.. it does feel like something I want too.
+
+ok, I think that's good for now :) cheers
+
 ### make more stories up
 
 ### 2020-07-13 ??:?? - vision deviod of meaning
