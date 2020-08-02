@@ -4699,6 +4699,49 @@ lastly, the austrailain girls... I can feel strong desire, so if you don't find 
 
 ok, I think that's good for now :) cheers
 
+
+### 2020-08-02 07:36 - what do I mean by "mixed signals"?
+
+what I mean is desire and then on top of those desires, there are certain beliefs which can give the feeling of contradictory or cixed signals.
+
+as someone gets older, they get more and more of a concept of how the world "works". when you're younger, you experience more of just the desire part of the equation. you want it and often times you cannot explain why you want it -- you just do.
+
+so, as someone gets older, they begin to use their logic (which is a combination of beliefs and the fundamental structure of things, kinda like the algebra of boole which is all intuitive), which then determines "how" and "when" and other details of the way you *believe* things will play out, to make this desire a reality.
+
+these expectations (a combination of a desire and some beliefs you have) are what create the mixed signals, and someone's beliefs attract, right along with the desire. when I talk about "releasing resistance", a large portion of what I mean is giving up on certain beliefs of how I believed things are... "well, that's just the way it is" I would say to myself, but it doesn't have to be that way.
+
+we do this all the time in relationships. you may want someone to be a certain way. like, let's take for example that someone believes that all girls are filthy cheaters or something, and they'll hook up with anyone the moment they have the opportunity. then, that person meets a girl and they want her to be loyal or whatever, but it's going to be a struggle now because they are expecting the other person to behave the way they believe things to be.
+
+whether the the person really is a cheater or not doesn't matter, because the LOA is what it is, and it's designed to prove your perception as correct. whether the person actually does cheat or not is not, doesn't matter, but let's say they didn't... no matter what, because of their beliefs that the other is a cheater, means that LOA will prove their perception to be right, and so whether they are cheating or not, they will *appear* to be cheating to the person expecting them to be a cheater, because afterall, that's just the way things are, right? that's how they believe things are, even though their desire is something entirely different.
+
+---
+
+releasing resistance is a two-sided sword kinda thing, because the more resistance I release, that is, the more I trust in my own ability to attract what it is that I'm giving my attention to, and that nothing is inherently "bad" -- just more wanted or less wanted, then I no longer have to behave in some sort of predefined way that society determines is the "right way" to behave, which gives me all sorts of freedom to follow my inspiration (things and ideas that feel good), but it also allows me to become a more easy reflection of what others are attracting from me, too. when I say reflection, I don't mean that I am actually that way, I am someone who feels good and is following their inspiration, however, to the other person I will appear as if I am conforming to their beliefs about how things are.
+
+that may concern you, to think that when you release resistance you will begin to appear as something "bad" in others' perception, but I assure you, that you are not actully bad. you are you, and anyone can see you however they want to, and that shouldn't really matter to you. it may make you take a second look at something, but you should, as time continues, become more and more confident in following what feels good to you, that none of that makes any difference.
+
+this is another fallacy that I have seen a few times in relationships, but I cannot give a good example of one other than raquel, but that example is hard to see. a much easier example of this is xagly. when I first met her, I felt really good about going to live with her and I also felt really good about starting a company with her too. those were unmistakable to me. so when different people told me that it was all bad, I had a difficult time to believe them, because I had already gotten quite a bit of trust in following things that felt good to me. I *still* don't believe it was a "bad" thing to do, and if I did, then that is a good illustration of what I want to express here...
+
+if I think to myself that our relationship was something "bad", then that doesn't feel good to me. I felt good about it at the start, and people telling me that she was a horrible person felt bad to me. instead, now looking at it from hindsight, I can see that if xxagly never had of happened, I would never have been in the situation that I'm in now. in essence, now looking at it from the future, it taught me what I'm expressing now and many other things, and made all of what I'm living now possible. so, in that sense, it was quite valuable for me.
+
+so, now after that example, here's what I notice often: sally meets jane, and in that moment, they appear perfect or really desirable, but then something happens which, usually the stronger believer, so let's say jane has been focused on some sort of feeling of insecurity, prior to meeting sally. as the relationship continues, she will notice that all of a sudden sally is beginning to make her feel insecure or maybe like she's questioning her actions or making fun of her behaviour or something...
+
+it doesn't matter really what the different actions are, because the whole point of it is to notice that when jane first met sally, sally made her feel incredible. however, after a little bit, sally started to make her feel (in a more amplified way because now she's someone that jane cares about), like how she used to feel before she met sally.
+
+in a lot of ways jane influenced sally to conform to jane's beliefs about how things are. in fact, the less resistant sally is, the more quickly she will begin to appear to jane how jane believes things to be.
+
+if sally really is non-resistant, then she'll just continue on doing whatever she's doing regardless of what jane perceives. if she begins to take on jane's perception of her as her own, sally will immediately feel bad, and perhaps even begin blaming jane for things. obviously, because none of that feels good, sally will eventually learn that engaging in those sorts of perceptions which don't feel good, simply don't lead to anything other than more of not so good feeling stuff.
+
+that's I guess, the art of not caring (or even giving your attention to) what other people think when it doesn't feel good. it's hard though when you care about the other person. however, in my opinion, you should care more about how you feel, than whatever the other person is perceiving, whenever it doesn't feel good.
+
+when what the other person perceives feels good, then give your attention to it. in this way, it's much similar to a pet. there was this one guy that alfon (and xagly, but I watched it more with alfon) loved to watch, the dog whisperer. almost every episode was some person who had an out of control dog, and they were totally exacerbated trying to get the dog to behave differently, when the whole time they were giving their undivided attention to the dog's bad behaviour. cesar would come in and have a different expectation for the dog's behaviour, and when the dog didn't conform to his expectation, he would gently get the dog to act a different way.
+
+eventually, cesar was able to get the dog, with positive reinforcement, when they performed well (giving his attention ot what he wants and igoring the rest), show the dog owner that the dog can in fact behave a different way. what that did for the dog owner is give them a glimmer of hope, and a slightly different expectation for their own dog, allowing them to begin expecting different behaviour out of the dog.
+
+this show really impacted me a lot, because I realised that if you give your attention to the bad behaviour, then you'll get more of it. if you just keep going the way that feels good, then you get eventually a harmonious relationship. I didn't make the connection until much later, and selma kinda taught me a bit of this, by when I was giving my attention to the bad behaviour, even if it was inspired by nosebook, never feels good, and it got worse. so, I shouldn't have done that but you live and learn right :) she also taught me that I can trust in her a little more than I did previously, as well. animals and children (things we feel we need to keep on a leash) are much smarter than we perceive them to be, and so if my own expectation is for them to be very intelligent, then that is what they will show me.
+
+expectation really works both ways: your own belief can ispire perceived behaviour that does not previously exist, whether it's in the negative sense, or in the positive sense.
+
 ### make more stories up
 
 ### 2020-07-13 ??:?? - vision deviod of meaning
