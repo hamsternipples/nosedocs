@@ -4742,13 +4742,91 @@ this show really impacted me a lot, because I realised that if you give your att
 
 expectation really works both ways: your own belief can ispire perceived behaviour that does not previously exist, whether it's in the negative sense, or in the positive sense.
 
-### make more stories up
+### 2020-08-04 11:43 - make more stories up
 
-### 2020-07-13 ??:?? - vision deviod of meaning
+I just woke up (got woken up because I became conscious) in a dream where I was trying to explain something that I don't really know how to explain in words, but because it came up in a dream, I'm hoping that I'll be able to explain it here in words.
 
+in the dream I was showing how there are these different cycles and in these cycles, these different characters appear in the storyline (life, reality) because some sort of narrative evoked their existence.
+
+this I think has been happening all throughout history. there are these "legends" of past notable characters, and then there are "prophecies" of coming notable characters as well. these are sort of like infection points over which no one really has any control.
+
+think about it like this: if you're an oppressed culture or people group (or whatever), then you begin to believe that some sort of saviour will come and shake things up a bit and make things a bit different. hold the saviour thought; we'll come back to it.
+
+so what probably happened more in the past is that people would tell these fantastic stories or both past legends (like the illiad/oddessy or other epics), but for the first time, I think this "art" became an established thing with elijah.
+
+really, all it is, is putting desire into story form, and kids so this all the time. you will notice that kids will narrate their emotional improvements they want to feel externally in the form of a story. for boys (for me and tim), it usually involved some sort of superhero and a some sort of powerful dominating position that makes them feel significant.
+
+the first time that I really started thinking about how girls processed things in story form was in relation to how marcos would say tell me how much andrea would carry on these entire make-believe scenes and conversations with herself in effort to kind of sort out the social interactions that she was experiencing in her life environment. that's the sense I got anyway.
+
+if I had to guess, I would imagine that girls tend to extenrnalise their desire in the form of interrelational stuff like conversations and interactions. I do this all the time myself, so it's not entirely foreign to me, and I'm not saying that *only* girls do it... it just feels like this is more a way which they process their desire in story format than boys do.
+
+for the early part of my life, I was a mixed bag. I did both: I had GI Joes which I ran around saving people and killing bad guys... stuff like that. I also had some dolls too which I pretended to care for and nurture, but I found those interactions to be less exciting. I enjoyed the more fantastic unbelievable stories, and after a few years (some period of time), I grew out of dolls, believing that I had learned how to care and nurture for a young child.. btw, real babies are considerably different than dolls :) I was still sure I had it figured out though... :)
+
+I hadn't really thought about it much until now but I've had a lot of interesting narrators around me for most of my child-life. the first I can remember was justin powlison. we would lay in the hammoc together and take turns telling stories. I participated because I had to, to keep him going, but I found his stories fascinating. I just liked listening to him come up with some of the most interesting stuff ever, and strange kind of sort of things. we also liked to try out new stuff. one time he told a story where we were out in some place and we didn't have any food and all there was was the dog food that his (golden retriever?) dog had, kibbles and bits.
+
+so, to save ourselves from the impending onset of starvation, we indulged ourselves in kibbles and bits. it turns out it wasn't that bad, so pretty much from then on, when we were getting hungry, instead of going in for food. I could sense that for some reason he hated going in to the house and preferred to stay outside in the shed (sound familiar?) away from everyone, just living in his imagination with me out there away from everyone else..
+
+personally, I don't have any problem trying out how dogfood tastes. for me, whoop-di-doo, but I think he needed to kind of invent a story which created an illusion of necessity in order to jump the mental hurdle in order to try it, and so that's kind of how that story developed in order to try something out new, and I love fantastic stories and trying new stuff out, so what better person that to make up said story with, then me.
+
+I don't want to say that justin was a troubled kid, but that family was definitely really really wierd and so it wouldn't really surprise me to think that actually a lot of those stories we did were a kind of escape and also a bit of processing of his envirenment. justin focused more on the "desire" aspect of the situation in his stories with most subjects having to do with discovery, exploration, need, and acquisition of stuff.
+
+after that, I did a lot of stories with tim. tim tended to be more relational in how he told his stories, and they mostly incvolved determining how others would think and feel in response to actions. his fantasy stories, I remember were more of people appreciating and valuing him in response to certain actions. tim was the opposite of a weird environment like justin was, his life was easy and his partents had quite a bit of money both working for JPL. in my estimation, I think the majority of tim's stories were trying to find a way to feel notable. I got the sense that he felt he could never live up to the intelligence of his father (he made the lenses for the cassini probe), and tim always seemed to feel as if he was in his shadow. neither of his parents were ever around much, so he didn't really have someone that he felt he could emulate well, and his twin sister was a natural disaster (rebel), so he didn't think that was the right way to getting validation or merit, so I think his stories were generally of fantastical situtions which would give him positive attention. I loved the fantastical stories, and when I was younger I had quite an affection for the illusion of power as well, and his stories transmitted both of those to me.
+
+chris was also a very interesting narrator for me. his stories were not so much about the relational aspect. instead, deep down, I think he believed that things were all f'ed up, and there was no real way to avoid this chaotic world. his stories were also fantastical for me, because they would try and out-weird his completely out of control world, or find some way to cope with an onslaught of chatic experience/emotions. chris repainted his emotions into the landscape of the story which he was telling, and then tried to find some way to overcome that environment[^1]. for me his stories, althhough sinister in nature, were very logical expressions. a sort of delve into cause and effect or an exploration of the consequences of things (usually he picked the worst action/sitation/sequence). for me, this was ironic because his father would carry on and on about consequences, yet his life (as an example for chris), was a complete disaster.
+
+I really liked the sense that chris transmitted to me in "a day in the life of" story the most (he also really liked the movie memento), because it gave me this sense that in the middle of seeming chaos, there was thes prevailing or overarching logic to the the story which, when taking a look at the story as a whole (cause the memento movie, if you only looked at the scenes, it makes zero sense), that when you kind of take a step back and see the bigger picture in all of the chaos, out of it emerges something bigger.
+
+---
+
+it's clear to me that many narrators have inflenced my life, and this is a much more natural process than it would appear.
+
+all throughout time/history, these mega infuential people have emerged as a result of story telling. regarding the prophecy of their messiah, what do you think that the jewish prophets were in the business of doing? they are sensitive dudes that were able to distill the desire of the people into a semi visual form (remember that moses commanded that no visual idols were to be made, creating a void in the jewish people for something visual)[^2]. when elijah came along and established the office of the prophet, for the first time, the jewish people began to imagine this messiah, this coming saviour, in the pictoral form presented by the prophets.
+
+well, because of LOA, it doesn't matter what sorts of bizarre interpretations of this messiah people were constructing in their imaginations, LOA says that when you constantly give your attention to what you desire, it will manifest.
+
+the thing is, it didn't manifest how people wanted it to look. the jews wanted a military conquererer who would come in and set things straight again, but that did not happen. jesus showed up on the scene insteard telling people to "resist not evil". this conceptt is *really important* for me to try and convey because the way things work with LOA is that *nothing* and I mean NOTHING shows up in the form which you imagine it, unless it's a representation of a physical object that you have constructed in your mind, adhering to the laws of the environment which you will create it, like the motors in tesla's mind. for everything else which is not strictly physical, these are abstract concepts, and their manifestation will *always* be both more of what's wanted (even if you don't recognise it), aed also different in appearance to how you imagine it in real life.
+
+tesla tells a story in his autobiography where a guy was going to come to his door and tell him great things about his machines and give him an opportinity to create his dream. I personally believe a time split happened here caused by tesla himself, and he purposefully self-sabotaged his "dream opportinity" to create a new timeline... instead of showing up like tesla had predicted (remember these are abstract interactions in tesla's imagination, not physical motors), a guy showed up conducting a survey on people believing to have extra-sensory perception. lol, the irony...
+
+instead, in an abstract sense, you can see, that if you extend that timeline out, instead of getting tesla's world system, we got WW2. yet, if you take a step out of this timeline where that happened, and you look in the bigger picture, you see that instead that event only delayed it. instead, he is now creating his dream just like he predicted. both of those timelines will produce the realisation of his dream, but one is more wanted than other. you could argue that this one is less wanted than the other one where his world system becomes a reality (which he from his "future" self-sabotaged his past so that reality would not take place, and a more desirable one would instead come to exist).
+
+you can make the same argument with jesus, and this is where terence comes in... terence (the bard) tells this really great story about how two timelines of jesus exist... one where he was successful and created a utopia, but then there was also this one where a "time split" takes place... I am certain that this is indeed what happened, but I have used terence's idea of the time split to telk about it.
+
+lately though, I'm much more keen on the idea that the "time split" was a pereceptual one (from our perspective), but if you look at it from jesus' or from tesla's perspective, it instead looks like self-sabotage. what I'm implying here is that when it comes to the imagination and the physical, the thing will operate and can be constructed to work exactly how it does in the imagination, yet when it comes to abstract ideas, the manifestation of them does *not* come out exactly as envisioned, because these stories or abstract ideas can still come to manifest in a much different way.
+
+you can think instead of these "time splits" instead as a kind of loop-de-loop, and I do not believe that there was only one. you can imagine that you can self-sabotage the timeline infinitely until it reaches such a ridiculous compression that someone like me shows up.
+
+I will admit, I'm kind of an anomaly, and I think this is largely a misunderstanding for everyone because of, once again terence (the bard)'s carefully chosen words. he called this guy the "fastest particle in the universe" -- which if you think about it, *is* source energy. abraham goes on and on about how your inner being has an inner being, which has an inner being ... and so fourth... well, eventually you would think you would run out of inner beings, but that's kind of like saying the causal frequency of silence. it's a bit of an irony, and it appears that this univerese is built on irony or paradox. from a frequential standpoint, at some point, you can no longer isolate the "inner being" of the universe, which all of its composed parts is itself. that *is* the inner being of the universe is the inner being of the universe, which is the fastest, most energetic signal that exists. it contains everything that is wanted for the entire universe. it is balanced so well, that to us, it appears as "no signal" or zero. out of it, everything has come into existence.
+
+so, when you get someone like me showing up, which is hell-bent on getting source energy into a physical body, what you will get is is exactly the thing that terence was talking about...
+
+here's the thing, just like elijah made it possible, using visual prophecy to fortell of a new character that would emerge onto the scene (which would not appear how people speculated that he would), so you can do the same for yourself. there is not a limit to how many people can hook into this "fastest particle in the universe", and there is no right way to get there.
+
+I tell these stories about how I was a child and I would use my imaginagion to make up all of these stories in my head... I was visual... very visual. I lived in my imagination and I loved it there much more than here. in the end, I have essentially combined all of the different narrators (justin, tim, chris) into my life as it has unfolded, and trust me... I have no idea what's happening next, cept that I'm sure that I'll be source energy in a physical body. I am certain that will happen, and I'm also pretty certain that this iteration is latest most energetic version[^3], where I think this is leading up to a tremendous version where not just me or tesla or jesus, self-sabotage, but instead, I think I'm kinda like the "moses and elijah" where I make it possible and then I make it available to everyone (in that sense), and this one there will be *many* who figure out how to hook into (get into aligement with) the fastest particle of the universe (source energy), and then from our future's we will sabotage this timeline, solidifying ourselves as major characters in the history of earth.
+
+start making up more stories :) make up ones about how you're strong powerful, or whatever you want... then just know in yourself that the story won't manifest in that exact way that you imagined it (with the superhero or whatever), but that in an abstract sense, it will contain the cenceptual vigor with which you hav imbued the story :)
+
+I personally like the thought experiement, "what would I be if I could be *anything*" (also originally taught to me by terence) -- and you suddenly realise that money doesn't matter cause you don't need to buy things if you can just instantly manifest it.. and material things don't matter either, cause again someone capable of being anything could manifest whatever they want instantly. you don't have to be a certain gender or even a human. you don't need to experience time in a sequential fashion. you could be something timeless like a concept having infinite forms in 3d reality, or an emotion that you experience inside of the infinite forms of 3d reality. you can be *anything*.
+
+from there, I like to then simplify... like let's say I want to be the most beautiful person *ever* -- as in like infinitely forevever. how would that work? how could I be the most beautiful person ever to exist. well, I could think of it like, there will be many most beautiful people, and I will infinitely experience them, but then do I mean only when they're in their age prime, or growing up as a little girl/boy and knowing what it's like to be the most beautiful person ever, or just their adult experience.. how can I be that? am I the essense of beauty and I experience it, or is it just a feeling that I experience?
+
+none of that matters, because LOA does all the work. all you're doing there is focusing your attention upon being the most beautiful person ever... because of your attention to it, LOA will make this happen and it will manifest, but probably a bit different (always better than you could have imagined it) than you thougt it would..
+
+then, on top of that, to further this concept, there's this crazy thing that I'm introducing, which is the idea of time loops and self-sabatage, so that from a future perspective you sabotage it so that physically it appears like the realisation of that *isn't* happening, when in reality, looking from a longer perspective it's becoming more and evident that it is.... from your now perspetive, it probably alraedy appears like this is already happening. right now, all of us are at the beginning of the story anyway, so who knows how it'll start to shape up...
+
+most stories are 90% trauma and 10% success, and the real good stories (like memento) are not told in a linear fashion, and are 100% trauma, and it isn't until afterward the true emergence or the story begins to take place :)
+
+
+
+[1]: I can kinda hear him scoffing now :) just go with it...
+
+[2]: I too am a person with a huge visual void.
+
+[3]: I have been known to self-sabotage :)
 
 # the end
 
+### 2020-07-13 ??:?? - vision deviod of meaning
 ### 2020-05-24 ??:?? - sumerian gods reflection
 ### 2020-05-28 ??:?? - new thought experiment:
 - what if I were to meddle in raquel's experience?
