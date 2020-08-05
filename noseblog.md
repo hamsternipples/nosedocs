@@ -4895,7 +4895,7 @@ there was also a different thing that I didn't really expect either that happene
 
 even now, I cannot feel her as strongly as last night or the previous one I just mentioned, but it's weird (perhaps something of her personalty?) that I can still feel her... it's like a really slow ramp than a steep incline, but with like a longer distance or something I hadn't felt before either because last night I could feel her VERY STRONGLY, but it started out very soft. very very cool. I can't wait to meet her, and she too, if she wants to join in, I can't wait to meet her :)
 
-it's weird because I don't really know which one I can feel. I remember the scene I saw a woman exited the bus to vomit, and there were two girls that followed her. well, anyway, I guess it doesn't really matter. if either want to join in, they're both welcome to join.
+it's weird because I don't really know which one I can feel. I remember the scene I saw a woman exited the bus to vomit, and there were two girls that followed her. well, anyway, I guess it doesn't really matter. if either want to join in, I'd love to have them both :)
 
 [1]: stories found in cinema do not provide me with the kind of vibrational accuracy that I'm looking for, because they're mostly just a BS formula designed to appeal to the audience in some way. I did like the happy madison films though because, although quite formulaic, they're raw enough that there's quite an imprint of the writers' desire, relational and logical implementations of how the world works. I found that ammusing for quite some time.
 
