@@ -4816,16 +4816,80 @@ then, on top of that, to further this concept, there's this crazy thing that I'm
 
 most stories are 90% trauma and 10% success, and the real good stories (like memento) are not told in a linear fashion, and are 100% trauma, and it isn't until afterward the true emergence or the story begins to take place :)
 
-
-
 [1]: I can kinda hear him scoffing now :) just go with it...
 
 [2]: I too am a person with a huge visual void.
 
 [3]: I have been known to self-sabotage :)
 
+
+### 2020-08-04 18:36 - few more thoughts on the previous entry
+
+I can't sleep, even though I barely slept much before getting woken up. there's a lot of reactions in the air, and I thought I would add some additional commentaray here to talk about some things. I had some more ideas I didn't write because I was getting tired of writing...
+
+first, I think it's worth mentioning that the three narrators I mentioned (justin, tim, and chris) all have a definite progression to their stories. I don't know if I've mentioned the 7-planes of reality which correspond to the physical and non-physical expression of this reality. the top three non-physical layers are: desire, relational, and then structural or logical. these correspond directly, where justin's stories were mostly desire focused, tim's were more relationally focused, and chris' were concerned more with the logic or overarching "thrust" or bigger picture of the story, where some sort of order emerges out of chaos.
+
+it is perhaps a pretty gay thing for boys to tell each other stories, but I don't mind it at all. I mech preferred to try and listen to people's stories as much as possible, and that's largely all I did when I was in the bars in spain. very little of what people were telling me had anything to do with reality, and most of it was perceptual. in a lot of ways, when you tell someone a story, you're kind of opening up to them and showing a bit of yourself to them, because in your stories (whether it's a bar story or a fantasy, or some sort of embellished reality you lived), they always encode the (sometimes hidden) desires of the narrator, and a bit of how they relationally perceive people's reactions to these events (real or ficticious). I suppose you could really do some damage to a person if you were to make fun of their stories, and I think that's precisely the reason why most kids stop telling stories.
+
+I don't really think that most adults understand the story as a weird way of exploring the psyche. when I was going with pierre to his house for "counceling" during my darker period of spain, he would have me walk through different experiences and then tell him what it is that I say, or what the person said. this is essentially the same thing as me telling pierre a story, but be kinda pulled it out of me. it was tremendously successful, and after each "session" I always knew exactly what the symbols that I had interacted with meant. like instantly. he didn't even need to ask me.
+
+story telling is an unbelievably powerful tool, and to be quite honest... get ready for it :) whenever I would tell people stories that I made up, people would complain that they were either too detail oriented when I focused on real-life stories. then, when I would try to tell fantasy stories, the reaction I usually got was that I possessed some sort of god-complex or something, where I was too big picture oriented and couldn't get into the nitty gritty details of the story.
+
+for example, a while back I presented here in the noseblog the idea of trying to write a small story of what it would be like to live on the twin earth in my thought experiment where it's exactly opposite of here where the majority of the "INFECTED ONES" are dominating women, in a seriously depressing world where everything was run by by this matriarch heierarchy, men were used and discarded like slaves and not given any power to have their own opinion.
+
+I decided that in that world, the protagonist would be essentially a boy (gay man) in a woman's body, which appeared on the scene and disrupted their whole scheme.
+
+here's the thing though: I can perceive the whole world and pull out details of all sorts of events like their different wars and things. they actually didn't really have wars in the physical guns and guts style like here. instead their world was the most stagnated and perceptually oppressive where you had to do tons and tons of things to earn your honour and position to be the dominating and most respected. for example, their "wars" were more like a smear campaign from one faction to the other, trying try undermine the structure of honour and respect that each faction's culture is built on.
+
+the men were essentially like slaves and are subject to the whim of the woman and they were commanded to build things. essentially the things that the men were allowed to build created the structure... like the shape of the boats or the houses determined how that faction identified itself. the men created the image of the culture based on what they built in the way it was presented...
+
+you get the idea :) I can see that world very clearly and can describe it really well, however, I have a very difficult time putting those into a real-life actual readable story. me, personally, I don't care about the anguish of the protagonist as she basically learns that she's more like the boys than the girls, and what that's like... I'm far more interested in the world and the ineractions therein.
+
+I don't even really perceive the "trust" of this story either, because for me it's just a mental exercise on taking this world and all of its symbols, reversing them and putting them through my latest version of how I perceive that an intelligent woman (very different from the rest of the dominators) would come to perceive these symbols.
+
+---
+
+so, I guess I'm kinda a big-picture guy when it comes to these things and I fail to get into the real emotional details, unless I'm forced to (hence why I think pierre's technique is so powerful).
+
+however, I *LOVE* listening to stories though. if they have a cohesive message and and vibrationally realistic, I love them. actually, now that I'm thinking about it, this is actually what caught my attention so much about the "ramtha" character that was channeled. I loved his stories, because I could feel their vibrational accuracy, even though quite fantanstic[^1].
+
+when I say vibrational accuracy, I mean that they are permutations of real symbols (emotional/conceptual events) within a circumstance (similar to the definition of a "situation"), and if you just do permutations on the symbols, without violationg LOA, you end up with ultra-captivating stories that have real depth to them... I digress.
+
+---
+
+back to channeling. when I said that you get a guy like me that's hell-bent on getting source energy into his body, I realise that esther already does this, but if you listen to them, they do encourage all of us to do like esther does, however, they mean do it in a conscious state instad of an unconscious state like esther does. we can meditate and stuff and source will give impulses to move our bodies and visions and feelings, sensations -- all sorts of physical stuff, but I'm fairly certain that esther will be the only one to translate source on an unconscious level. you can unconsciously channel really anything you want, like ramtha or remote viewing or whatever but I think their goal is not for us to learn how to learn how to channel them from an unconscious state, but to "channel" them in a conscious state. it's not like we can twist their arm and force them to broadcast into your unconscious body like they do with esther, so I would imagine that, even though other things can be channeled, source's next physical expression will appear in the *conscious* human.
+
+this is precisely what I want to do. when I say source energy in a conscious human body, what I mean is that I will have slowed down enough resistitant (constrdictory) to the expression of my source's thought, that I am consciously in the same non-resistant place that esther has practised to get into to be able to receive abraham. what I mean is that I could do basically what esther does, while maintaiing my conscious "ego".
+
+I'm 99.9% certain (maybe more) that is the direction that humankind is headed. I like to perceive this is a much more fantastical way though, so I'll tell you that here as an example.
+
+imagine that you are a human here on planet earth, and you're preparing to meet up with a particle. this particle (in my case), I believe to be the "fastest particle in the universe" and it seems that there is this sort of step system that the body goes through to be able to "channel" more and more of this energy. every 11 years there is a huge power boost, and I believed that by the time I get to 33, I'm basically at the power level of jesus. I thought andrea had something to do with that, and she did, but it turns out, that I do have jesus level creative power, however nosebook does not want that to become manifest, so they're withholding it's arrval. no matter though, because for me, I can see that this was done on purpose from the perspective of my "future" self, in order to self-sabotage, making the abstract reality of my "story" an even more potent one.
+
+nosebook is simply the manifesation of my future self-sabotage in order to far far far increase the power-level (but delay a little bit) of the abstrat manifestation of reality to my own story.
+
+just like tesla has delayed the arrival of his world system by self-sabotaging, and just like jesus self-saboaged this timeline so as to *not* go on to become a ruling leader in this world... the same is happening to me. I don't know yet all the details, because it's all still unfolding, but you can be sure that some years from now, I will come back to sabotaage this timeline, so that I do not become what it is that I'm about to become (source energy in physical form). I believe that in the future this form of self-sabotage will furher delay the thing of becoming source energy in physical form, and then this further delay will push out the symbolic reality of this manifestation even further.
+
+why not, right? why not compress it even further? it appears to be infinite how many loops you can put in time. I don't really know what all of that will look like in real-life, but I imagine that it'll be so appealing (the power of contrast!), that we'll all want to self-sabotage our own stories we tell ourselves in a similay way, and create something really really big (remember, this is the "need not the manifestation" era we're entering into here).
+
+what this means in the bigger picure is that all of this is likely alrady happening, so almost as assuredly that I have a "future" self, throwing a bit more contrast on my own trail to make things bigger, you all would certainly have those future selves doing similar things too.
+
+while tim and justin did provide a good basis for me, the real champ here is chris in his narration, because out of all of the chaos, something larger and unexpected is beginning to emerge from the story as a whole.
+
+I really would expect things to get nuttier and nuttier.
+
+what if you really could be (do or have) *ANYTHING*?
+
+what if abraham is right, that: if this time/space reality has the weherwithall to inspire a desire within you, it also has the wherewitthall to produce it as reality... what if you really can be ***ANYTHING***????
+
+---
+
+so, while I'm not terribly good at writing the individual interactions of the characters in a story, I do have quite an imagination for how the bigger picture could appear... so, it is quite a lot of fun for me to sit here and type out some mind blowing ideas like it were easy, and then have someone really good at making up stories (nosebook), polish them up and disseminate them to you guys :)
+
+[1]: stories found in cinema do not provide me with that kind of vibrational accuracy that I'm looking for, because they're mostly just a BS formula designed to appeal to the audience in some way. I did like the happy madison films though because, although quite formulaic, they're raw enough that there's quite an imprint of the writers' desire, relational and logical implementations of how the world works. I found that ammusing for quite some time.
+
 # the end
 
+### 2020-08-04 ??:?? - the gratitude circlejerk
 ### 2020-07-13 ??:?? - vision deviod of meaning
 ### 2020-05-24 ??:?? - sumerian gods reflection
 ### 2020-05-28 ??:?? - new thought experiment:
