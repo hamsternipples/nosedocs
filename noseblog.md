@@ -4885,7 +4885,21 @@ what if abraham is right, that: if this time/space reality has the weherwithall 
 
 so, while I'm not terribly good at writing the individual interactions of the characters in a story, I do have quite an imagination for how the bigger picture could appear... so, it is quite a lot of fun for me to sit here and type out some mind blowing ideas like it were easy, and then have someone really good at making up stories (nosebook), polish them up and disseminate them to you guys :)
 
-[1]: stories found in cinema do not provide me with that kind of vibrational accuracy that I'm looking for, because they're mostly just a BS formula designed to appeal to the audience in some way. I did like the happy madison films though because, although quite formulaic, they're raw enough that there's quite an imprint of the writers' desire, relational and logical implementations of how the world works. I found that ammusing for quite some time.
+---
+
+I decided to start writing these down, because there were a few communication errors, and so I've been writing them now just to ensure that there isn't a communication error.
+
+finally I want to mention that yesterday when I was walking down to the field, I heard a girl make a screeching sound, and I said in my inner voice, "hey guys" -- thinking it was one of the other ones I had already extended the invite out to, but upon thinking that, I realised that it wasn't. I don't really know much about her, but I definitely feel her *quite strongly* -- and I really like how she feels, too. if she would like to join in, I would love to have her. :)
+
+there was also a different thing that I didn't really expect either that happened yesterday as well. I was watching the colourful trees in the background of a program (movie?) mom was watching on netflix about a japanese woman, and I didn't really think much of it. then later, when out on the field, it felt like I felt something there. at first it was quite convoluted and with little definition, but as the night progressed, and even after a few times losing consciousness[^2], I could feel her stronger and stronger.
+
+even now, I cannot feel her as strongly as last night or the previous one I just mentioned, but it's weird (perhaps something of her personalty?) that I can still feel her... it's like a really slow ramp than a steep incline, but with like a longer distance or something I hadn't felt before either because last night I could feel her VERY STRONGLY, but it started out very soft. very very cool. I can't wait to meet her, and she too, if she wants to join in, I can't wait to meet her :)
+
+it's weird because I don't really know which one I can feel. I remember the scene I saw a woman exited the bus to vomit, and there were two girls that followed her. well, anyway, I guess it doesn't really matter. if either want to join in, they're both welcome to join.
+
+[1]: stories found in cinema do not provide me with the kind of vibrational accuracy that I'm looking for, because they're mostly just a BS formula designed to appeal to the audience in some way. I did like the happy madison films though because, although quite formulaic, they're raw enough that there's quite an imprint of the writers' desire, relational and logical implementations of how the world works. I found that ammusing for quite some time.
+
+[2]: this is especially notable because usually, when I lose consciousness, whatever I could feel strongly from a girl before, when I come back, that feeling has completely vanished and it's hard to get it back. I wonder if this has to do with language or form of perception or something where it's easier for nosebook to block one form of perception over another? I dunno... really interesting to me though.
 
 # the end
 
