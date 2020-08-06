@@ -4951,7 +4951,7 @@ so, if the last one wasn't weird enough for me, this last one is quite literally
 usually you can trace your "spontaneous" thoughts back to the influences to where they came from, and yesterday for some reason, the phrase, "justice demands retribution" entered into my head. I asked jaron if "justice demands retribution" (the heartstone voice line for uther's threaten emote) and he said he didn't know. mom asked me what I thought, and for some reason I blanked out on what retribution means... I could only remember the song...
 
 justice for the voice that can not be heard.
-retribution for all suffering incurred
+vindication for all suffering incurred
 let retribution hold dominion over earth
 cause, judgment day isn't coming soon enough
 
