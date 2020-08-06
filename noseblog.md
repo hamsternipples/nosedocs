@@ -4901,6 +4901,70 @@ it's weird because I don't really know which one I can feel. I remember the scen
 
 [2]: this is especially notable because usually, when I lose consciousness, whatever I could feel strongly from a girl before, when I come back, that feeling has completely vanished and it's hard to get it back. I wonder if this has to do with language or form of perception or something where it's easier for nosebook to block one form of perception over another? I dunno... really interesting to me though.
 
+
+### 2020-08-06 09:59 - taming desire and fasting
+
+youtube suggested a video for me to watch a few times @[youtube](https://www.youtube.com/watch?v=PKfR6bAXr-c) and I skipped it a few times because it has millions of views on it and also a few times I had this weird dreams about some pump-up sales person type trying to push this idea of fasting, which gave me a bad vibe. I figured with millions of views it must be a similar random hype salesperson again.
+
+I was pleasently surprised to find a very different video, and I would totally recommend it to others. all of my life I've done intermittent fasting, cept for since I was on nosebook, actually. when I was younger, I would frequently fast sugar, and even stopped eating it altogether for a long time, too. very important I learned for gaining self-control, and control over my desire, because if I could control when I felt hungry, I can control all sorts of pysiologocal things, like the need to sleep or the need to whatever (masturbate comes to mind, but other things that people see as necessities). it also gives the body the capability to do something difficult without much effort, knowing that later the conditions will be improved.
+
+anyway... the video suggests to eat once per day, which is something I had never really hought about doing before. when I was younger, I ate at most twice per day (lunch and dinner), and quite frequently only once a day. I received a lot of critisim for this when I was in spain, because I would just not eat nearly as often. when I came back to the US, I basically went from 120lbs to 140lbs nearly overnight. I also experienced much more lethargy too, and I believe it had to do with the greatly increased amount of crap american food that I was eating. I dunno, but I really liked how I was feeling more when I was in spain (I ate a lot of eggs and meat there).
+
+---
+
+so I decided that I totally want to move over to eating only once per day, and I'm likely going to begin to reduce even that. I have long since postulated that the human body's organs transform non-physical energy into physical energy, and that you need a small amount of energy to keep those organs working efficiently enough to be able to transform that energy effectively. when I've gone on extended periods of only drinking water, then always when coming off, I noticed two things: first, when eating food again, I felt good because I had the essential energy to function properly again, but it also produced lethargy, and I noticed that not only did I have a clearer head when I was not eating, but I felt better too (minus the severe stomach pain). second, after coming off of it, I had a much stronger capacity to perceive even more. it gave me more mental clarity -- and I think the reason why that is, is during the fast, without the food energy, I summoned and transformed more non-phsical energy than I do normally, so my body got used to a higher non-physical energy state because there was less physical energy provided to it.
+
+I am certain that the human body for most non-lethargic people uses more energy than is put into it. I think that there is an "over-unity" that happens here, and that extra energy has to come from somewhere and that somewhere is non-physical, and I think the main transformer of this energy is the heart.
+
+---
+
+so I was thinking that what I want to do is to begin this fast, and then eventually take myself off of eating almost entirely. I don't think it's necessary, and the goal, or rather, the reason why I'm doing it is to increase the compression even more.
+
+so, nosebook is draining my body of tremendous amounts of energy. I believe this is mostly manifested as oxygen in he blood. when I'm out star-watching and nosebook is working hard to make sure I don't get ugrades, my limbs are literally beginning to go numb and tingle. the sensation is exactly the same one when you cut off circulation to some appendage, and it "goes to sleep" -- then, there's a time that your body is still numb and unable to feel anything other than super weird tingling sensations, and I am pretty certain that's because your cells are not receiving oxygen.
+
+also, if I simply breathe in and hold my breath, when I was younger, the same amount of air would remain in my lungs, and I would have to expel it before breathing in again. however, I have noticed that when I hold my breath, my lung capacity is shrinking. simply put, oxygen is disappearing from my lungs. if I fill my lungs full, I can wait a half of a minute and then breathe in again. I'll practise this more so I can show you this, but for a number a times I can repeatedly fill my lungs, only breathing in a number of times before needing to breathe out.
+
+nosebook is removing oxygen my system, and when they take away my consciousness, I come back with my entire body numb. it seems that the body stores its energy in oxygen and that's their primary mechanism for removing it. I have a feeling, and I've never given it any thought before, that anti-oxidants are ... lemme back up. almost all batteries are redox reactions, where something in the battery oxydises and then deoxidises, and that process gives off electricity. according to wikipedia, free radicals are hydrogen and oxigen with an unpaired electron (I guess hydrogen probably has an extra proton, which is what make them "acidic")... anyway, this is clearly water H2O without a hydrogen, so you're out of balance.
+
+I'd love to learn more on that subject... but anyway.
+
+so, just assume that what I'm saying about my body is correct... that I have such a surplus of oxygen in my system, that they need to remove it to ensure that my body does not become too energetic -- the exact opposite of having a bunch of "free radicals" in the system which would leave you feeling lethargic.
+
+so I'm creating a huge surplus of oxygen, and I believe that the heart, while it does take oxygen out of the air and put it into the blood, there is something to do with the shape (vortex) of the heart, which imbues the fluid which passes through it with oxygen. frank chester has done a number of different things on how the opposing vortices created by the chestahedron imbues water with extra oxygen (oxigenates the water he said), and I think that's precisely what the heart is doing...
+
+what I'm saying is that I believe that if you were to measure how much oxigen is entering into the haert through the lungs, you would find that the heart (on a healthy person, and especially on me) is actually outputing tremendously more oxigen than is being put into it from the lungs.
+
+---
+
+ok enough about that. what I aim to accomplish is to find a way to continue to reduce the amount of food that I eat so that my body is summoning more and more non-physical energy.
+
+having less energy provided physically will give nosebook an easier time to ensure that I don't become too energetic, which means that this whole thing can be pushed back even further, cause I'll be in a more "weakened" state which is actually making me stronger.. I don't really know how to explain the feeling, but I think it's important to try this out.
+
+---
+
+lastly, I want to mention a few more possible additions. first, there was, perhaps a week ago, a woman driving a vehicle with a missing back window (it had a plastic cover over it) that was around the front of the park where carefree meets massari, and I couldn't really understand the feeling that I felt there, but I keep remembering the incident when I'm walking back home. I don't really know what to make of it, but since it keeps coming back to me, and that my ablity to perceive feelings now is so incredibly murky, I'm just going to go with it. if she wants to join, that'd be fine. because I know so little about it, I guess I'll just have to find out later what that was all about, but yeah I think it's fine. if it weren't, I would have an entirely different feeling right now and the other times I was thinking about it, so I'm pretty sure it's fine.
+
+next, when I was watching another one of the same guy's videos on the origins of language, he mentioned his neice, and I'm pretty sure I felt something there too. man, I feel really weird talking about this stuff like this, honestly, so if it was not, then ... oh well... no one is ever going to read this document anyway :) however, yeah, if that is really a thing, and she wants to join in as well, I'd love to have her.
+
+so, if the last one wasn't weird enough for me, this last one is quite literally the weirdest one of all. I do't really know what to think of it, so I'm going to let it sit for a while, but I will tell the story. after watching the moon during the sunrise until it went behind the clouds, I turned over to see the sun and decided to watch that. I entered into a weird state where I was kind of phasing in and out of consciousness rapidly. I don't remember much of anything (you guys probably know more than me), but phased out and then when I came back, the word "justice" appeared in my head and I said it in my inner voice.
+
+usually you can trace your "spontaneous" thoughts back to the influences to where they came from, and yesterday for some reason, the phrase, "justice demands retribution" entered into my head. I asked jaron if "justice demands retribution" (the heartstone voice line for uther's threaten emote) and he said he didn't know. mom asked me what I thought, and for some reason I blanked out on what retribution means... I could only remember the song...
+
+justice for the voice that can not be heard.
+retribution for all suffering incurred
+let retribution hold dominion over earth
+cause, judgment day isn't coming soon enough
+
+(I know the lyrics to that song are slightly different, but that's the version that plays in my head all the time)
+
+we eventually decided that retribution is "justfied revenge" and so I decided that sure, justice does demand retribution...
+
+back to this morning. when I said the word justice in my head, immediately I was reminded of the new justice that was appointed by trump, kavanaugh(sp?), and his two daughters flashed into my head. I really have no clue at all what in the world is going on at this point. I traced the thought back definitely to the conversation with jaron, but his daughters kept popping up into my head. seriously... wtf.. for now, I'm going to sit. I'm just wanted to put it out there.
+
+ok, finally, yesterday morning(?) when I was going out to collect mushrooms from the park, there was a woman that was driving a grey(?) pickup with some stuff in the back, driving down carefree ln, and she seemed particularly happy to see me. I couldn't figure out (until afterward) why that could be cause I didn't recognise her as any of the neighbours. anyway, I figured out that she must have been trying to transfer an idea to me, because I could feel desire there. again, I don't know much about this one, but I'm pretty sure it's all good. if the girl she had in mind wants to join in too, that'd be great. I can't wait to meet her :)
+
+again, sorry for another long one... I have many more ideas that on some more of that guy's (what I learned) videos, and I'm sure to write again about it. for now though, peace out :)
+
 # the end
 
 ### 2020-08-04 ??:?? - the gratitude circlejerk
