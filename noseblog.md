@@ -4965,6 +4965,47 @@ ok, finally, yesterday morning(?) when I was going out to collect mushrooms from
 
 again, sorry for another long one... I have many more ideas that on some more of that guy's (what I learned) videos, and I'm sure to write again about it. for now though, peace out :)
 
+
+### 2020-08-08 13:13 - a few more
+
+I don't really have much to say right now. the last few days have been a lot weirder than previously.
+
+the day before yesterday(?), I was talking with jaron about gymnists... then, when walking out to the field, I was monologuing about how good (relatively speaking) it feels to come home, and even though my entire body hurt and muscles ached and hands hurt and stuff, because it's possible to see the progress, it really feels good to see the steady improvement, and it doesn't really matter so much about how much it hurts.
+
+for me star-watching is similar because it requires changing your mind to allow less resistant thoughts, and then your mind goes faster and you see better. those thoughts that need to be optimised are kind of like the muscle pains after the gym, because (in my case at least) the thoughts always involve things that are pretty unfair, and so optimising those thoughts requires me to not take score of stuff, and to follow what feels good.. well, it turns out that as soon as I open my mouth, life seems to test out how much I really mean what I say...
+
+the next day or maybe it was even the same day, all of a sudden there are these trucks that just park out on the field now. with all of the other people who I've seen out there on the field, I don't usually get very bothered by them, and in a lot of cases, feel inspired to go over and meet them. this truck is a bit different. whenever, I put my thoughts to figure out what to do, immediately, I feel strong anger.
+
+before I continue, you have to understand something about kids and very empathetic people... what the other person is feeling shows up as a manifestation of an emotion inside of me. so, if the person is feeling quite good (frisky, let's say), then I feel that too, and I quite enjoy feeling as good as some others feel about me. however, when the emotion is anger (like for example mr. motor), then I feel that too. for a long time, I couldn't figure out why when I went out to the field last year, I was unreasonably angry.. like really really, wanting to smash people's cars angry. I'm not *really* that angry, but I definitely felt it, and if I didn't have some sort of logical block to hold back behaviour, I would have probably acted on it, because I felt it so strongly.
+
+well, the same thing is happening with this new truck that likes to park across the way from where my sofa is. whenever I think about what to do, even if it's an idea like going to meet the person and introduce myself, immediately I become very angry. there's literally no action that I can take which feels good. even the idea of just ignoring it doesn't feel good to me. obviously I don't want to take action on something that doesn't feel good, so I don't but I don't really know what to do, either.
+
+this morning, I got an idea to go over to the other field and start star-watching over there. up until now, I have not seen any vehicles on that field (cept a really long time ago when I used to star-watch closer to the highway), and it was only occasionaly I saw someone when walking down. as far as I can tell, there really isn't anyone that goes there at night, so I *should* be in the clear again. we'll see how that goes, I guess. I kinda want to steer clear from stuff that doesn't feel good.
+
+it's really weird because I don't really know what is happening with that truck, because weird things like it's really difficult to pee, even if I'm facing another way and stuff... it's also really difficult to get into the star-watching vibe with him around. his mental presence is really strong and definitey affects me a lot. I'm still learning to get around it -- and because I'm certain that if I can feel it, that only means I'm resonant with it (a perfect absorber is a perfect emitter), so all this is telling me is that for some reason, I'm resonant with this guy. some form of my thought is still on his same frequency, or else he would be invisible to me.
+
+there is hope in all of this though, because -- just like how I figured out how to get around the crazy anger out on the field, and no longer be resonant with mr. motor's anger out there -- then, I can figure out how to do the same thing here, too. just cause I'm sensetive doesn't mean I need to act on the stuff I feel, and I can learn to be selective to what I want to feel[^1]. writing about it here is enough, and I absolutely don't want to engage this in person, because I'll be tuning myself (by giving my attention) to what I don't want. instead, I just want to stay focused on what I do want to experience.
+
+apart from all ot that, the night went pretty well. I did get vision upgrades, it seems that I'm continuing on to improve my control over maintaining consciousness. I'm sure I'll be able to find a way, and I'll be able to continue to adjust my attention to what I want.
+
+---
+
+so, one of the things that popped into my head last night was I had still left the one red-haired girl hanging, from the show mom was watching a while back. things feel a lot different now than they did back when I said that I wanted to sit on that one for a while. I don't feel any difficulty there anymore, so if she'd like to join, I think that would be great and I'd love to have her.
+
+another strange thing that happened was this morning when trying to figure out how to walk back to my house from the new field, I was walking up the troy ave off-ramp toward my house and right coming off the highway was a woman and (I imagine) her daughter driving by, and I felt pretty strongly the idea that she wanted to join as well. I think it's fine :) pretty crazy timing, I guess. if she wants, she's welcome to join in as well :)
+
+finally, I think it's ok if the justice girls want to join, too. this one is totally mind blowing to me, but at the same time it feels pretty to me too. I like how it feels.
+
+however, there is this weird feeling around it, which felt like, if I extended the invite, it could potentially could cause a bit of "us vs. them" thing. I don't know really who the "them" is, honestly, but the feeling was perhaps this male dominator (US govt?) thing vs. women (girls), and a resistance to women (girls) regaining a sense of their power again -- or something like that[^2].
+
+I really don't like competition, so I prefer not to perceive it. that weird feeling was essentially the main reason why I wanted to sit on it a bit, but at this stage, I'm sort of like the idea of increased contrast. while competition is a good starting place -- it isn't a very good place to try and let in what you want, so eventually those perceptions will need to be improved, but whatever. we'll get there when we get there :)
+
+[1]: by learning to tune to the frequency that I want to give my attention to, I don't need to be a victim to what everyone else is emitting... I'm referring to the conversation I had with john michael.
+
+[2]: yeah, I think, writing it like this is potentially making things "worse" by giving my attention to unwanted[^3], but I think it's ok. it creates more "contrast" -- which is just that: an enhanced difference between different colours, which makes it easier for people to begin making their own decisions about what it is that they want.
+
+[3]: I did the same thing when talking about the truck. my attention to unwanted will likely exacerbate the problem, which in my case actually makes it easier for me to begin changing my tuning... by having more extreme contrast, I can identify easier what it is I want to pay attention to. eg. turning up the contrast on an image makes it easier to identify objects amongst a bunch of noise.
+
 # the end
 
 ### 2020-08-04 ??:?? - the gratitude circlejerk
