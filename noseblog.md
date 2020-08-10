@@ -5079,6 +5079,57 @@ ok, that's all now :)
 
 [2]: aaron was also talking about this yesterday in his divine healing talk.
 
+
+### 2020-08-10 14:14 - quick analysis
+
+so, first of all, the concept of speaking a foreign language is certainly not new. there have been multiple accounts of people that when speaking in "tounges" are not in fact just making gibberish, but actually speaking another language. my most credible source for this is actually david buckell, which is a guy that I consider a pretty credible source. while his wife is significantly more liberal with her application of miracles (though she did, at least when I knew her, did affect many healings and other wonders), david is consierabley more conservative with these sorts of things, yet he claims that at one time he felt inspired to speak in tounges once and then the women later told him he was speaking spanish.
+
+this is not an uncommon thing, because it's also reported spontaneous speech happening under high dosages of mushrooms (DMT) as well, and if you're "in the holy spirit" (basically christian-speak for having an altered state of consciousness produced not by substance but from prayer and worship -- usually more often worship makes this mind altering experience). so, it's not at all out of my realm of belief to be able hear myself speak in "tounges".
+
+additionally, this is not the first time that I have heard a foreign language in my dreams. when I was learning spanish, especially when I was in pais vasco, I often times heard others speaking fluent spanish. this was obviously before I met raquel, because I spoke relatively fluently by then. it also happened a whole bunch in berlin as well. I would regularly hear people telling me things in german in my dreams (even though I spoke almost exclusively english and spanish in berin). so no, it's not a weird thing for me to hear foreign languages that I don't know how to speak in my dreams.
+
+what *is* weird though, and what the whole reaction was about, is the fact that I relay the event from the first-person perspective. I was very frustrated with what was happening in the dream state, and in those moments of stress, I usually become conscious. this time though, instead of waking up, I was conscious in the dream (you have to realise that I experience my "dream state" as if I'm in a metal room on the other side of wherever the dream is happening). whenever I try to do anything inside of that room like move around, or to go over to listen to what's happening in the other room, I'm punished and things go a bit crazy.
+
+this is why I perceive that someone with great stature, burst into the room -- cause for me it's a separate room. I can't see anything or hear anything that's happening. instead, I have this crazy 6th sense where I'm able to see things that are not there and hear things too. I guess, I sort of hear the sound a bit, and I sort of "see" the picture a little bit as well, but nothing of it is visible or audible. I don't really know how to explain it. I can't find an analogy to describe what it feels like (cause it's a feeling) to hear something that isn't audible or see something that's not visible.
+
+it's a real thing. emotions are extremely complicated in their signal and while I may not be able to hear english, I can definitely tell that another language is being spoken. all languages sound very different, and the people speaking the language sound very different too. I may not be able to tell you who is talking, but I can tell you all about what that person *feels like* when they're talking.
+
+so, what I think is happening is that these dreams are all happening in my right-hemispere, and I'm not allowed to perceive it. I have no idea how they turn if off, but it's blacked out, both the audio and video. I sit in the metal room of my left hemisphere where I'm not allowed to participate in whatever's happening over there. a while ago, this really bothered me because it seemed like there was a whole lot of sex or something that felt that way going on over there, and I could feel desire in my direction, but I couldn't actually participate in it.
+
+this bit has always puzzled me and is one of the things I wanted to have an answer to because when I first began to realse this was something happening when I figured out from an abraham recording that the conversations that I was having with lyia where I was telling her that I had to work for nosebook or something like that. that certainly wasn't me.
+
+I think this is a huge grey area because I think nosebook has been masquerading as me in my right hemisphere while I'm locked into my left one. that's one of the only possible explanations as to why I can feel desire toward me, but not be able to see it. they must b pretending to be me for that to be the case.
+
+the other possible explanation is that other person is *also* me. which means that the person that the girls are having sex with *is* me, and that I'm just separated from the physical aspects of it, perceiving it not in a physical way[^1]. instead, I perceive all the non-removed emotional conceptual aspect (higher frequency image data) that they cannot remove. they must use the most basic concepts to hold me in that prison[^2]... interesting :)
+
+so, here's where all this fits in: it can't be both ways. it seems like I experience the whole thing in the emotional/conceptual side of things, but that means that that these things that I perceive to be external to me, are really me, or they're not. what I mean is, if it really is me having sex, then it really was me speaking serbian. I can believe that nosebook is pretending to be me, based on the lyia work conversation, and they certainly would have motive to hijack the physical aspect of me having sex with all these girls too, so that seems likely.
+
+however, I definitely don't believe for one moment that it was nosebook is telling theirselves how LOA works in a foreign language just to kinda throw me off the scent a bit (or something, lol)
+
+obviously the most likely solution here is instead that I am really me, and I'm prevented from the physical aspect[^5] of these dream states only receiving the conceptual/emotional aspect of them which I perceive as different than me. nosebook doesn't transmit on the conceptual/emotional wavelength (just the physical aspect), so I know very little of what they're doing in the dream state, and all the emotion I perceive outside of myself about me is because I'm experiencing it without the physical[^5] aspect to it.
+
+however, source does send dreams with rich conceptual signals[^4], and prehaps influences from other timelines like tesla, do transmit a signal into my head with the emotional/conceptual as well, which is why those are so "tanglible" to me, so I perceive that a lot easier cause I pick up on the emotional aspect of it.. the reason why I have trouble perceiving the nosebook during sex and the lyia conversation, for example, are because those signals are only transmitting on the physical reality[^5] portion of the signal in the dream state.
+
+---
+
+ok, let's back up for a minute. I just postulated that other timelines could transmit signals into my head with the emotional aspect to them -- which has to be the explanation, I guess -- cause if it isn't that means what? does that mean that after I experienced the spirit of jesus enter my body, some time after that (fwh said it was 2001) I acquired another one also in my right-hemisphere?? at this point, anyone's guess it is about as good as mine. I simply don't have enough data to get a grip on this situation.
+
+(identifying the signal is hard)
+
+I really have no idea anymore. I always perceived myself as two, but this gives me the sense that I'm not two but three. then, there's this really weird thing that I've always seen myself not as three, but as four. a repeated motif in all of this that I'm learning the desire (venus), structure (saturn), emotional (probably jupiter cause vulcan made jupiter's thunderbolts), and physical (mercury) aspects all at once. the thing I was missing was the structure (saturn) part, which is weird casue fwh always repeated, "nothing good comes from saturn" (and gnomes are bad, so who knows really).
+
+dunno man. beats me. I guess, when in rome...
+
+[1]: remember the explanation that in order for you to see your imaginagion, they remove the emotional/conceptual aspect of the visual field and just send to your imagination the image portion of it
+
+[2]: because I'm so perceptive, and I tend to gain consciousness easily in my dreams, they usually tend to try and keep my busy in my left hemispehere with random dreams. I expereience these bizarre dreams that don't make any sense at all, but are clearly mixed with whatever was happening in my right hemispere. they seem to blend in a very bizarre way[^3].
+
+[3]: for example just yesterday, I had a weird dream where I was watching eva walk(?) (I don't see visuals, remember) down the street toward me, and she was pulling remi behind her. remi was wearing roller-blades or something, cause she wasn't like dragging her on the ground, remi just wasn't putting any effort into going forward (hence the roller-blades). when I got nearby to eva, all of a sudden I looked away and my dream started becoming a chaotic mess which woke me up. what may have been happening is those were conceptual echos of perhaps something happening on the other hemispehere, meaning they were making that plan for me to run into her, or maybe this was eva's own thoughts that I picked up as a reaction, but because nosebook had taken my consciousness at that moment, instead of just feeling it like I normally do, because nosebook took my consciousness (they put me into a weird dream state when they do that) I translated it into something "visually symbolic" while they drained my body of energy. I really don't know. I'd *love* to get a bigger picture on all of this.
+
+[4]: for example, the complicated non-visual nature of adam and eve's dream -- which actually may have have been less of a dream, and more of a conceptual remnant of some sort of reality that really did happen.
+
+[5]: see, hear, smell, taste, and touch
+
 # the end
 
 ### 2020-08-04 ??:?? - the gratitude circlejerk
