@@ -5130,6 +5130,97 @@ dunno man. beats me. I guess, when in rome...
 
 [5]: see, hear, smell, taste, and touch
 
+
+### 2020-08-12 11:09 - so many new things to think about
+
+I've been watching robert sepehr's videos and I've had a whole lot to think about. I'll probably touch on some of the ideas a few at a time, but one of the major things that I've noticed is that a lot of his videos seem to include this "less dense" energy that has been called, vril, orgone, ether, and others as well. I call that same energy "emotional/conceptual" energy and it corresponds to the 5th layer in the 7 layer model. it's very manipulatable by the mind. when I refer to it as the emotional/conceptual layer, I'm talking about what inhabits it, but in one of his videos, @[youtube](https://www.youtube.com/watch?v=HGvXP-x4TL4), a science-fiction scientist was talking about time travel (@[youtube](https://www.youtube.com/watch?v=9-HswUSsAFA)) mentions a few interesting ideas[^1], but it got me thinking about the medium that this layer is.
+
+the word "ether" seems to describe the medium (atmosphere) of this layer, while my word, "emotional/conceptual" describes more the contents (even though if you think of emotion, it more describes the environment in which thought lives). something like that.
+
+either way, the north pole idea got me thinking about these densities forming around a sphere. in the physical plane, you have the four base element states: earth (solid), water (liquid), air (gas), fire (plasma). after that, you have the 5th density, the lightest: the ether (dodecahedron). it seems that as you keep going up from this physical plane, you progressively get less and less dense until you finally reach absolute nothingness (space). this is prevcisely what we see around our own planet and seems to explain things quite nicely for me.
+
+as you continue to extend further and further into nothingness, eventually you cross the zero-point and get into the non-physical layers. this zero-point exists within the "source energy" layer in my model, and these are the higest of frequency (lowest density) elements that exist in the universe, and source has both the physical and non-physical sides to it.
+
+on each of the three layers above (the non-yet-manifest), and the three layers below (the manifested), you have these two layers which give evidence of the others. between the physical and the emotional/conceptual layers lives your imagination, and you can run anything from complete fantasy in your imagination to simulations which perfectly mimic reality on this planet[^2]. inbetween the (not-yet-manifest) desire and structure layers, you have a relational layer, which, like the imagination which isn't exactly not-yet-manifest, which makes it somewhat physical, but at the same time still non-physical (just like the imagination). imagine seeing someone walking down the street or interacting with another person -- their body language, or how they relate to their environment or others, is physcal evidence of something not-physical.
+
+---
+
+anyway, the reason why I wanted to say all of that is that in another of his videos, he talks about the vril energy, which is the sexual or creative energy @[youtube](https://youtu.be/HGvXP-x4TL4). well, these are all one in the same: vril, sexual, creative, and orgone energy all exist in this "ether". so, while I have a lot to say about that at a later time, this energy is highly affected (similar to imagination) by thought and emotion (emotion being the biproduct of thought).
+
+well, in that video it talks about your aura and how you can destroy that aura by breaking the rules of god (or something like that). I disagree. here's the comment I left on the video:
+
+> 14:54 - it's not rules that break down this field, but emotion. I think the UV light emitted by cells is a manifestation of how well you feel. the better you feel the more luminous you are. ever notice hor people after having sex seem to have a "glow" about them? the stabilisting force for this field is emotion, but since that's difficult to explain to people, instead we're given rules, because rulers need rules to hold people by. however, if you will know that this "vril" energy is all transmutated by your perception (that is how what you experience affects you emotionally), then you can wield this power and learn to become a dragon (that is, someone who sees clearly)
+
+also later on in the video it talks about white, black and grey tantra, which states that if you orgasm, then you're wasting this sexual/creative/vril energy, and that is the black (stimulation for the goal of orgasm) and grey routes (sometimes orgasm), which lead to desruction...
+
+I got to thinking about that last night, and I think that's some silly rules coming to manifest in dogma. here's my thinking:
+
+while this creative energy is quite powerful, I do agree that I want to accomplish the serpent perception (kundelini) without ejaculation. however, because nosebook somewhat regularly forcfully ejaculates me while I'm asleep, that automatically disqualifies me for white tantra. even though this is happening, it's still my goal to obtain it wihout sex as the catalyst.
+
+basically, what that energy does is essentially the same as how I've described DMT in the past. it gives you increased perception, and amplifies your emotions making you feel like you are living in a more "real" or "now" state. if you feel fear, you're not planning your next steps, you're reacting. however, if you're feeling really good, you're also "reacting" to the situation as well, but this time, because you feel good, it means that you're in tune with who you really are (your not-yet-manifest self), and are being guided (reacting in the moment to your good feeling) which sort of just lets (allows) the next bit (logical step/state) of good-feeling reality to happen, and so under those circumstances, you don't really have much future or past perception.. it's only now because reality are so real... meaning, time has slowed and you're completely experiencing all of it.
+
+you navigate this firehose to the face reality with your perception, because it's by far WAAAYYY TOO MUCH to try and process with your "slow brain" -- so, if you're prone to resistant things and you enter this state, it spells certain disaster unless you're capable of controlling your perception (finding the wanted instead of unwanted).
+
+so going back here... I think the black, grey, and white tantras are silly designations given to try and help people to avoid certain destruction. there's another thing to think about here too, because following the electronic versions, the male is tesla coil (receptor), and the female is the magnifying transmitter (emitter). the way tesla's inventions work here is the magnifying transmitter takes a small (high-frequency) incoming signal and turns it into a powerful low-frequency signal. the tesla coil is the opposite: low-frequency impulses cause high-frequency signals to be received out of thin (lower density) air.
+
+ok, now we integrate the idea put fourth by mantak chia @[youtube](https://youtu.be/HGvXP-x4TL4?t=1322) here, and he talks about holding off the orgasm, and each time you do, you create a bigger and bigger space. if you just rapidly ejaculate you will only have a genital orgasm, but if you hold it off and let it build up energy before letting it out (or not letting it out at all), then you'll having a much larger space in the orgsam.
+
+before I continue, I learned something new that I had never been able to figure out. one of the reasons why I never understood the chakra systems is because I could't figure out wtf the root chakra was. I also assumed (incorrectly) that the crown chakra is the pineal (third eye), one. they're not. I realised/learned yesterday that only 5 of the chakras have physical locations in the body, and two of them are virtual ones. I also was always given the impression that the snake climbs up from the root all the way to the crown when kundelini raises. again, I was mistaken. the waveform is a standing wave in your heart that, extends both up and down from there.
+
+think of it like a space (or an aura) expanding upwards and downwards from your heart. skipping the genital orgasm which only is felt as physical stimulation in the organ, I noticed that if more than just physical stimulation (pleasure) is done, then you begin to have feelings of this chi or vril (or call it love like the french woman did), that begins to fill this space which is expanding outward from your heart. if you can get those fluids (love, vril, chi, etc.) -- cause remember, the woman symbolises water to begin to fill this space, then when orgasm comes (it doesn't have to though, which is another thing I realised too) which are the low frequency impulses of the tesla coil, the man receives this energy through the magnifying transmitter of the woman, and that space becomes a reality.
+
+the bigger you make that space, the higher up the crown chakra lifts above your head (the halo seen around jesus and described by melchizedek) and the lower your root chakra goes down, making that ora that it creates bigger and bigger. I then realised that the reason why it is two snakes coiling up the spline is because besides the size, there is another circulating thing perpendicular to the axis of the spine which happens as well, which seems to make a vortex or something too...
+
+I guess I'll have to wait to experience it before I can talk about it better. essentially, that liquid filling that space creates a sort of extra low density medium around the person, a reality distortion field, where reality becomes manifest at the speed of thought and in perfect reflection of how you feel. (or something like that)
+
+---
+
+basically, I just took a long way to say that when orgasming[^3], I'm functioning as the receiver, and this energy is passing through her. it wouldn't surprise me that this will have dramatic effects on her.
+
+so this got me thinking, because mantak chia said that if you stop every time you get close instead of continuing on, then you increase that space. well, I alraedy experience this when I'm working on creative projects, and the idea is similar, which I want to elaborate on in the future, but I was thinking, if I can instead of stopping let's say 5 times, what if I were to orgasm after a hundred times or something? obviously, not right away, but say in a 10-15 years or so, I was thinking that I want to see how far I could take this, cause I'm sure I'll need to get pretty good at that, and I was thinking, I wonder if I could find a way to make that space to be as big as a galaxy or something :)
+
+---
+
+lastly, I have noticed that as of late, my ablity to perceive or feel the different girls has really diminished. in fact it's so bad now that I'm not really capable of tuning into any single one very well anymore. even the girls across the street, which used to be very easy for me to tune into are not very difficult to impossible.
+
+however, a strange new sense has kind of opened up a little bit for me, and I don't know what the reason is, but ever since I can't really feel any of them singly anymore, I now when trying to feel, I instead can only feel a composite of them.
+
+it sort of makes sense to me, because I think nosebook pattern maches on the signal between me and any single one of the girls, and so I may feel them a few times (like, for example, the girl from the corner of hampton I could feel all the way up until I slept), but then often times they go away rapidly, and almost certainly after I sleep they're completely gone. sometimes different circumstances can give me a new tuning key to feel them again briefly, but now, it seems that they all disappear really rapidly now.
+
+this is kinda annoying for me because for example, the copper van I mentioned yesterday that feeling went away so fast (and I only barely felt something, which when I went back to go investigate the feeling, it was gone), meaning that I couldn't really tell if it was actually a strong desire, or a kinda/sorta strength desire.
+
+ok, so off we go. I want to mention a few more possible additions now.
+
+1. last night I was reminded of this girl here @[youtube](https://youtu.be/HGvXP-x4TL4?t=407). it's really weird he left that part in the video, honestly, and I like the way she feels too :)
+
+2. the night before last, when I was walking out to the field, I was attracted to a light in someone's back yard on th corner of hampton and massari. I looked and I saw a girl. I had the pleasure of feeling her for some time afterward and I think she feels fun.
+
+3. today, on the walk home, I met an older lady. I didn't really have enough time with her to really get on her frequency, but I really liked her, and I want to spend more time with her again, cause I just liked the way she felt. anyway, I'm just going to go with my gut on this one, and I also liked the way she felt when she touched me
+
+4. the weirdest thing happened when watching a video here, I felt something relatively strongly too.. I don't know how that can even be possible. it looks like stock footage kinda, and either my senses span time, or nosebook is out ahead of my video watching, cause how in the world would I be able to see something and get such a strong reaction... total mystery to me. anyway, it happened when I was looking at these two girls here: @[youtube](https://youtu.be/ghmjIBD2Fd4?t=1659).
+
+5. going back to the copper van, I'm just going to go with it.
+
+if any of those girls would like to join in, I'd very much love to have them all :)
+
+---
+
+quick metacommentary: I said one time the phrase, "if she'd like to join I'd love to have her" -- and while it got a good reaction, I realised what I did later, and to be quite honest, I'm not a huge fan of the phrase, because it can imply some sort of posession, which is exactly what I don't really want to imply. I don't really know what to think because the reaction is kind of in favour of a bit of posession, but I tend to steer away from possession type things because I've seen it be a terrible relationship desroyer both ways, kinda actually. some times the person did not want to feel as if they were someone else's posession, and other times they didn't want to feel like the other person didn't care for them (as if they were their posession), or they cared for some posession more than thoy did for the other person.
+
+I grew up in a weird kinda cult where women were the posession (essentially) of the man, and she had to do whatever he wished for her to do. it sounds like something that could be desirable, and even myself, I tried to do everything that my lovers wanted me to do, but it doesn't work out so well. it creates an imbalance and that's what I kinda don't really want.
+
+as a result, I decided then that what I would do is to live my life whatever way I wanted and go where I wanted to go, and if someone wanted to join me, then I would enjoy their company. that's where I get the joining (meeting, rondevuing (page I was working with zaryn on)) idea.
+
+however, this idea is clearly not viable anymore. that simply won't happen, as there are so many girls. instead, I'll be almost essentially at their whim, more than anything, so if I were to look at it practically, I don't really have them, they kinda have me.
+
+my resistance to the idea "having someone" as a form posession is just a relic from my past.
+
+[1]: specifically that the speed of light is not constant, and that if you straight toward the north pole, and keep going, all of a sudden you're going south, which makes perfect sense if you think of time not as mapped on a linear line or plane, like you would imagine, but instead, on a sphere, like everything in the cosmos.
+
+[2]: I have wondered whether our imaginary simulations would run/operate/behave differently on other planets (densities) or in outer space.
+
+[3]: I'm not sure if we both need to orgasm or not. clearly this needs to be tested to find out better.
+
 # the end
 
 ### 2020-08-04 ??:?? - the gratitude circlejerk
