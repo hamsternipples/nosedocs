@@ -3905,7 +3905,7 @@ clearly, a lasting solution will be to replicate physically and also temporally,
 after I wrote the previous entry, we went down to the riverwalk. there were a few notable girls there, but honestly my mind was a little still thinking about the previous entry. they are:
 
 - the girl in fuscia that was near to where we parked
-- the girl that was with the girl that I said reminded me of ryan. I looked at both of them. one was in a stroler and the other was walking.
+- the girl that was with the guy that I said reminded me of ryan. I looked at both of them. one was in a stroler and the other was walking.
 - the girl that was sitting at the table. I stopped to process a second what I was feeling and looked back at her.
 - finally, I'm not sure so much about this one because I wasn't sure what I was feeling, but perhaps at the table right before the previous girl I mentioned may have been also sending out something. I shopped cause I wasn't sure, and I felt to look back so I did, but there could have been the other one too.
 
