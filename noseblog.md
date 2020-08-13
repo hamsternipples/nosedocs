@@ -5221,6 +5221,69 @@ my resistance to the idea "having someone" as a form posession is just a relic f
 
 [3]: I'm not sure if we both need to orgasm or not. clearly this needs to be tested to find out better.
 
+### why do they keep everything a secret?
+
+https://www.youtube.com/watch?v=gme0sJLh5yI
+
+```quote
+
+interviewer: if [the germans] had technology as advanced as flying disks, why weren't they used to combat the allied air forces at the end of WWII and why didn't they succeed in defeating the allies?
+
+vladimir: well, uh, there is...
+uh, very easy...
+I uhh, let me answer your question with a counter question -- I'v heard stories that tesla developed a "death ray", a dematerialisation ray for the US army in the late 30's. you would point it at any object: a stone, a truck, anything -- and the ray would shift the target -- the vibrations of the target off-time, basically and technically putting it in a different time continuum, making it disappear from our continuum. so, anything that you point it from here on to he horizon would disappear -- I mean, whole armies would be annihilated in seconds. why didn't the americans use this thing to demolish the germans much earlier?
+
+I mean, no government uses it's most advanced and secretive technology; they always try to keep it for a more special purpose.
+
+[...]
+
+intierviewer: was this kind of technology being hidden from hitler by his own people?
+
+vladimir: well, it's a good question and uh, quite a complicated question, but I've heard stories [... he then talks about not using latest tech stuff]
+
+interviewer: right, but the question is, hitler...
+
+vladimir: hitler opposed the use of these [weapons] on a very racial reason: he said, I'm not in the business of killing aryians.
+
+[vlad just completely dodged the question here about whether these technogies were being hidden from hitler and by pulling the racial card .. lol]
+
+interviewer: ok, but after the war, or as the war was winding down, it was obvious that the germans were defeated, so wasn't there a secret cadre of his own nazi ss that took this tecnology and took it out of the country before it could be captured by the allies?
+
+vladimir: oh, yeah yeah yeah. I think that in 42, 43, the smart guys in germany had made their own plans that they're about to lose the war and so why let's just work on some escape scenario.
+```
+
+as I was listening to this interview yesterday I was noticing vlad's talking patterns because I had the impression that he has more information than he's allowed to talk about, which means that if he's an independent researcher that was actually discovering all of this on his own and trying to disclose it, he wouldn't be holding back.
+
+so, from my perspective, I don't really understand why nosebook is trying to keep stuff so much secret. the reason why I say this is because if peole *were* to know what nosebook is doing, then they would believe in what they're doing, giving them more power.
+
+I thought well, maybe they're concerned about the PR aspect of things and don't want to look like madmen using humans for their experiments or something. after studying these different civilisations, religions, and other power structures that have existed, basically the whole thing is PR and marketing. if people are happy (eg. they don't know what's really going on), then they live in bliss and don't cause the power-grabbers problems.
+
+the picture came a lot clearer for me on this interview because I realised that there are essentially a few types of people (in their perception): those that are powergrabber, those that threaten the power structure, and those that are (blissfully or miserably) ignorant of what is really happening.
+
+those with power are almost always the power-grabbing types. it seems like occasionally, throughout history, someone sometimes obtains the affection of the ignorant and that person rises into power because the people (ignorant ones) want him/her there.
+
+the rest of the time, there seems to be an infinite number of contenders for higher positions in the power structure, which basically means the power sructure is except exceptionally on occassion composed of all power-grabbing types.
+
+---
+
+what I'm saying there is that I get the structure, but I don't get the reason why they aren't just straight-forward about what they're doing. it seems like sometimes they are, which is probably why someone like vladimir (not saying he is, but it wouldn't surprise me) is paid to "disclose" in the form of rumour their next stuff on the horizon.
+
+it seems that the higher up the power structure that you go, you raelise that everyone under whatever level you're observing is considered a peon, or someone that is expendible or replacible.
+
+so, the reason why you don't want something to be out in the open is so that all of the guys below your power level can be utilised at your expense, by keeping them in the dark. this is precisely why, considering how vlad dogged the question of hitler not knowing about the technology question so many times -- because it was kept a secret from him.
+
+hitler was an expendible front-man for the global elite, and it seems that they have no problem, and even plan/schedule certain conflicts to happen between multiple power structures below them. then, to get the LOA attraction power of people believing the "rumours" or "conspiracy theories" of what they're really doing, they employ people like vlad to disseminate that information.
+
+in a lot of ways I function in a very similar capacity to what vlad does, but no one is paying me. I'm actually discovering it as I go and writing about it here. I've read a lot of conspiracy theory crap in my life, and vlad stands out for me because he doesn't put a fear angle on it. he's just stating the facts that highest levels let him talk about. either way, I the effect I have is very similar to his, because the more I talk about what I'm discovering, the more you guys believe it, and then that (because of LOA), gives them more power.
+
+let's continue on in that interview...
+
+```quote
+vladimir: [he's talking about the tall blonde "nordics" mentioned by many in ufo encounters] these guys are, in my opinion quite probably the germans from the south pole doing genetic engineering experiments *hand in hand, with the russians and the americans* under the guidance and the tutilage of many extraterrestrial races and *the overseeing celestial management centres and power sructures that run the whole show*
+```
+
+to be continued...
+
 # the end
 
 ### 2020-08-04 ??:?? - the gratitude circlejerk
