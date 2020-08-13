@@ -5282,7 +5282,55 @@ let's continue on in that interview...
 vladimir: [he's talking about the tall blonde "nordics" mentioned by many in ufo encounters] these guys are, in my opinion quite probably the germans from the south pole doing genetic engineering experiments *hand in hand, with the russians and the americans* under the guidance and the tutilage of many extraterrestrial races and *the overseeing celestial management centres and power sructures that run the whole show*
 ```
 
-to be continued...
+I'm gonna leave this for now because this interview has some more elements I want to touch on, bu not yet. so uhh.. to be continued...
+
+---
+
+however, the whole reason why I wrote all of that was that I have really been thinking about secrets and this idea that jerry would always talk about, "keep your ideas to yourself until they're fully developed" -- and while I did show that I understand the power structure thing above, this doesn't really apply to me. I fit clearly into the caterogy of someone threatening their power strucure, but I fit into the category of (blissfully/miserably) ignorant. I don't really know their power structure and I don't really care much either. you'll never see be trying to do a power-grab.
+
+you'll notice that there are only three types here. there should be 4. let's make the table:
+
+| ignorant | miserable |
+|    yes   |    yes    |
+|    yes   |    no     |
+|    no    |    yes    |
+|    no    |    no     |
+
+so what's happening, the more I learn, I relise that their objective is for you to be miserable (like them) and ignorant. the reason why they want you to be miserable is because all of the good stuff happens when you feel good, and if you have the money and the power, you can control and obtain pleasure much easier. there are always these wierd allegations of these crazy bankers and world leaders doing some crazy hedonistic stuff.
+
+I'm beginning to get the impression that it doesn't really matter that much if you know what's *really* going on, because they use that in almost all cases as a way to control us through fear.
+
+so, I'm learning that it doesn't raelly matter all of this crazy stuff that they're doing or whatever, because in the end, it all has to do with how you feel. when you can feel good, no matter the situation, then your reality must conform to that.
+
+one of the funny reactions to all of this stuff I had been talking about with timelines is that I'm constantly explaining that it's not the *decisions* that you make which make a fork in time, but the way you feel. in fact all of the infinite versions of you that feel slightly different exist all at the same time and *you* consciously navigate them with how you perceive things (how you respond to what you observe). so, even if they do have time machines (sounds like they do now from this interview), it doesn't matter because everyone, including them, we're *all* traveling in their own timelines based on our perception, even if some of us have time machines and the others don't.
+
+what I mean is, if one (or a group) of them goes back to correct some event in the past, they're only correcting it in *THEIR OWN PERCEPTION* -- and if you feel different than what their reality feels like, you are living in different timelines, and there's nothing they can do about it.. we do exert a little bit of influence over each other with where our conscoiusness is located in the infinite porbabilities that are possible, but the way you perceive is entirely up to you. they can kind of influence your perception with thoughts and ideas to get you to believe different things, but your reality is still determined by how you feel.
+
+so, let me go back to the original topic of keeping things a secret. as you may know, secrets are pretty close to impossible for me to keep, and by trying to keep information from being known, it puts it out there. you can't not think about something or turn your brain off, so I basically don't get an option to "keep my thoughts to myself until they're fully developed."
+
+I have found out that when nosebook is trying to make all of my thoughts out in the open for them to see, they are giving massive amounts of attention to my thougts, and therefore making them a reality. they can try to physically push that reality back in time or try to steer me away from it, but their attention to that thought has made it a reality. *I* personally don't yet experience that reality yet because I don't feel like that reality feels, *yet*.
+
+we (all of us) may share a mostly similar reality (90%+) for some time actually, because I'm quite content to keep using them to power up and it seems that this is precisely the thing that I (from my broader perspecive) really want to do. I really want to accomplish this dragon/serpent perception without using sex, and it really is quite a great opportunity for me to continue on like this doing that. and, I think, that if everyone else would take a much broader persplctive on things, the majority of us are benefitting greatly well from the experience, too. it seems to be a win-win for almost everyone involved.
+
+so, I'm really enjoying not keeping any secrets anymore. I get 100% of the benefit of LOA actually strengthening the idea instead of aborting it.
+
+when someone else becomes aware of an idea, immediately their thoughts become a part of the concept, and now it's no longer the pure idea that it once was, because everyone else will see it slightly differently than you do. these are contradictory vibrations that now begin to work against the idea.
+
+in quite a instances, I use this to my advantage by purposefully getting them to push against something. at the very beginning, they can push against it, and delay it's formation into reality, but by pushing against it, they have made it more of a reality, and it would be impossible for them to push against an idea forevermore. eventually, when they stop trying to block that idea, it has much higher chance of manifesting. then, if I tell you guys about it, they certainly can't push against all of the different ways you guys will perceive the same idea all at the same time, forevermore.
+
+let me give an example: yesterday I told chris about this idea that I had for teaching kids how to practise/exercise creating stories with others in a shared space. it's one of many ideas I have on the subject, and I figured it would be met with some significant resistance, but I wanted to get it out there. later, I was thinking about how this interface would look, when I watched a video on chapter 11 of "think and grow rich" where he describes how to use the creative imagination to "discover" the unknown parts of the problem. it was clear to me that this was exactly the missing piece for beginning to think about the interface and the story telling process.
+
+I managed to make progress on the idea, even dispite the resistance I felt from it. I'm learning that this is the key, because here's what happens: when someone adds a resistant idea (something in contradiction to the idea) in relation to your concept, then you only feel and are affected by that resistance if you're resonant with that resistance.
+
+so, when I feel the resistance in an idea, that resistance is a reflction of *me* and my preception. alls they did is activate something I'm harmonious with (even if it doesn't feel good). this is a great indicator of what I can do to change my perception, as I change my perception, the idea begins to flow again.
+
+I decided to work on this idea like this, because I noticed that there's a whole lot of resistance around using my computer and programming, but designing a story-telling technique for kids to begin discovering and experiencing each other's story in their imaginations doesn't require a computer or a phone.
+
+---
+
+what I'm saying is, another's person's resistant perception of your idea, will cause its abortion, so if you're a particularly resistant person, then I think "keep your ideas to yourself until they're fully developed" is the best way to go (even though nosebook has access to everything). however, if you're a pretty resiliant and non-resistant (or want more practise becoming so), then no secrets, and even perhaps telling people about your ideas to find out where your resistance is -- then, modifying your perception to allow the idea back in again, may be of interest.
+
+I have many more thoughts on the subject.
 
 # the end
 
