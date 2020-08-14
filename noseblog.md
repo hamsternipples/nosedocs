@@ -5332,6 +5332,86 @@ what I'm saying is, another's person's resistant perception of your idea, will c
 
 I have many more thoughts on the subject.
 
+
+### 2020-08-14 08:49 - the bigger picture
+
+first of all, it's funny to get reactions from the higher ups now. they feel very different. I don't want to say that they're non-resistant, but they definitely feel more "effortless". I mean, I guess it makes sense if you're that far tecnologically advanced from everyone else and above so much of the nitty gritty conflict and details that we're so accustomed to.. they're still not 100% non-resistant because they're involved in scheduling and influencing different factions below them to wage battles controlled conflict.
+
+as I've been getting in their heads the last few nights, it's been kinda funny because I'm a complete anomaly to them. they don't at all understand me because they superimpose their ideals of power and strength from their own perception on to mine, and it just doesn't work. they believe in physical influence and manifestations (conditions) as what are necessary to feel good about their situation. conditions are evidence of how much control and influence they have over their reality. when conditions are good, and they feel their superiority, then they feel good.
+
+I do not have this luxury. they insure that I have as little ocntrol over my conditions as possible. I don't have any money or really any people that I directly have any control over either. almost all of my conditions are completely at their whim.
+
+so, you may wonder why, if what I said about everyone's reality is a reflection of how they feel, why my consciousness remains on the same timeline as their's. if I really feel as good as I say I do, then why am I not going off to create my own reality.
+
+this is an important key to understanding what is happening: I belive *all of us* are benefiting greatly from this time where we're all on the same timeline. said a different way, I believe that almost every human has a slightly different timeline they are running on, and each of these timelines are individually optimal for each person. however, it appears like virtually all of us are on the same timeline right now because of the massive expansion that is taking place at this time. there simply isn't a timeline alternative that could cause a faster expansion for any single person. there could be ones that go faster then slow down, but in the long-term, I'm fairly certain that where my perception is at, is probably the fastest overall.
+
+I am getting closer and closer to, and reperesent the centre point (the zero point), where slight variations take place, but where things are most linear. in addition to nosebook's efforts, I also self-limit and self-sabotage so that my progress is linear. by linear, I mean that I have a linearly increasing rate of changes. I'm not really having that *many* more changes per month, let's say, and the quntity of those changes is increasing linearly, however the magnitude or quality of those changes are increasing at an ever more rapid rate.
+
+in a sense, I am not seeking, and am being withheld (for example, by making sure that I don't get to smoke weed or something), so that the quantity of changes does not increase too much, but instead because all my changes are done internally in my perception, the *quality* of those changes is tremendous.
+
+---
+
+so, you can imagine that if the quality of my changes is increasing at such a rapid rate, you must now begin to understand why I think it's quite important to *not* have the manifestation.
+
+once the manifestation begins, then the quantity of changes will increase dramatically, however, the quality will take upon itself a sort of "trajectory" now, as all of that potential energy is now coverted into kinetic energy. the quality of those changes will now depend on largely the conditions of that trajectory.
+
+---
+
+so, the reason why I'm so difficult to understand is that from my perspective, I too do *not* want the manifestation to happen. I actually prefer that it doesn't.
+
+these guys love to plan and try to figure out everything, but I'm just the opposite. the reason why I prefer that they steal my ideas, or try and shut down the next thing that I want to do, is because in doing so, LOA auomatically creates a newer thing. all I have to do is just consider that old one that was shut down or stollen as "outdated" and begin to tune into the newer one that's already waiting for me.
+
+simply put, I've proven to myself that there are no circumstances which prevent me from beign able to find the newer version of whatever it was, so as long as we delay the manifestation, the more advanced, attractive, and desirable it becomes.
+
+---
+
+now, let's take the concept that put froward in the previous entry where I talked about when someone else's perception introduces contradictory vibration (impedance) into an idea... that contradictory vibration (impedance) only affects me *IF I'M RESONANT WITH IT*.
+
+ok, so imagine now the hypothetical scenario where I don't ever get the manifestation and somehow after some time I jus vanish or something. well, that idea/concept still exists and LOA is still atracting more and more cooperative components to it, and deravative versions of that concept also exist in the minds of so many more who have been exposed to the idea (some of those derivatives are contradictory and others are harmonic).
+
+now that idea/concept will begin to become manifest in the larger human species, and it'll happen when those who will be able to allow it to manifest exist on this earth -- essentially, what I mean is, people who no longer offer any contradictory vibration to its manifestation -- people, who are capable of vibrating more powerfully than I am right now. I say more powerfully, because if they can prevent me at this point, then they can prevent the future humans just the same and probably moreso, so for it to become manifest would require a much stronger force than I'm putting out right now.
+
+so, from my perspective, it makes perfect sense, and I have nothing to lose here. I'm constructing a concept which people's attention to it and LOA is causing it to expand and evolve to where it's manifestation is inevitable. so, from my perspective, I want to continue to work on the quality factor as long as possible. see what I mean? I do not want the manifestation for as long as possible, if ever in this lifetime.
+
+but then, you have to wonder to yourself, how long will I live for? nosebook has more information on this than I do, and I can't answer these questions, but compare me to other age groups. am I getting old? at what rate? if you map my life's trajectory on to the average human life, where am I at, and how long from now will I die? I get the sense that I kind of defy all known models of human growth and development, and far exceed expectations in this regard.
+
+I have kind of given a good excuse to "vanish" in the year 2038, because of how many times I've mentioned that date as some sort of cutoff, and knowing what I know now, I'm willing to take the "fall" in that respect, because what I'm creating will have such a dramatic influence on everything, you cannot even begin to imagine how different things will be in 18 years.
+
+---
+
+the way I see it happening right now (which is subject to change at any time), is that this whole girls thing is kind of like a "seed" -- and we should create a sort of new thing. I'm pretty certain that we're going to begin to be the start of a kind of new thing. it's pretty unlikely that I'll be doing any sort of real science here as kenny, but I've put out a few different thought experiments and some other ideas which seem to suggest that I'm heading in the direction of a multi-bodied experience.
+
+at the same time, let's say what vladimir is saying is correct, which basically means that the aryans have colonies in different planets here in this solar system, and on others as well. it seems they have cloning technology as well[^1], so they're likely populating the galaxy with their clones quite prolifically.
+
+I have to wonder though, to what end? where are they going with that? are they trying to get it all set up with their guys in charge, then eventually the humans will arrive to a system with an order already established. I don't feel like that's their goal. I think they want to keep it all a secret and try to keep humans confined to this planet for as long as possible. this is what I'm going to assume anyway, because I doubt otherwise.
+
+another aspect to consider is that it's easy to see that they can have their clones and stuff and keep the humans confined here, but if those other colonies of theirs have any sort of free-will, then they will need a power structure of some sort, which means some sort of inequality.
+
+I have no idea how that will work out, and I kind of seeing it going one of two ways: 1. the aryans all around the galaxy are developing ever increasing technology to kind of hold the humans down as much as possible (the inequality will be us vs them) or 2. that individual per star and then each of planets will have descending power structures, complete with class systems and heierarchies.
+
+if I had to guess, I would say both, because there's no way I could see them having a flat power structure, ever, and I would also say that they need to have a sort of competition thing in order to unite against something.
+
+that means that the majority of their system will be filled with power-grabbers. it's porbably pretty likely that there will be others that are not power-grabbers, but I don't know what they'll do with them, but their system will need to optimise for power-grabbers types in order for the "us vs. them" competition to work.
+
+no matter how I work it out in my mind, and I could be wrong, but it seems that there will be an eventual competition, a david and goliath sort of scenario, that comes about eventually, where earth will continue on getting more and more energetic as time goes on. I imagine that they will eventually perceive this entire planet (or solar system) as a threat to their power structure. if we were able to eventually gain the ability to go out to other solar systems in the galaxy, then what would they do?
+
+(more on this later)
+
+I'm pretty sure that they're so far away from making a orderly resolution, that they have to keep going the way they're going and try to maintain their superiority for as long as they can.
+
+sorry this section wasn't clearer. I don't really know a good way to convey those ideas better. I'm really failing hard on this. I can't get something like that out into words very easily. sorry about that. the feeling though is what matters the most.
+
+---
+
+either way it happens[^2], I believe that eventually the humans on this planet will have a lot better chance of defeating goliath, because of our genetics which are much more diverse than their genetics are (which would be mostly clones and genetic alterations of their superior super strain).
+
+what I mean is, it's all good, and no matter what happens, they'll be forced to fight against it all, which means that because of LOA, we'll eventually become non-resistant enough to have whatever we desire, which is the goal, I think.
+
+[1]: vladimir didn't explicitly say it, but he almost did, and I get the sense that they do, especially since fwh kept talking about it too... which means it must be a real thing.
+
+[2]: whether I personally see the manifestation of getting connected and subsequently the girls, or not...
+
+
 # the end
 
 ### 2020-08-04 ??:?? - the gratitude circlejerk
