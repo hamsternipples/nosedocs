@@ -5412,6 +5412,31 @@ what I mean is, it's all good, and no matter what happens, they'll be forced to 
 [2]: whether I personally see the manifestation of getting connected and subsequently the girls, or not...
 
 
+### 2020-08-14 11:18 - a few more
+
+I decided to make this separate this time. there are a few more girls that I want to invite to join if they want to.
+
+things have transformed a bit over the last 24 hours. I was going to make a 'maybe' catogory because I just wasn't sure about how I was feeling on some of them and didn't feel like I have enough information to make a good decision, but I've kinda realised that in all cases things are subject to change anyway, so it's not like it's a big deal. I respond mainly to how things feel more than anything. I am aware of some contradictory vibrations going on, and at first I didn't know what to do about it, but I've since changed my opinion, because I believe that more contrast is *better* not worse. I don't want a total disaster, but having some things that aren't optimal, I believe actually produces a better result in the end (see my previous entry for some disjointed thoughts on that).
+
+I actually also am somewhat convinced that this is going to be a pretty big and new thing, so it's worth getting some bad ideas in there kinda like strawmen to knock down easily and get some inertia around improving on old ideas. ok, so here's the list.
+
+- yesterday jaron had a picture on facebook from connie at his church. a girl was holding a zucchini. she's definitely invited.
+- I was watching another video @[youtube](https://www.youtube.com/watch?v=y7cwDR0YYek) and I felt some pretty strong desire when some russian folk singers came on. I honestly can't really tell which one I was feeling, so I don't really know what to say there. I suppose it doesn't really matter though, so I figure we'll figure that out later or something when it becomes more evident. the ones that are "qualified" are invited though. if that means all of them, wow, ok cool... lol
+- at the same house in the part with a tramploline in the back yard, another girl was in the back yard the previous two mornings.
+- girl in pink that was dodging the sprinkers in the park this morning as I walked by.
+
+they're all invited. I feel good about them.
+
+---
+
+I feel uncertainty on these, and I don't really understand, so I thought I'd list them out here..
+
+- I've felt some werdness around sam, derck's sister. I remember that I expressed interest in meeting her because I'm very interested in blind people, because I've very interested in the world which cannot be seen, but can be experienced. I suppose this is the emotional world, but I actually "see" and "hear" it. I later felt some pretty strong desire from her or around the subject in general. I don't remember that I ever said yes, but then for a few days I've felt some strange fellings around her in general. I dunno what has happened. I'm just saying it.
+
+- mantenemiento guy (I really don't know how come I can't remember his name right now. I definitely know it though. I'm sorry): in this case I felt some times a few times some weird things, and sometimes they felt like desire, but there was a whole lot of contradictory stuff and it was a whole lot of a mess of feelings. another thing is I keep "forgetting" and it feels like there's some sort of expectation on "forget" or something there too. there's a lot of mixed feelings and stuff in there. all you have to do is to, instead of expecting things, change what you see so that it feels like you're heading in the direction of what you want, and things will clear up and go a lot smoother.
+
+- girl in the black mask at the yard sale today (her daughter maybe)? I felt something good from her, but I can't tell what it was. I'll let it concrete up a little more.
+
 # the end
 
 ### 2020-08-04 ??:?? - the gratitude circlejerk
