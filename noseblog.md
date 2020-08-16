@@ -5437,6 +5437,75 @@ I feel uncertainty on these, and I don't really understand, so I thought I'd lis
 
 - girl in the black mask at the yard sale today (her daughter maybe)? I felt something good from her, but I can't tell what it was. I'll let it concrete up a little more.
 
+
+### 2020-08-16 06:31 - remembering the future (and planning the past)
+
+I woke up this morning thinking about film and acting and stuff. I think that one of the things that people like about movies is that the scenes are like kinda small snapshots of a moment in time. they allow you to skip the transitions between the scenes and focus the viewer on what's meaningful about the scene. it's very similar to how memory works.
+
+for me, a memory is very similar in that I can only remember the parts that have *meaning* to me. the composite interaction of those elements contained in the memory fill me with an emotion which *is* the memory. essentially, the emotion or the meaning is the memory (for me at least, however, I think it works pretty similar for people who are more visual as well; they just see more of the details).
+
+film in large part is using details to imbue the scene with meaning and emotion. I was a very detail oriented kid and I was always fascinated at trying to find patterns of different props in the scenes I would watch. unintentionally, and also intentionally these props, are recogised by the viewer as a sort of symbols which add additonal meaning to the scene. for example, the number 11, my favourite number appears in movies a lot -- or myabe, I just was only attracted to see them.
+
+either way, these symbols are likely to be noticed in an unconscious way by the viewer, and even if they aren't, what I think is happening, is the person (writer? director?) who put them there has a reason for putting them into the scene, and because those props have meaning to the creative person putting them there, they embue the scene with additional emotion. these symbolic props add emotion into the scene so that the viewer can catch the feeling of the scene easier because no transition is made.
+
+so, because no transition is made, these symbolic things need to convey a sort of emotion rapidly to the viewer, essentially tuning (by way of symbolic recognition) the viewer into the emotion that the creative has put into the film. this emotion isn't stored or transmitted over the medium of the film (in the pixels or sound or whatever). instead, these symbols and the emotion or meaning they convey lives in a mental universe, which the viewer tunes into (by way of symbolic recognition) while watching the film.
+
+---
+
+ok, so that's the premise there. what I was noticing is that film is very similar to how we organise and access memory of our experiences. I was noticing that there seems to be this sort of disjoint for actors (and perhaps people who watch a lot of films) when it comes to the transition part of life..
+
+I was very much this way. before I had my brain haemorrhage, I watched a lot of movies and stuff. it was a very difficult thing for me because I had trained myself, so that I could be a certain way in one situation or another way in another situation. I was perhaps a bit mechanical in my approach to life, seeing it like a series of scenes and trying to adapt my behaviour to match the "scene" I was in.
+
+however, there was this huge problem for me which I couldn't figure out which was how to transition into the scene that I wanted to be in. it seemed like I had no control over the scene that was happening around me, and I wasn't always sure what to do or how to act in new never before experienced scenes. like an actor, it took me a good 3-10 times of experiencing a certain scene where I would eventually feel comfortable acting in the way that I determined was the best way to act/behave in that scene. so new scenes were kinda difficult for me if I didn't have some easy way to practise them.
+
+another difficulty was transitions. if I was in one scene and I wanted to move to another, I didn't really know how to get there. this manifested most for me in relation to talking with girls (hence why I began to invest so much time into figuring out how the PUAs worked and processed their environment).
+
+at the height of this frusration I had a brain haemorrhage, and was completely reset. I think there are a number of factors in play here because the old me would try and control the scene, and try to force these unnatural transitions between scenes. now, as a person that's paralysed I had to just kind of start going with whatever, cause I didn't really have much control over stuff anymore.
+
+I have more insight into why this was a huge change for me, but I'll save it for another time. I want to get to the conclusion here.
+
+---
+
+so let's take a typical scene sequence where two people are in a coffee shop and they're having a good conversation. one tells the other that she likes her hair and maybe some witty repsonse back from jane. some sort of amazing eye contact happens, and a more golden light is shining on them (to show warmth), and they both come to the conclusion that they want to leave, saying something like, "you wanna get out of here" (I'm trying to make this as cheesy as possible).
+
+next scene you see them grabbing their coats from the coat hanger next to the door and walking out into light snow. the following scene they're at sally's house.
+
+ok, there's a HUGE amount of information that's missing here. the entire ride home is missing, the walk to the car, etc. there's a whole lot of potential for uncomfortable situations in there. when the next scene arrives and we're at sally's house, our brain automatically knows and assumes that the transition went well, cause otherwise there would have been another scene.
+
+this is exactly how memory works, because if there was an uncomfortable event in there somewhere, surely you would remember it, right? actually, using my technique you can change your perception of the past, and those uncomfortable memories will actually be difficult to access, because they no longer bring you shame or discomfort -- but that's for another time.
+
+---
+
+what I realised this morning is that if I insisted on living my life like it were a movie[^1], what I could do to make these transitions clean is to perceive things a bit backwards.
+
+because you're perceiving your future like a movie, which means like a memory, you would want to retrain your mind to *remember the future* and *plan the past*. let me explain.
+
+if you think of a character in a scene, they have their entire life's past leading up to that moment, which is going to affect the planned responses that are going to happen in the scene. this history is going to shape the events of the character, as some sort of response.
+
+so, let's say the character (you're playing in your mind) has had some terrible time finding something they were looking for, something very important which means a lot to their family, or something makign it important or giving it meaning. this is the connecting thing to start up some conversation with some amazing new love interest or something like that.
+
+now, you can begin to remember the future. it's kinda hazy and will develop as the story unfolds. so, just like when you're listening/reading/watching a story you can kinda guess the elements of it (because there are not a whole lot of different types of stories), but the details are the exciting part, because they're unique.
+
+---
+
+ok, last thing here is to explain the emotional aspect of things. in life, when you're in a situation you often cannot tell what is the right (that is best feeling) transition between scenes, but you surely can tell when it's not right, cause it feels uncomfortable and unnatural or contrived.
+
+this is the part that I really want to get to here because I want to explain that it's ***not the scene*** that's unnatural, but the actor. I have seen actors in movies make some of the most bizarre, mind blowingly ridiculous scenes appear natural. to me, this is a total mind-bend, because they can't possibly ... (hehe yeah) they probably look at my life and I make the most ridiculous mind-bending reality seem relatively natural, too. it's true.
+
+ok, lemme think about what is the difference here. that distracted my train of thought. brb.
+
+---
+
+I'm actually going to end it here because there are some more things I want to think about first.
+
+however, my first instinct when it comes to what the difference is, I think it has to do with the actor's comfort level in the charactor. I'm very comfortable with myself. myself is an artificial construct though. I'm a composite character that I created after my brain haemorrhage, and have cultivated since[^2]. if there's something I don't like, I just swap it out to something I like better. it makes it easy to be comfortable with myself, and it makes it easier for me to modify these different personality constructs too.
+
+if you are your own creation, it's easy to feel comfortable with yourself.
+
+[1]: I don't recommend it, and as I continue to explain what I've learned from my brain haemorrhage, you will notice that learning how to feel/be natural (instead of trying to hide it) in all situations is superior
+
+[2]: this is probably why I have insisted on using the form of identity (planet) with many muns (personalities), way of creating websites, because it's kinda modeled after my own personality type.
+
 # the end
 
 ### 2020-08-04 ??:?? - the gratitude circlejerk
