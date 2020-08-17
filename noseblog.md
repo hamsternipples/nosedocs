@@ -5629,6 +5629,10 @@ ok, so here we go:
 
 *shakes head*
 
+### 2020-08-17 08:08 - this probably is the self-sabotaged version...
+
+lol. prepare for hilarity to ensue :)
+
 # the end
 
 ### 2020-08-04 ??:?? - the gratitude circlejerk
