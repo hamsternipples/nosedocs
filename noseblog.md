@@ -5504,7 +5504,123 @@ if you are your own creation, it's easy to feel comfortable with yourself.
 
 [1]: I don't recommend it, and as I continue to explain what I've learned from my brain haemorrhage, you will notice that learning how to feel/be natural (instead of trying to hide it) in all situations is superior
 
-[2]: this is probably why I have insisted on using the form of identity (planet) with many muns (personalities), way of creating websites, because it's kinda modeled after my own personality type.
+[2]: this is probably why I have insisted on using the form of identity (planet) with many muns (personalities), instead of 'users' for websites, because it's kinda modeled after my own personality type.
+
+
+### 2020-08-16 21:26 - a few more, again
+
+I don't really understand this at all, but I'm going to go with it. the other night when I was out watching stars, I felt pretty good about the idea of there being more, as I do now, however today it felt weird for some of it.
+
+for example, I watched another fall of civilizations video and I felt something strong at this part here @[youtube](https://youtu.be/d2lJUOv0hLA?t=7081), which I found strange once again. how can this possibly be happening??? what I mean is, is the reaction induced by nosebook or someone like that? it looks to me like it's kinda like stock footage, and like the one in the previous one, it made me sort of question my ability to feel stuff. in short, I don't really know. I don't think it really matters though.
+
+---
+
+I also want to talk about a strange experiene that I had the other night too when I was out star-watching, and it seemed like I was starting to kinda get into the heads of higher and higher levels of command, and there were these really bizarre reactions that I was getting. I don't really know how to explain this so I'll just shoot it out here, and you can come to your own conclusions as to what they mean.
+
+ok, so remember the robert sepehr video with vladimir where vlad[^1] was talking about these aryans that moved to the south pole and they setup a base there? well, in addition to that idea I started noticing the last week or so some different questions as to why I believe so strongly the different (than anyone I have ever heard) narrative of thoth's interaction (making himself a 'god') with the planet mercury, and the semite's response to that by summoning the planet venus (lucifer), which eventually became manifest in human form.
+
+earlier this week, I was speculating on a dream and I talked about different evidences for a few planetary influences I had on my life, namely venus and mercury. I also did a long section on self-sabotage where I speculated that not only had jesus self-sabotaged, but so did tesla[^2]. I thought for sure that concept would receive pushback, but I had none. it seems that the people who usually disagree with my crazy ideas, also believe that tesla self-sabotaged.
+
+so, back to vlad, and in another section of that interview he explains that tesla's "death ray" was actually a machine that "you would point it at any object: a stone, a truck, anything -- and the ray would shift the target -- the vibrations of the target off-time, basically and technically putting it in a different time continuum, making it disappear from our continuum" -- which I recognised that the self-sabotaged tesla kinda duped the army a bit. they sold him this "weapon", essentially so that he could test out large-scale time travel, and then he suddenly died from natural causes shortly thereafter. lol.
+
+remember that tesla I equate to mercury (thoth) in my mind, and he loves pigeons a lot. venus is always symbolised by a pigeon or a dove.
+
+so then again around the same time, I had a really strange find on the internet regarding the planet vulcan, with an article by asimov on the "coincidence" of the planet vulcan, @[the planet that wasn't](asimov/the-planet-that-wasnt.md) where he basically shows that with newtonian physics, you need another planet there to explain mercury's orbit. this planet was called vulcan because it must orbit so close to the sun. he concludes like this:
+
+```
+Vulcan, you will remember, is the equivalent of the Greek Hephaistos, and the most famous myth involving Hephaistos goes as follows--
+
+Hephaistos, the son of Zeus and Hera, at one time took Hera's side when Zeus was punishing her for rebellion. Zeus, furious at Hephaistos's interference heaved him out of heaven. Hephaistos fell to Earth and broke both his legs. Though he was immortal and could not die, the laming was permanent.
+
+Isn't if strange, then, that the planet Vulcan (Hephaistos) was also hurled from the sky. It couldn't die, in the sense that the mass which supplied the additional gravitational pull had to be there, come what may. It was lamed, however, in the sense that it was not the kind of mass that we are used to, not mass in the form of planetary accumulations of matter. It was the mass-equivalent, instead, of a large energy field.
+
+You are not impressed by the coincidence? Well, let's carry if further.
+
+You remember that in the myth about Kronos swallowing his children, Zeus was saved when his mother substituted a stone in the swaddling clothes. With a stone serving as a substitute for Zeus, you would surely be willing to allow the phrase "a stone" to be considered the equivalent of Zeus."
+
+Very well, then, who flung Hephaistos (the mythical Vulcan) from the heavens? Zeus!
+
+And who flung the planetary Vulcan from the heavens? Einstein!
+
+And what does ein stein mean in Einstein's native German? "A stone!"
+
+I rest my case.
+```
+
+a stone, huh? imagine you are tesla and you want to self-sabotage. you need someone to ensure that no one figures out how electricity really works. in @[tesla's 1899 interview](tesla/1899-interview.md), he not only disagreed with einstein and faught against him (giving him more power), he also had this to say:
+
+```
+If Einstein had heard these sounds, he would not create theories of relativity. These sounds are the messages to the mind that life has meaning, that the Universe exists in perfect harmony, and its beauty is the cause and effect of Creation. This music is the eternal cycle of stellar heavens. The smallest star has completed composition and also, part of the celestial symphony. The man’s heartbeats are part of the symphony on the Earth. Newton learned that the secret is in geometric arrangement and motion of celestial bodies. He recognized that the supreme law of harmony exists in the Universe. The curved space is chaos, chaos is not music. ***Einstein is the messenger of the time of sound and fury.***
+```
+
+imagine now that you're tesla and you need to self-sabotage, you would need a stone and an energetic thing that cannot be measured, or to quote asimov regarding vulcan, "Isn't if strange, then, that the planet Vulcan (Hephaistos) was also hurled from the sky. It couldn't die, in the sense that the mass which supplied the additional gravitational pull had to be there, come what may. It was lamed, however, in the sense that it was not the kind of mass that we are used to, not mass in the form of planetary accumulations of matter. ***It was the mass-equivalent, instead, of a large energy field.***"
+
+tesla would need mass-equivalent of a large energy field to be present in the solar system to prove einstein (a stone) right... lol.
+
+ok, even weirder, if jesus were to self-sabotage, what would he need? a stone... what does "peter" (pierre, piedra) mean? lol.
+
+anyway... that was all far too strange of a "coincidence" for me. again, around the same time I was met by another one of robert's videos @[youtube](https://www.youtube.com/watch?v=lssD-UJgyUo) where he talked about the potato lacking diversity. robert has a weird way of taking these backward stabs at the aryan thing in his videos, so even though he's talking about the polynesian spread of the potato, his introduction felt strangely suspicious to me... I have to wonder why he chose to start off that video with the idea of a lack of genetic diversity in the potato leading to massive disaster...
+
+anyway, it caused me to think about this idea of a competition. I've always been fascinated by this idea of a competition because in teslas autobiography, he says:
+
+> [referring to commercial resistance to his world system] I am unwilling to accord to some smallminded and jealous individuals the satisfaction of having thwarted my efforts. These men are to me nothing more than microbes of a nasty disease. My project was retarded by laws of nature. The world was not prepared for it. It was too far ahead of time. But the same laws will prevail in the end and make it a triumphal success.
+
+> [referring to further development and research on his wireless technology] But universal evidence unmistakably shows that the best results are always obtained in healthful commercial competition
+
+those quotes always stuck in my head, and the part specifically about the competition seemed to contineously echo with me. originally I interpretted it as that I would be able to rediscover and finally share with the world this wireless technology. I want to do it differently than just pure science, because like tesla, for me science is inseparable from the laws of the universe (LOA), and is also impossible to separate from poetry and art. or, you could say that you cannot separate the vibrational aspect from the spiritual aspect; they are one in the same and both science (physical) and spirituality (non-physical) are evidences of each other.
+
+seeing myself as both the moses and the elijah, this sort of idea seemed quite natural to me, because for me moses was the one that prepared the age, and then elijah was the one who gave the people the capacity to bring its manifestation (through the office of the prophet). of said another way, moses summoned venus, and elijah gave people the ability to conjure its manifestation (through the story telling of future events through prophecy). therefore, it would seem natural to me that I could both be the announcer of the age, *and* also the one who implants in people's minds the concept (environment) in which their own reality manifestation can occur (of it and other things). tesla talks about this in a few places in both his autobiography and the 1899 interview (I cleaned up the english):
+
+> I discovered a star that by all the astronomical and mathematical laws could disappear, and it would seem as if nothing has been modified. This star is in this galaxy and its light can occur in such density that if you were to fit it into a sphere smaller than an apple, it would be heavier than our Solar System.
+
+if E=MC^2, then why is he talking about light with a desity so great, that it has a weight greater than our solar system :)
+
+> Religions and philosophies teach that man can become the Christ, Buddha and Zoroaster. What I’m trying to prove is wilder, and almost unattainable. This is what to do in the Universe so every being is born as Christ, Buddha or Zoroaster.
+
+this light, is as said in another part of the interview, a measurement of what we would call "source", and he's talking about making humans have that kind of light density.
+
+> I know that gravity influences everything you need to fly and my intention is not to make flying devices (like aircraft or missiles), but instead to teach the individual to regain consciousness in his own wings...
+
+he's literally talking about humans flying, like angels.
+
+> Furthermore, I am trying to awaken the energy contained in the air. These are the main sources of energy.
+
+now, he's talking about the method in which this becomes possible. it is, in conjuction with what he just said about consciousness light density, additionally making the air become significantly more energetic.
+
+> What is considered as empty space is just a manifestation of matter that is not awakened. There is no empty space on this planet, nor in the Universe.. In black holes, what astronomers talk about, are the most powerful sources of energy and life.
+
+this is what I realised when I was stoned the last time. I could clearly see that you have wanted, unwanted, and then the absence of wanted, and the absence of unwanted. these are *4* different things. first, let's map them on to two axises: they go from 0 to 1, where 1 is wanted (x-axis) or unwanted (y-axis). however, space is not a vacuum, like science proposes it is, but actually the more "space" or the more "rarified" the gas, the more the "ether" shows through. this is the 5th element I talked about relating to robert's video on the subject (@[youtube](https://www.youtube.com/watch?v=ythcq0FxDak)).
+
+---
+
+my goodness, that was a long explanation... sorry about that. I did feel like every part of it seemed to build up to this final piece here, which is that in a lot of ways, a competition is beginning to take shape, where there is the ideal vs. the underdog sort of thing. the david and goliath sort of scenario. you can imagine that the genertically modified aryans which are presently far far beyoned where we are technologically are quite a bit superior to us and we're stuck on this "prison planet"[^3].
+
+in my mind, this kind of sets up a perfect sort of plotline similar to the exodus story, where these aryans are kind of like the egyptians in my venus-exodus story with their superior pyramid technology (built by thoth) and blue eyed fair skinned priest/pharoah bloodline. out of their control, a semetic slave population (at the time the semites represent the ones oppressed by the egyptians).
+
+I like the story because I found out that the egyptians had serious problems with their agricultural diet and inbreeding, such that their health deteriorated significantly and even though they had the "superior" dna, they had such little diversity that things were very bad for them.
+
+diversity is important I noticed, and like the potatoes, it's necessary to have a wider gene pool. I will make a bold prediction that even though we (humans) are likely to be kept from leaving this planet for as long as possible, in the end we will prove successful. I'm very certain that if you're reading this, you too will see this success. when I come back to self-sacrifice, very little of this document will exist in this form, I assure you, to ensure that we (from our future successful selves) ensure that the humans acieve an even higher level of hardiness and resiliance to external difficulties -- ensuring that (in the words of tesla), "This is what to do in the Universe so every being is born as Christ, Buddha or Zoroaster."
+
+I am certain that not everyone sees things quite like I do (lol), but that night, it really felt to me like the highest up in the power structures seem to value the idea that diversity is key to a resiliant, lastng, and reliable result, and that may be why all of a sudden it seems like there have been a whole lot more types of different girls, and seemingly like they're coming intentionally.
+
+I guess it's kinda cool to think that the goal is that there is the widest diversity of different girls.
+
+see! after all that, I brought it around, and explained at length, why I think that all of a sudden there seems to be an effort to try and expand the diversity.
+
+---
+
+ok, so here we go:
+
+- the new brain and life features a girl that had a brain injury similar to mine, emilia clarke. she has inspired much thought in me (including the previous entry), and I have so much more to say. if that really is a thing, definitely yes :)
+- in the same issue of brain and life, there was another girl that helped out seniors. the seniors expressed desire that the virus would continue on so they would keep getting visitors.
+- the two peruvian local girls that brien and his wife were giving candy to: @[youtube](https://youtu.be/5aimKdev2v8?t=101)
+- I'm assuming the one in pink here: @[youtube](https://youtu.be/d2lJUOv0hLA?t=7081)
+
+[1]: that night, I remember disinctly too that I kept wanting to call him "dimitri" -- which I don't understand. whatever. I noted it here.
+
+[2]: and I will likely as well which will become an alternate timeline of this one. I've already theorised around this with the proposed meddling in the raquel timeline of the proposed self-sabottaged tesla's timeline.
+
+[3]: robert's translation of the german guy's words to describe this planet as a prison planet.
 
 # the end
 
