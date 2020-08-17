@@ -861,3 +861,36 @@ the funny thing here with this question is that the main focus on this question 
 I've often said that when I learned how to consciously fly in my dreams, it was when I was able to feel an overwhelming sense of freedom.
 
 they said that our physical laws are there in place to keep our planet in perfect proximity to other planets... yet, I've never asked the laws of physics to change for my ablity to fly. I have repeatedly said that there are definite steps that anyone can take to begin levitating (flying) theirself, directing energy (shooting fire/lasers), or jedi mind tricks, or conjuring objects in 3d space which others can see. all of the prerequisitites to these "superpowers" come from strong emotion, so it is true their answer: your true superpower *is* your ablity to feel the way you want to no matter the circumstance, like for example feeling enough freedom to be able to fly even in the midst of circumstances which others are trying their best to convince you that you cannot fly.
+
+
+### 2020-07-09 18:13 - (2020-07-02)
+
+#### (09:46) - abstract similies to frequencies
+
+I've come to learn that when they say things like "inner being" or "stream of consciousness" or "that thought thinks" -- that these are abstract ways that they describe the frequencial nature of something. when they say you have an inner being and that it's multiple, means that it's a very dominant freqency, a non-physical source for a emission of a signal. we are all just a complex signal at its base, and like any frequency can be created from an infinite number of overlapping sine waves, then each signal resonates on a whole lot of different other strong signals. you are composed of one signal, which is very resonant with a lot of other strong signals. most of those are your "past life experience" where you cept creating a bigger vortex.
+
+when they say "that thought thinks", they mean that when you think, it's a signal not unlike yourself, and that thought resonates with other signals, and therefore that thought is attracting and now interacting with resonant signals, or thoughts.
+
+when they say, "stream of consciousness", again, same thing.. the signal that is you is broadcasting always, and sometimes it gets pulled into a receptive (resonating) human body... each experience in a body, no matter the timeline, is further amplifying your source signal, and the signal of the universe as a whole (which is resonant its own furthmost perception, which is resonant with some of the signals ever created, and therefore amplified by the universe).
+
+the whole thing is a ever amplifiying signal, which is why growth and therefore change is inevitable. the 3d physical version of that signal, no matter the timeline is what is constantly amplifying it. the physical plane is constantly expanding (more people being born all the time), and so therefore needs a stronger source signal to create the change (bodies), which then, through physical experience, continues to amplify that thought which is you, because of all of the desire that is born out of contrast, making new possibilities, and so new yous living new situations.
+
+I just now really got it when they said that thought thinks. I wanted to share that if you take all of their similies and apply a frequency version to it, it's real easy to understand their "jargon" or weird way of presenting a technical concept in a non-technical way. I think this is actually exactly the reason why esther was a more resonant receptor, and able to translate that signal into non-technical speak would be so beneficial, because they're outside of time, so the desire of all infinite timelines wants to understand the LOA without needing to understand AC electricity.
+
+I think actually for the same reason, I'm kinda middle-ground too, because I understand the tecnical aspect on a kind of intuitive way, but I don't, by any means, have a firm grasp on the rotating magnetic field (RMF).
+
+oh, the thoughts that are not further amplified by continual thinking them, or some higher freqency resonation of it, the lower frequency stuff just keep attenuating, and only our ability to perceive it goes away. it's not like a digital computer. there's no limit to precision, and if tuning into timelines is possible, that means that extreme tuning precision is possible, so a human who can be much better than electro-mechanical apparatus at tuning in, can tune in quite easily to something so attenuated.
+
+this is how memory works. you keep the memory alive by thinking it again. the more you let it attenuate out of your existance, the better. the reason why "they keep changing to the same thing" can only happen when you are still keeping that thought alive by repeating to think it that thought (you believe it) or observe it with some translator (eyes, ears, imagination, thought, etc.). and in that case, it remains the same: that is, changing to the same thing... cause remember, it's an AC signal, so both push and pull are happening, so while the freqency remains the same because of some form of observation, it's changing to the same thing Hz * seconds times / per second
+
+#### (10:37) - the perceiver
+
+the perceiver is what I've been carrying on and on about. the frequency which is you, and your human freqency is different. the more they're aligned, or the more they resonate, the better you feel and the more of your source energy you summon. the perceiver that's you, and your source, is only resonant to some things. your source isn't resonant with the stuff that feels bad to you. this is *always* true. so in a sense, the perception of your source is a very non-resistant one.
+
+this is what it's all about: the more that you give up on things that feel bad to you, that means that more and more, your perception is wickedly close to how your inner being perceives the same exact thing through your exact same eyes, ears, nose, etc. as you improve your perception, the higher frequency (less of the lower frequency stuff that's attenuating so rapidly) and the more current from your non-physical source is summoned. the amount of energy you can summon is literally infinite, because anything that you desire and experience your inner being is already living (experincing), so therefore they're always going to be bazillions more further into wanted territory than you are.
+
+---
+
+I didn't really think about it until just now, but I was thinking about that line thing where at the beginning there are few, then more and more and wider until it's width, then the mushroom growth stops and the stem gets pulled into the hat, then the stem comes out the other side. toward the other corner of the cube?
+
+ok, well, that means that eventually the accumulaion of all of our contrasting physical experience will eventually "catch up" and surpass the speed of the centre point, only to slow back down again (sine wave), which means we're at some point to where our sources are all living in physical and the non-physical is where "we" reside, controlling all of our physical bodies... crazy, I never thought about that... then swap again back :)
