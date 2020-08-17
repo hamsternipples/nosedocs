@@ -5622,6 +5622,13 @@ ok, so here we go:
 
 [3]: robert's translation of the german guy's words to describe this planet as a prison planet.
 
+
+### 2020-08-17 00:10 - didn't really realise...
+
+... the implications of everything that I wrote. I was just putting down the ideas as they came to me. I guess I have a lot to think about ...
+
+*shakes head*
+
 # the end
 
 ### 2020-08-04 ??:?? - the gratitude circlejerk
