@@ -894,3 +894,38 @@ this is what it's all about: the more that you give up on things that feel bad t
 I didn't really think about it until just now, but I was thinking about that line thing where at the beginning there are few, then more and more and wider until it's width, then the mushroom growth stops and the stem gets pulled into the hat, then the stem comes out the other side. toward the other corner of the cube?
 
 ok, well, that means that eventually the accumulaion of all of our contrasting physical experience will eventually "catch up" and surpass the speed of the centre point, only to slow back down again (sine wave), which means we're at some point to where our sources are all living in physical and the non-physical is where "we" reside, controlling all of our physical bodies... crazy, I never thought about that... then swap again back :)
+
+
+### 2020-08-17 08:43 - (2020-08-08)
+
+#### (22:55) - deja vu
+
+as they were talking about the question of people getting deja vu, I was getting a lot of reactions where people were thinking it has something to do with timelines. it may; I wouldn't rule it out.
+
+however, I was realising as they were talking that I'm almost having deja vu for 100% of my experience now. I'm kinda high right now so I have extra sesory capablity in my body, and I realised that ... remember how in 11-11 last year I began to perceive my body from an external perspective? well, in my normal focused self, I don't really experience it, because I'm fully integrated into the details of my experience. however, right now I can pereceive myself from the outside, and when I think back on my memories the last few days, I'm not just floating outside of myself, but I'm actually, more like a conscious personaity that's temporally separated from myself, and I'm actually so much more.
+
+I'm having deja vu nearly 100% of the time now. very shortly, I can see that when I finally get it 100% of the time, I'm fully separated from the nitty gritty focus in the body, and I can actually precceive myself a different way.
+
+remember in the last section () when they said, «this vortex, we've named it; it's a vibrational reality where what you've asked for exists vibrationally»
+
+I like to perceive (because I'm more mechanical, so I see it quantitatively) who you really are, as the composite total of these different realities as different timelines. you can pick any one that you want. you are capable of them all, and you navigate between these timelines with your emotions. even if you were to have a "time machine", you're just using a physical apparatus to get you to tune into another emotional reality, and you only believe (which is an emotion) that the reality (or timeline) that you're perceiving is real, is because you believe the machine works (perhaps you've proven it scientifically, or quantittively, which makes it all the more *real feeling*).
+
+they continue, «it's like the seed in the ground that's in the process of becoming»
+
+now let's go back to their definition of "who you really are" (05:59): «who you really are, is the consciousness who was conscious before part of that consciousness came into this body».
+
+... you are an extension of source, in different words. you are experiencing a small section of you (I call it a timeline), or a part of a greater consciousness than what you experience in that part, which is who you really are (your source, your inner being, your vortex).
+
+«and it's the consciousness that your contrasting experiences and desires bouncing out of you, has caused that non-physical part of you to be»
+
+each experience that you have with any amount of contrast in it,  produces desire. the more contrast, the more desire, and each of those desires create a new alternate reality (or timeline), all existing simultaneously in a vortex, which is who you really are.
+
+I want to say now that I believe the reason why they use the word vortex is because this is referring to the heart (the heart actually has two opposing vortices according to frank chester). your heart translates this non-physical energy (chi, prana, vril, ether, etc.) into real physical energy which is primariliy the life-force which your body runs on.
+
+---
+
+ok, back to where I was now. the reason why I realised that I'm now having deja vu basically 100% of the time is because I'm now perceiving more and more from my non-physical (outside of time, or composite of all timelines) version of myself -- who I really am.
+
+nice! I didn't realise that is what is happening. I now want to mention something: have you ever noticed that the feeling of deja vu inspires confidence in you? you can't possibly "fail" or things can't really go wrong because you've already experienced it? you say well, what if I had this terrible feeling dream and now I'm living this terrible feeling reality just like in the dream.
+
+you navigate these "timelines" with your emotion, and if your dreams don't feel good, that's definitely not coming from your inner being. this can only be coming from prolonged exposure to your own fear and worry (some real good practise it takes to thikk that way so clearly)
