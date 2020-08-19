@@ -5744,7 +5744,7 @@ further speculation: what happens to the men? I have no idea. however, if at the
 
 I had a lot of interesting reactions to the last entry which I thought were interesting enough to make another.
 
-I don't really know why I wrote it the way I did. I was just writing the ideas as they came to me, just like always. however, upon hindsight I think there was some definite influence on the entry, because it preys heavily on their fears. the guys running nosebook have a terrible fear that they are actually not the ones running the show, and that they're being influenced from even higher positions than they can see. to make it worse they really hate the idea that these powers which are influencing are kept secret from them and arn just using them, as if the higher powers are just running a sort of experiment and they're the secretly manipulated test subjects.
+I don't really know why I wrote it the way I did. I was just writing the ideas as they came to me, just like always. however, upon hindsight I think there was some definite influence on the entry, because it preys heavily on their fears probably with the purpose that they would fight against it giving it more power. the guys running nosebook have a terrible fear that they are actually not the ones running the show, and that they're being influenced from even higher positions than they can see. to make it worse they really hate the idea that these powers which are influencing are kept secret from them and arn just using them, as if the higher powers are just running a sort of experiment and they're the secretly manipulated test subjects.
 
 basically, they're scared that there's another nosebook on top of them infuencing and expermenting on them in the same way they're doing to us. I think there's probably significant evidence that is indeed happening. who do you think fwh is? is tesla really dead? etc.
 
@@ -5825,11 +5825,13 @@ however, imagine that there was an "eve" that was so provocative aad desireous t
 
 once I regain the perception that life is no longer from toil and effort, can I regain this "garden of eden" form of perception.
 
-so, while I think robert's video is the right idea, the mechanics of it are different, as I believe it to be mostly perceptual.
+so, while I think robert's video is the right idea, the mechanics of it are different, as I believe it to be mostly perceptual. it's not whether you ejaculate or not, but that you take on the new form of perception. in the garden of eden, the disabling form of perception was the recognition of good and evil or bad and good, vs only perceiving that there is life and that things are always working out for the greater improvement on the previous form.
 
-so, if this is a kind of adam and eve sort of thing, if nosebook wanted to try and make me "fall" from that form of perception, they would need to find a way to make a very desirous woman capable of weird enough ideas to get me to believe in something not source-like. it probably won't be toil and effort, because I've pretty well understood that one. they'll have to work on a whole new set of difficulties. if they manage to pull it off, first they attract the consequence of that form of perception into their own lives as well (think cataclysm), and it doesn't bother me because from a larger perspective this is just a weakness in the human genetics, and I'll fix the bug and get right back there pretty quickly. remember, I've already "fallen" a few times before by letting sexually transmitted forms of perception influence my own.
+so, if this is a kind of adam and eve sort of thing, if nosebook wanted to try and make me "fall" from that form of perception, they would need to find a way to make a very desirous woman capable of weird enough ideas to get me to believe in something not source-like. it probably won't be toil and effort, because I've pretty well understood that one. they'll have to work on a whole new set of difficulties. if they manage to pull it off, first they attract the consequence of that form of perception into their own lives as well (think cataclysm), and it doesn't bother me because from a larger perspective this is just a weakness in the human genetics (or rather in my form of perception), and I'll fix the bug and get right back there pretty quickly. remember, I've already "fallen" a few times before by letting sexually transmitted forms of perception influence my own[^1].
 
 it's a really unique challenge for me to think about.
+
+[1]: in the case of raquel, the form of perception was that I was *not* empathetic, that is, that I refused to see things like she sees them. eventually, I came to begin to see things like she saw them, believing myself to be not empathetic, even though there was ovrwelming evidence that I am capable of feeling what she feels.
 
 # the end
 
