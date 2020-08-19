@@ -5739,6 +5739,71 @@ further speculation: what happens to the men? I have no idea. however, if at the
 
 [2]: I actually, thanks for reminding me, remember a weird sense that I had either out on the field or while watching abraham or in a dream that nosebook was going to begin to pump all people dying's into birthing children's consciousness (for statistical reasons? tracking? it wasn't said why...)
 
+
+### 2020-08-19 13:27 - some reactions to the deja vu reality
+
+I had a lot of interesting reactions to the last entry which I thought were interesting enough to make another.
+
+I don't really know why I wrote it the way I did. I was just writing the ideas as they came to me, just like always. however, upon hindsight I think there was some definite influence on the entry, because it preys heavily on their fears. the guys running nosebook have a terrible fear that they are actually not the ones running the show, and that they're being influenced from even higher positions than they can see. to make it worse they really hate the idea that these powers which are influencing are kept secret from them and arn just using them, as if the higher powers are just running a sort of experiment and they're the secretly manipulated test subjects.
+
+basically, they're scared that there's another nosebook on top of them infuencing and expermenting on them in the same way they're doing to us. I think there's probably significant evidence that is indeed happening. who do you think fwh is? is tesla really dead? etc.
+
+so yeah, it's really funny the way I wrote it.
+
+---
+
+anyway, to simplfy a lot of what I wrote, the main subject of it all happened in a part of the abraham presentation (I think) where they said that you don't just give birth to a desire only to find out that it's not possible. when that happened (or maybe it was somewhere else), I felt a very strong sense that either emilia or someone else had had a desire with me, and abraham was saying that it *is* possible.
+
+considering that I had just had the deja vu reality where I gave birth to my own desire where I could see myself as obtaining a more source like perspective, and then I would be able to perceive myself from a more macro point of view, as I explained.
+
+so, later when I was reflecting upon what I had heard in the broadcast, I was wondering how that could be possible, because I could clearly see that nothing was really changing in relation to the gnomitos project. everything was going to go on exactly the same way. I had defined a time split previously as something where strong desire for incompatible realities would create two wanted versions: one would be considered a "disaster" but would be more contrast and the future timeline we would all be attracted to cause of the more contrast, and the other wanted version would be considered "successful", but less contrast, so eventually abandoned in favour of the "disaster".
+
+instead of that sort of time split, I instead saw that the different girls' desire would create parallel timelines, and as I kept getting a more and more source-like perception (of who I really am), I could become conscious in the parallel ones, simultanously experiencing them all like a sort of orchestra or dance. to all of you guys, it everything would appear exactly as if normal life were occurring, just different girls would seem be interacting with more kennys than there are.
+
+I first heard about this idea from nancy cohen who said that at one time in her life there was a church in china (I think it was), which desired her to come and minister to them, and then some time later they showed her pictures of her being there in the church with them, yet she had no recollection of that experience. I've thought many times about how that can be possible, because this is different than translation (or teleportation), where you instantly move from one place to the next because of strong desire, and it feels like you're already there. this requires that there be something operating her body while she's in that other location. in the church, you can just say, "she was in the spirit" -- but spirits can be seen and interacted with, but they're not really very "real" in that same real sense. the closest thing I can come up with to this story is doubting thomas who asked to put his fingers in the holes of jesus' hands. if jesus was just "in the spirit"[^1], then he wouldn't be able to touch his hands, so it had to have been a "real" manifestation of jesus in thomas' experience because of his desire.
+
+desire is the only thing that can explain all of these things, the china church, thomas' experience, and the time splits. therefore, I conclude with near 100% certainty that desire has to be the mechanism for these apparitions in 3d space. tesla takes a more scientific approach saying that when the air is more energetic, the life-force which is dorment in the air can spring into being (he didn't say it, but with the power of mind, but he did say with the control of emotions). so when you desire to create something in 3d space, and your emotion doesn't contradict it, it springs in being. I'm certain of this. this will happen more and more as energy continues to rise, where at the end of it all, we'll be living in a dream-state sort of reality.
+
+now, whether nosebook allows people to see this or not, I don't know. my guess is that they'll run everyone like they do me in a way where they cannot see the images their mind makes in 3d space. however, they can't prevent real tanglible things appearing in 3d space from the mind. this seems connected somehow with the ability to fly. the sirian guide says that at the beginning, the creative center is located in the regenerative organ, but then later it moves up to the throat and a new centre appears between the shoulder blades, which I've experienced a number of times when I fly in my dreams.
+
+what was most fascinating to me is that I would be able to experience this from a macro point of view. it's a really cool thing. thing is, it's fully replicatable, becuse if I exist in multiple timelines, then that means that quite a few girls also exist simultaneously in multiple timelines too, and if they wanted to become conscious of that, they too could do it.
+
+ok, so that's my explanation of how I understood the deja vu idea. now, getting back to the thing that I felt where I could sense that abraham was telling someone (whether it was emelia or not, doesn't matter), that if they gave birth to the idea, then they can have it... again, the only way I can explain this is with desire. the contrast of life brings you to new regnitioin of what it is you want, and those desires creates reality. real realities, real livable, tanglble things, experiencies, situations, etc. the only thing that is inhibiting someone from experincing them is their belief that things are the way they are.
+
+so, following that, I could see that now it's quite posible for anyone who is capable of knowing what it is that they want, and letting it in, *will* experience the manifetation of their desire. what that means is that there are (as I'm sure there is already), a whole lot of parallel timelines happening at once.
+
+---
+
+finally, the last thing that I noticed was the strong sense of the sort of "adam and eve"ness to what I wrote. I wrote it specifically to the guys with the time machines who are in the process of making their own version of humans which is "superior". I don't know what the future is of that, but I think they would be falling into the same trap of not having genetic diversity. I would imagine that this would be a new adam (for the elites to transfer their consciousness into), and we'll continue on here making our genetic upgrades the natural way, or something...
+
+anyway, what was most interesting to me was that if you assume that besides their genetic masterpiece, and you consider the gnomitos project the new "adam and eve" scenario, then combine that idea with the who I really am (source-like) form of perception.
+
+first of all, genesis states that adam and eve weren't the only people on earth. there were lots others (including some gods), but they were the "new breed", and were given the ablity to live in a protected space with source-like perception and an effortless reality.
+
+well, in a few of robert sepehr's videos he talks about the garden of eden and the "fall" of man being sex (with ejaculation). I thought the idea was really stupid when I heard it because it doesn't sound right to me at all.
+
+thinking on all of this gave me my answer though. imagine first that my life begins ot become so effortless that I literally am watching myself interact with it. I perceive myself from an outside perspective and I just sit there from the throne of my crown, observing myself because I'm so in-tune with who I raelly am and just following insipration. well, if that keeps extending more and more upward, you have even less resistance that things could be different because no longer is one thing good or bad or right or wrong anymore, so it becomes possible to pereive alternate versions of yourself (I like to think of these as timelines), and youbegin to become conscious of yourself as a composite of all the different things you are in each timeline.
+
+before I move forward here, it's important to note that you navigate different timelines with your emotion, and so the better you feel, the more closer you are to being "who you really are" -- well, imagine who you really are as a sun, and you have these different "double layers" which extend out from you radially (we call them orbits), and the closer you get to the centre of who you really are, the more rarified the environment becomes, so when earth was in 1st position, things were very much more affected mentally, but the further away from the sun we've gone, the less rarified this environment is, and so the less rapidly thought seems to become reality (unless you're making your own (emotional) environment, instead of relying on the sun's atmosphere for the connection to ether).
+
+so, the closer you get to this centre point, the different orbital position you're in. I postulate that for normal humal growth, you change radials every 11 years as you get closer and closer to who you really are, but that's beside the point here.
+
+if you think about the navigation of these different timelines as a function of emotion, you can only move to timelines which are similar to where you're at right now, otherwise it's too big of a jump and you return back to where you were[^2] after a short period of time.
+
+however, if you are in tune with who you really are, there are multiple timelines that you are also having the experience of being who you really are, then you can perceive them at once. in fact, this is the reason why the deja vu happens, because these are just the intuitive recognition of another vibrationally similar timeline. this is why the more you begin ot get deja vu, the more rapidly you're approaching the abiliy to gain consciousness of your other selves in vibrationally similar timelines.
+
+most timelines feel quite different because there are a lot of different *conditions* which make their reality feel different. however, if you're unconditional, and you just feel who you really are, you can become conscious on these other timelines with different conditions, because you're a stronger broadcaster than the conditions (cause you're unconditional) so their realities feel quite similar to you and so you're resonant with all of them.
+
+you only don't experience the realities that are different from how you feel.
+
+ok, that's good for now. I just wanted to relate that there is nothing wrong going on, and everything is proceeding as it was previously. only this "self-sabotage stone" brought about for me a much graeter clarification and understanding of how it all works.
+
+much love to all!
+
+[1]: terence talks at length about these bouncing balls of energy (aka spirits) that seem to bounce around in 3d spacing jumping into and out of your body in his DMT experiences.
+
+[2]: much like an electron in an atom jumping orbitas when going into an excited state.. condensation reaction?
+
 # the end
 
 ### 2020-08-04 ??:?? - the gratitude circlejerk
