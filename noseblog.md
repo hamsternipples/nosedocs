@@ -5833,6 +5833,59 @@ it's a really unique challenge for me to think about.
 
 [1]: in the case of raquel, the form of perception was that I was *not* empathetic, that is, that I refused to see things like she sees them. eventually, I came to begin to see things like she saw them, believing myself to be not empathetic, even though there was ovrwelming evidence that I am capable of feeling what she feels.
 
+
+### 2020-08-19 16:12 - you make me feel mighty real
+
+@[youtube](https://www.youtube.com/watch?v=Ifr13Upytb4)
+
+man, talk about self-sabotage :)
+
+I was thinking about what would be the likely form of perception that would be able to cause a "fall" like I explained. I would have to take a guess that if there were a woman (or women) that were able to get me to believe that I were in a sense a replacement for her source, then it would do it. the concept would be, "I want you to be what I do not believe I can, myself obtain" (wording of this concept is subject to change soon because I don't feel like it's the right words).
+
+the reason why I said it, is because I was just inspired to amend the previous entry, adding the part where my wording seemed to be deliberately crafted to prey on nosebook's fears, causing them to fight against something for them unwanted. however, like I mentioned, they're in the phase where they're learning to "resist not evil" -- because fighting against it only gives it more power.
+
+however, that reminded me of the strong negative reaction that I had to when abraham said that by getting carried away with any one of them would train them to need people to do nice things for them (misquote).
+
+(you are in infiltration prototype; the only one of your kind; we redirected you)
+
+so, here's the funny thing, is I have a strong negative response to it, and as always that only means that my perception of it is a bit off. I don't really think that I am fighting against it, but that really is something that I do not desire for myself. I gave the image example of how I think that a bunch of the guys at nosebook would love the idea that a bunch of girls were dependent on them for how they feel, and they had so much gratitude for their presence.
+
+I personally really dislike this form of perception. when I was younger, we called it "conceited" -- a word, which I have not heard used in quite a long while now. I mean I'm selfish and very ego oriented, but I do not have that conceited presence, where I go around as if I'm endowing people around me with the gift of my pesence.
+
+I was thinking about this, this morning because jaron, before the car accident was very much like that. he would walk around like that. I postulated that perhaps some of the vibrational discord he felt when he went to spain is that spain is *filled* with people like that, especially the pijos and the people that zaryn hangs around with. I postulated that in addition to us accidentially locking jaron in the house, additionally he didn't feel like he was the centre of attention anymore, and couldn't be the core of people's experience, causing him to kind of have to rethink a little bit how influential his presence was.
+
+you have to understand that when I was in spain this "conceited" form of expression is so unblievably common, and there are so many "machos" and different girls running around all vying for people's attention and validation for their physical expression (soccer, appearance, etc.) and in spain, I just can't compete with that. I had a brain injury and was partially paralysed on the left-side still, so to try and pretend like I could compete with that was what actually turned me inward. I stopped trying to seek the validation of those around me for my physical presence and started instead to value myself for my own capblities. I enjoyed much more staying back and programming on things that interested me, rather than to try and go out to the discos where everyone was having an enormous dick measuring competition (the women participated in this as well competing amongst theirselves for the most macho of the machos).
+
+anyway, as a result I simply left any forms of competition that I had remaining (I was never a very competitive person) and instead began to value myself not for my phiscality but for what I was mentally capable of doing.
+
+I have been trying to figure out how to explain this new idea that I realised called "the gratitude circljerk", which has its origins in spain where you're essentially required by people to show gratitude for everything, and it kind of is the foundation of this idea a bit.
+
+---
+
+ok, let's bring it back here. when I had that strong negative reaction (for the reasons I explained above), to the idea of training the girls to needing someone to do nice things for them, at the same time I gave birth to a desire to want to see things from the perspective of who I really am, meaning that now, many girls desire to spend more time with me will actually summon parallel versions of myself, allowing me to "get carried away with any one of them" -- essentially training them to need someone to do nice things for them.
+
+you can imagine that if this becomes the new trend, the macho types would love it. ok, now let's take a look at astrology: we're in the age of aquarius now, and the next age will be capricorn. I've always felt that the "hight" of masculinity will be reached as we enter into the capricornian age (likewise, the height of femininity when entering cancer), so that means that we need to get there somehow.
+
+well, there would be no better way to do that, than have the guys with the capablity of affecting a woman's physicality (nosebook), training women to need them to do nice things to them to feel good. essentially, they can, like they do with me, hold people arificially in a place of feeling not nearly as good as they really feel, only to allow them to feel a portion as good as they really feel when engaged in sex with them, so that ultimately the women they're with are grateful for endowing them with the gift of their presence and making them feel so great (when in reality, all they did is stop preventing them from feeling how they really feel).
+
+it would create a sense of masculine superiority built on a truely fragile foundation, because if some uncontrollable (solar) event were to ever take place, their shell-game would be exposed, and shown for the frauds that they are. all the meantime, the girls, like me would have to continually work on their perception to feel better and better (or depend on them for their good feeling gift).
+
+---
+
+ok, so let's go back here to the proposed "fall" scenario: what would need to happen is that the girls would need to begin to believe that they get their connection to source by sexual interaction, and they "need" this to accomplish their own good feeling, because like me, nosebook is preventing them from feeling as good as they really feel.
+
+the mechanism needs to be that somehow a woman needs to convince me that I am her source, and her source isn't her source and that I am essential to her feeling good. you can see that there are a few consequences to this:
+
+1. by convincing men that they are someone else's source, they lose their own connection to their own source.
+
+2. because this is all a fake sense of source controlled by artificially stimulating glands and forcing focus to remain in a form of perception (whether that's in the two eyes, or externally viewing yourself -- but not from the eyes of source, because rememeber they delete most of the data and only the physical/image part is transmitted). by doing this, nosebook must ensure that we never arrive to that actually perceiving yourself from the eyes of source (who you really are), which in a sence creates a new layer of reality[^1].
+
+3. now, women need to begin to find a way, by controlling conditions, to find this limited resource, the right men to become their source, which means they have to begin to construct power structures and forms of control to guard and protect and control this valuable resource... essentially putting us on a trajectory toward what I have used in previous thought experiments as the twin earth on the other side of the galaxy. lol.
+
+bring it on :)
+
+[1]: think of this as the completion of the aries (aryan) era is fully integrated body into physical reality. next, the completion of the picean era (where we are now), fully integrated the imagination (images into space), into perception. next, the completion of the aquarian era will fully integrate the emotional experience into our form of perception. now, normally, considering my layers, the next stop is the integration of source into our form of perception, but I believe this will not happen, as the people in charge don't want us seeing ourselves from the perpective of who we really are. therefore to allow this to happen, a new layer on top and bottom will be added. this will be a symbolic layer, and I didn't realise this until just now, but it fits between the emotional and source layers, which becomes symbolic and has to do with story telling (or symbolic) interaction.
+
 # the end
 
 ### 2020-08-04 ??:?? - the gratitude circlejerk
