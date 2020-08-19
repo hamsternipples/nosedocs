@@ -5634,6 +5634,105 @@ ok, so here we go:
 
 lol. prepare for hilarity to ensue :)
 
+
+### 2020-08-18 20:20 - thinking about deja vu, time, and self-sabotage
+
+while listening yesterday to the abraham broadcast, I was fascinated with their words describing "who you really are" @[abe-now](2020-08-08 22:55) in response to a question on deja vu. things are different now, because I'm not stoned anymore. when I'm stoned I have increased perception of what's happening in my body. otherwise, like I am now, they have my super hard focused on whatever's happening in my eyes. I absolutely hate it and want to be blind, because it's miserable, but I digress.
+
+this difficulty is just accelerating the desire in me to be able to have emotional perception again and not just the blurry lifeless picture. I've become ok with it though because the longer that lasts, the more powerful the manifestation will be -- meaning if I were to see like I really see, right now, then I would fall short of of what I really want...
+
+anyway, at that moment yesterday, I could see that I basically have deja vu almost all of the time, and I'm growing into a stronger and stronger ability to perceive myself from the greater source perspective that I am an extension of (they said "a part of that [greater] consciousness" which I think is a great way of saying it).
+
+anyway, I could see that there was this me, (the who I really am, me) and then there were all of these timelines happening simultaneously, and I was experiencing them all simultanously.
+
+(you are an infiltration prototype; we redirected you)
+
+in each of these timelines I could see that I was interacting with diffreent girls all at once. think of it like this: as each girl becomes more self-focused, she will summon me with my desire. however, instead of a "time split" in the traditional sense where strong desire for to incompatible realities makes a split into two (or more) timelines, instead the same thing is happening. the different girls' desire will summon me and a split will occur, meaning that I exist simultaneously in their different realities of theirs.
+
+however, from my (who I really am) perspective, all of these timelines are happening simultanously, and I'll likely experience them in a new way. I'll probably grow a new sensory organ in which I experience all of these realities at once, from a more macro perspective. it's quite likely that I'll be able to focus in on any of the experiences, both forwards and backwards in time as well, but maybe that'll happen as I get better at the sensory organ.
+
+it's hard to explain, cause it's not like I'm not there in the sense that even though my body is in the room, I'm on my phone. it's more like I'm so much me (I'm no longer distracted so much by my surrounding environment anymore), that in all instances of me I am so much me, that I experience it from as like a multi-instrument song or a group dance instaed of a single note or a single dance. each individual timeline is kind of liko doing their own thing, meaning I'm having conversations, sex, sleeping, dreaming, and all of them (because I'm no longer pulled into the nitty gritty details of my environment), are responant with each other. it's like a bunch of instruments playing in the same key, where each instrument is a "timeline", or a bunch of dancers dancing in step, with each dancer a different "timeline".
+
+you can imagine how powerful this is, when you think about how soldiers need to break step when crossing a bridge in order to not risk toppling it from the vibrations.
+
+I don't really know how it will work to be honest, but it doesn't matter. I saw it and I really wanted it.
+
+in this sense there is another really crazy thing to realise as well: the more girls there are that are making competing (incompatible) realities for me to experience, the more timelines are created, and the bigger the orchestra will be.
+
+it's very unlikely that nosebook will let anyone else know this is what is happening, probably trying to control and run tests to see how different people in the audience respond in the different timelines, in order to select the desired version of them for the final timeline (and perhaps a few "checkpoints/milestones" along the way).
+
+to most all of you, I will continue to appear just as I do now, and in each of your perception, there will be only "one" of me. I can technically be as many as there perceivers of me, but it's pretty likely for statistics purposes that audience will be grouped. it'll probably appear like I'm spending more time than I have available, but if you stay selfish in your focus, you won't really notice this or perceive this as a problem :)
+
+---
+
+I also got some reactions to the deja vu part where I was saying that "who you really are" is the composite of *all* of the timelines. some people couldn't believe that I would say *all* because they think that timelines are created by decisions, and that some decisions are better than others, but I really did mean all, because sure some decisions may look worse if you have a really short-term view of things, but your "inner being" (who you really are), doesn't just see that, it sees the desire that "bad decision" will produce, and even if you don't come into alignment with the vortex version (what you really want) in this lifetime, there's another and another.
+
+the further you go out, the less defined these realities are, until all that's left is just the structure of the logic of the universe, where it's clear that things are always heading to a more improved state. right, but the closer to the now version of who you really are, the more defined these "timelines" are, so you can see it like a sphere radiating outwardly from who you really are into space. your sphere overlaps countless others' spheres (in very multidimensional space), creating this sort of "structure" (3rd ray), which none of us have to worry about, because this ensures that "things are always working out for you", even if have to get far past the details of your nearby timelines and out into the logical precepts (maths?) upon which this universal space is constructed.
+
+I really fail at trying to put this idea into word form. it's non-physical in nature so it's about as easy for me to describe as trying to explain what desire looks like.
+
+so, the reason why your inner being feels so good is because all directions are good. if you're going in the exact opposite direction if what you really want, you feel bad, but each emotion along the way you create a more powerful vortex of what you do want, which attracts you toward stronger, so even if you're going the "wrong" way, you're still going the right way, because you're optimising "quality" over speed.
+
+if you perceive the navigation of timelines as something of emotion instead of decision, each emotion you feel, adds on to your most desired manifest reality (even if you're still 180° out of phase from it), then you can see that the more amount of negative emotion you feel, you are actually converting that quantity into improved quality of that not yet manifest reality.
+
+in fact, now that I think about it, it's exactly like the "angle" in AC electronics theory where the angle determines whether it's a resistive or inductive load. the more resistive the load, the bigger higher quality the reality, and the more inductive the load, the more effortless and rapid the reality is manifest (lower quality).
+
+in fact, come to think of it, it isn't just one or the other. the best is to have another cycle between resistive and inductive loads, which is essentially the electrical explanation for mcluhan's hot-cold media theory in a nutshell. it should cycle between high speed low quality and high quality, low speed communications over the course of time.
+
+so, in all direcions, "*everything* is *always* working out for you" as long as you can see a big enough scope (have a bigger picture).
+
+---
+
+there was one thing[^1] that abraham said which I want to mention here, too because I think it applies. they said,
+
+«and the tricky thing in that, and there is a little trap in there, is that, when we say, "when you do for others, you'll feel wonderful, or when you look for things to do for others, you'll feel wonderful" -- you train them into somebody doing wonderful things for them, so don't get carried away with any one of them. inotherwords, just spread your wonderfulness out, because it's too much for you to contain. sometimes you just feel so good, you just want to express it in a way that everybody can get a piece of it, yes?»
+
+the part that got stuck in my head was the part about training them into somebody doing wonderful things for them. I really don't like that idea and had a pretty negative response to that.
+
+first of all, and this kinda goes with what I mentioned in the previous entry, because I hadn't really liked the idea of there being so many of them, because from my perspective, I wanted to spend a lot more time with any of them of them -- which is exactly what they said *not* to do there.
+
+I get that pretty clearly if there's only one of me. however, let's just assume that this is the self-sabotage timeline... I mean afterall, I did say, "what I would need (to self-sabotage) is a stone" -- and literally right as I was coming home a guy wanted to smoke weed, which gave me the ablity to see the deja vu thing and that I can have a macro (source) perspective from who I really am, and that became my latest infatuation.
+
+in the beginning (13:30) of that episode, they said, «you are never content in trying to convince yourself that there's no solution that's possible» followng up with, «that's like saying, I'm here in this body to sift and sort and give birth to desires, but some of the times, I just can't get the desire that I've given birth to.»
+
+this felt like a pretty strong response to me, and this whole situation. I love to perceive things in the infinity sense (forever, never, always, etc.) because I'm very childlike and those are words we use to describe emotion, because emotion is timeless, and its presence creates an envionment which makes everything feel like it'll be like that forever.
+
+it's a really important thing to note that those infinities are always there to describe emotion, which is the process by which eternity is created, meaning that things will keep changing to the same thing unless you consciously navigate to (or unconsciously observe) a better or worse feeling emotion. I like them, and I think there's great power in seeing things in infinites (even though society tells us to water everything down and use words like sometimes, occasionally, not always, or mostly, etc.)
+
+the reference is to the idea that I could possibly manage to not get the desire that I had given birth to. they say it's impossible, and I agree, which is why I gave stress in my explanation of the self-sabotage thing that jesus and tesla *did* accomplish the manifestation they were looking toward, then from a future perspective, they altered the timeline (self-sabotage), to make it so that even still they would accomplish the reality of their desire, it's just that it would take longer, and therefore become a higher quality manifestation, trading speed for quality/power by self-sabotaging it. they don't invalidate the desire, but increase it.
+
+it definitely *will* happen, and I'm convinced of this. however, what happened is, I gave birth to some new desires during this episode.
+
+let's go back to the you train them part: I really don't like this idea of training the girls to be someone that needs good things to be done to them. I think most men can agree that this is kind of an annoying attribute of women where they don't really want to put in any effort at all, and just expect the other person (men do it too, but I've noticed this more with women), to just sweep them off their feet and be some amazing knight in shining armour or something chivelrous like that.
+
+first of all, I don't want to train the girls to need other people to make them feel wonderful, and second I don't want to train them to depend on me for that wonderful feeling either. both of these ideas really don't feel good to me. nosebook may be the type that likes it when people depend on them, and I'm sure that for a lot of them, it would be their biggst wet-dream to have a bunch of girls depending on them (and grateful for endowing them with his amazing presence) such that they are essentially lost without his amazing presence.
+
+that's total BS in my perception. I want to be around girls that are self-sufficient, not depending, and are secure, stable, fun and not needing things from others (especially me).
+
+if the girls are the depending types where they need somebody doing nice things for them, then what abraham said is true: I can't (and shouldn't) get carried away, they said, but spend any extended period of time with any one of them, cause otherwise it would train them to need someone to feed them their emotional cookies.
+
+I really don't want that, and if you were to buy into the whole aryan gslaxy competition narrative I proposed in the last one, the guys at the highest power levels with their money invested in the humans don't want that either. that kind of behaviour creates a weak species, and that's not what any of us (source, me, or the guys trying to make a superior human race) would want.
+
+---
+
+I don't see this part clearly yet, but I would actually imagine that if there is a bunch of guys with time machines and an interest in building a genetic superiority, I would imagine that there will be two main groups of girls (from their perspective).
+
+first, think of this mechanically, with me like a tesla coil and the girl as a magnfiying transmitter: she will need to be able to convert with very high stablity a high-frequency signal into a good quality low frequency signal. there can't be a lot of noise (contradictory vibration).
+
+next recognise that DNA is folded dynamically based on the resonant frequnecy of the emotional envirenment of the cell. differnt bits of DNA encodes for different activity in different states. the goal is to optimise two things: recovery time, which is the speed at which DNA can recover from a low frequency vibration into a higher one. and second, culling of unnecessary extra code designed for many different operations in low frequency states. essentially, you want the low frequency states to be automatically transitioning into higher frequency states, and all low frequency operation to be culled.
+
+these two optimisations can be obtained from (these illustrated) two different extremes:
+
+the first is the girls ones with an enormous vortex, because they've lived a lot of life and contrast, and have generated a lot of speed from wanted and unwanted alike. however, I imagine that just because they've lived a lot of life doesn't make them capable of making a superior gene, but instead to be a good canditate, they will need to get pretty good at releasing resistance as it comes up, to be a good match. I believe the easiest way to do this is to they'll need to take periods of time off from reality (I recommend alone) to let those unwanted frequencies attenuate, giving more of their attention to what's wanted. go back out and find the weak spots in your perception and repeat. continue on until you feel mindblowingly good and attract what it is that you want.. the output of this DNA will be optimised for transitioning from various low-frequencies up to higher ones.
+
+second, the girls that are pretty non-resistant, and haven't really experienced a lot of contrast, so they've really only expereninced the good feeling emotion, and so they'll contain a small amount of activation of unwanted, meaning that when we combine (get old enough to make a baby), the resulting output DNA will contain very little operation at low frequencies.
+
+I'm gonna speculate now: I don't know how it'll be setup, but I imagine that the younger ones will be setup (groups? singular? I dunno) so that we'll grow up together feeling good and having a lot of fun. the bigger vortex ones will probably create the timeline naturally from attraction -- meaning that they'll have a difficult time actually attracting me until they're actually non-resistant enough and in my vibrational vicinity for it to happen.
+
+I dunno, really.
+
+[1]: actually two, but I can't remember the second one now.
+
 # the end
 
 ### 2020-08-04 ??:?? - the gratitude circlejerk
