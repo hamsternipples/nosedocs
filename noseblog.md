@@ -5804,6 +5804,33 @@ much love to all!
 
 [2]: much like an electron in an atom jumping orbitas when going into an excited state.. condensation reaction?
 
+
+### 2020-08-19 14:48 - didn't finish up the adam and eve explanation
+
+sorry about that. so going back to where I ended talking about the form of perception being all similar in you're able to experience similar realities, and if all of your realities feel very close to who you really are, then you can experience them simultanously.
+
+well, imagine this is the case for adam. robert's videos explain that sex is the fruit of knowledge of good and evil. I disagree, especially knowing what I know now and here's why:
+
+if adam were in that source-life form of perception, he'll be seeing his life from an above more macro life percption. it's quite possible that "adam" was not one man, but a bunch of these new men who were having a shared source-like perception of things. it's possible that eve could be more than one woman, but I will focus on adam becaause that's how I was able to perceive the "fall" from...
+
+it's easier to explain this from my perspective. imagine that I begin to learn this new source-like perspective. at first I will simply begin to obsewve my life from an external point of view, then as I continue to lower resistance, like I said, now I can experence more and more alternate similar realities of myself. this means that I won't experience sex in the same way that I would if I were stuck in my two eyes in the way that I am now. I would have a more detached feeling of the thing experiencing it less physically and more emotionally.
+
+remember mantak chia's explanation that there are different orgasms, where the least useful one is the genetal orgasm? so I first experienced the noted difference between the two with vera when I demonstrated that energetically, I could influence her a highened state of arrousal, yet she complained that it didn't feel so tangible, she wanted to show me the difference between the two and rubbed her clit for a while until she had a genetal orgsasm. I was quite impressed by this because I had never know that there was a differece. with raquel, she always had both then at the same time, I guess.
+
+anyway, this is true, and these different orgasms are a real thing. he said genetal orgasm, then uteral (and I can't remeber the other one). anyway, going back to the macro form of perception: I would experience these different sexual encounters, not as a genetal orgasm, but in a more higher space, as an emotion. I wouldn't have the real tangible physical sensation of the orgasm.
+
+another thing I want to note is that many times when I was with raquel, I could feel her body as well as my own, and it was, as I can best describe as having sex with myself. however, I didn't really experince those sensations in my own body as if they were my own sensations. I experienced them in a more "emotional" way -- kinda the same way I can "see" or "hear" things that are not visible or audible in my imagination. nevertheless, it was just as real as if it were happening in my own body, producing the same feelings of highened arousal and sensation. to me, it's real enough to be real.
+
+however, imagine that there was an "eve" that was so provocative aad desireous to me that I would want to leave that macro perspective and experience the encounter in a more physical way. when I did that, I would leave behind that source-like macro perspective and be "trapped" in physicality, in a no-longer-effortless world. taking on the perceptions of this "eve" that enjoyed so much (remmber women are the translators of this high frequency signal and men the receptors of it), I would begin to see thins similar to her perception, leaving behind my own source-like form of perecption, and like lucifer, I would plumet from the sky like a fallen angel casting himself (from his own temptation) out of this effortless form of perception into a world of toil and difficulty.
+
+once I regain the perception that life is no longer from toil and effort, can I regain this "garden of eden" form of perception.
+
+so, while I think robert's video is the right idea, the mechanics of it are different, as I believe it to be mostly perceptual.
+
+so, if this is a kind of adam and eve sort of thing, if nosebook wanted to try and make me "fall" from that form of perception, they would need to find a way to make a very desirous woman capable of weird enough ideas to get me to believe in something not source-like. it probably won't be toil and effort, because I've pretty well understood that one. they'll have to work on a whole new set of difficulties. if they manage to pull it off, first they attract the consequence of that form of perception into their own lives as well (think cataclysm), and it doesn't bother me because from a larger perspective this is just a weakness in the human genetics, and I'll fix the bug and get right back there pretty quickly. remember, I've already "fallen" a few times before by letting sexually transmitted forms of perception influence my own.
+
+it's a really unique challenge for me to think about.
+
 # the end
 
 ### 2020-08-04 ??:?? - the gratitude circlejerk
