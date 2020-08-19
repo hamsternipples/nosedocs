@@ -5731,7 +5731,13 @@ I'm gonna speculate now: I don't know how it'll be setup, but I imagine that the
 
 I dunno, really.
 
+---
+
+further speculation: what happens to the men? I have no idea. however, if at the same time as all of that is happening, it might possibly appear to the audience as one big gnomitos project, as the boys are born there, I would guess that the elite will transfer their consciousness into the boys. I don't know what's necessary to do that, but maybe some of the high contrast girls can create a compatible vibration for the majority of men to become conscious in the boys created from the gnomitos project. I don't know if that would be all men, or just a select few or whatever. a worse (to think about) scenario is that the energy levels of earth begin to rise dramatically fast, and it's quite possible that a lot of the resistant men's bodies begin to fail. as this happens, I don't know if nosebook[^2] will want to relocate thes consciousnesses into certain timelines of certain gnomitos over others. I have no idea.
+
 [1]: actually two, but I can't remember the second one now.
+
+[2]: I actually, thanks for reminding me, remember a weird sense that I had either out on the field or while watching abraham or in a dream that nosebook was going to begin to pump all people dying's into birthing children's consciousness (for statistical reasons? tracking? it wasn't said why...)
 
 # the end
 
