@@ -2,7 +2,8 @@
 
 I decided I wanted to begin writing things down. I'm going to try and do a quick blurb here so that I have a bit more context. it seemed like I wanted some way of organising my thoughts a bit more than the twitter way, and still have a bit more context for me to remember things with. I've gotten to the point that remembering what happened a week earlier not only feels like about a month has passed, but I find it rather difficult to even conceptualise how things were so long ago. this will hopefully give me the reference point I need to help me remember how things were so long ago, a bit easier
 
-[archive 2018](noseblog/noseblog-2018)
+[archive 2018](noseblog/noseblog-2018.md)
+[archive 2019](noseblog/noseblog-2019.md)
 
 ### 2020-01-04 13:37 - ???
 
