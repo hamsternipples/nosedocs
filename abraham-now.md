@@ -1,6 +1,10 @@
-# questions for abraham
+# abraham-now broadcasts
 
-as I'm listening to the 4 days a week livestream, I often inspire questions in me. I have no intention of askingt them directly, but they're kinda fun for me to write and think about the question, anyway.
+I started out thinking this would be a place where I would write out different questions:
+
+> as I'm listening to the 4 days a week livestream, I often inspire questions in me. I have no intention of askingt them directly, but they're kinda fun for me to write and think about the question, anyway.
+
+however, over time, this has transformed into some general thoughts and ideas that their broadcasts inspire in me.
 
 ### 2020-04-05 19:??
 
