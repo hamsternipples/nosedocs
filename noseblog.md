@@ -5886,6 +5886,50 @@ bring it on :)
 
 [1]: think of this as the completion of the aries (aryan) era is fully integrated body into physical reality. next, the completion of the picean era (where we are now), fully integrated the imagination (images into space), into perception. next, the completion of the aquarian era will fully integrate the emotional experience into our form of perception. now, normally, considering my layers, the next stop is the integration of source into our form of perception, but I believe this will not happen, as the people in charge don't want us seeing ourselves from the perpective of who we really are. therefore to allow this to happen, a new layer on top and bottom will be added. this will be a symbolic layer, and I didn't realise this until just now, but it fits between the emotional and source layers, which becomes symbolic and has to do with story telling (or symbolic) interaction.
 
+
+### 2020-08-21 14:24 - needeth not the manifestation
+
+I'm really beginning to lean into this self-sabotage thing. I think it's going to expand and there will be a whole lot more people that join me in it. I believe it's the furthermost progression on the series
+
+- you are in control of your reality with your thoughts (aries)
+- resist not evil (picses)
+- need not the manifestation (aquarious)
+- ???? (capricorn)
+
+what we're going to do is to look at this from a vibrational perspective. when you realise and know for yourself that your desires do not go away, and they keep gestating in non-physical vibrational realities until they come so much to a prominance that they must manifest. however, if you self-sabotage, you delay the manifestation even further, allowing it to keep gestating and becoming bigger in the non-physical "vortex".
+
+so now, let's take this idea and put it over the narrative that I believe happened, where jesus was actually successful in what he wanted to accomplish. he really did get an aquarian manifestation where freedom and individualistic expression was the reality for that earth. however, because other controlling types wanted to ensure that they kept their power (see documentary on flavius), it created a second reality where jesus did not get the manifestation he was looking for.
+
+imagine his surprise when he found out that from a temporal perspective (from the "future" looking back), he noticed that the alternate reality that was created actually looked like self-sabotage.
+
+it is my belief that jesus probably was pretty popular with the ladies, and whether he had relations with them or not doesn't matter. what matters though is that because of jewish prophecy of this "sacrifice" that had to be made, he did believe in his own demise as the fulfillment of the scriptures (the prophets) which he believed that he was a manifestation.
+
+so, in the alternate timeline, it's clear to me that what happened happened probably in where the bible talks about "good friday" -- the one where he rode in on a donkey and everyone *celebrated* him as if he were a king. it's easy to see that this created all kinds of desire in those wanting to retain their control, so he must be stopped.
+
+it may have occured that there were multiple timelines that happened where those in control (both the romans and the pharisees) had him stopped in various ways, but I think it came about that because of LOA and jesus' own attention on making himself a sacrifice, the timeline was likely adjusted to be one of self-sacrifice.
+
+so, now, with jesus and let's just say that it was mary magdalene that he was with, now they can having similar technology that the network has now, influence the timeline by putting thoughts and ideas into their heads in order to "self-sabotage" the timeline.
+
+why? well, that's the discussion of this post, but the simple answer is by doing so, you cause that desire to gestate in non-physical reality for 2000 years.
+
+so, likely whatever happened on good friday evening, seemed to have changed dramatically jesus' form of perception, which means that mary's perception was modified to be one of power in the group (instead of individual power through your knowing of your connection to source). likely they had sex on that friday night and it was in that moment (likely of orgasm), because of such powerful amounts of  energy being summoned, and it was a powerful enough orgasm which jesus took up mary's new form of perception, and that those thoughts were made manifest in the flavian reality (created from their desire) creating a new form of group power perception which is what we were living in before.
+
+now, you have to think to yourself that it appears that this timeline has been heavily modified numerous times to delay things as long as possible. why? more time to gestate. terence notes this a few times how it seems like these strangely unfortunate events seem to have sabotaged rapid progression of science. here for example, he talks about euclid in behhemia: @[youtube](https://www.youtube.com/watch?v=dQUSZ7cyT-o).
+
+another example is tesla, and I believe that both teslas self-sabotaged as well[^1]. both of those teslas are likely alive today, however in different bodies. when you gain the ability to move your consciousness into another body, you can gain "eternal life" by continually putting your consciousness into bodies which you know will be successful in gaining access to the technology to repeat the process.
+
+I am certain that I will self-sabotage, and I'm also certain that the "end" of my life, will actually be when I transfer my consciousness into another body (or bodies).
+
+---
+
+basically, what I'm trying to say is that I'm pretty sure that the self-sabotage way is the right way because it puts the manifestation back into the vortex to gestate for a long period of time. let's say that we actually have to continue on with the "procession of the equinoxes as a symbol of the age we're in" form of thinking, which means that over the next 2000 years me and many others (more on this later) will likely make many visits into this timeline in various bodies, self-saboaging each time.
+
+so here's why I think it's important that things get sabotaged this time, is because that means that instead of the "ideal" capricorian manifestation of having a group of girls, instead it's likely that the aryan gene factory will take place, where they'll have to make lots and lots of different *individual* timelines with different girls/women to try and find out the exact form of perception which will get me to crash and burn spectacularly.
+
+I welcome this, because for me what they're doing is finding a weakness in my form of perception, which will cause tremendous difficulty. I do not believe that I'll die from it though. instead, I'm fairly certain that they'll choose their own timeline out of that one, thereby creating their own reality, which means they will have finally accomplished the realisation of the aries form of thinkint
+
+[1]: the one that self-sagotaged as described in his autobigraphy when the man instead came to his door wanting to do a poll on people who believed they had ESP, and then the second one which created for the US govt the "death ray" -- which was really a way to test mass scale time travel, and then mysteriously and suddenly died.
+
 # the end
 
 ### 2020-08-04 ??:?? - the gratitude circlejerk
