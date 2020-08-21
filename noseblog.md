@@ -5922,13 +5922,71 @@ I am certain that I will self-sabotage, and I'm also certain that the "end" of m
 
 ---
 
-basically, what I'm trying to say is that I'm pretty sure that the self-sabotage way is the right way because it puts the manifestation back into the vortex to gestate for a long period of time. let's say that we actually have to continue on with the "procession of the equinoxes as a symbol of the age we're in" form of thinking, which means that over the next 2000 years me and many others (more on this later) will likely make many visits into this timeline in various bodies, self-saboaging each time.
+basically, what I'm trying to say is that I'm pretty sure that the self-sabotage way is the right way because it puts the manifestation back into the vortex to gestate for a longer period of time. let's say that we actually have to continue on with the "procession of the equinoxes as a symbol of the age we're in" form of thinking, which means that over the next 2000 years me and many others (more on this later) will likely make many visits into this timeline in various bodies, self-saboaging each time.
 
 so here's why I think it's important that things get sabotaged this time, is because that means that instead of the "ideal" capricorian manifestation of having a group of girls, instead it's likely that the aryan gene factory will take place, where they'll have to make lots and lots of different *individual* timelines with different girls/women to try and find out the exact form of perception which will get me to crash and burn spectacularly.
 
-I welcome this, because for me what they're doing is finding a weakness in my form of perception, which will cause tremendous difficulty. I do not believe that I'll die from it though. instead, I'm fairly certain that they'll choose their own timeline out of that one, thereby creating their own reality, which means they will have finally accomplished the realisation of the aries form of thinkint
+I welcome this, because for me what they're doing is finding a weakness in my form of perception, which will cause tremendous difficulty. it's all about recovery time though, so I don't believe that I'll die from it like jesus did. instead, I'm fairly certain that they'll create their own ideal timeline out of that one, thereby reaining their power structure, AND creating their own reality, which means they will have finally accomplished the realisation of the aries (aryan) form of thinking.
+
+from there, I'll rise back up like the phenix from the ashes (however even stronger this time) and continue on to create the reality that I was born to create (the capricornian one). however, in the process, they will have created a whole lot of alternate timelines. I'm sure that there are quite a few girls and women who will create alternate timelines with me, and will likely do the same, where from their future perspective, self-sabotage theirselves when those timelines (from the perspective of the aryans) "terminate" those timelines or abort them in some way.
+
+just the same, I have given the previous idea of a similar thing where those in charge who are getting people who are approaching their limits to control, will "cut the person off", essentially causing them to "die", but from their future perspective, this is only, similar to jesus, putting that manifestation back into the vortex to gestate for a long period of time. they will then return in their own timelines along the same pattern.
+
+you don't really understand how tremendous it is to let something gestate in the vortex for 2000 years... it creates a reality so much more powerful and desireable than the previous one. from the perspective of your "eternal" self, the one that keeps transfering their consciousness into more bodies after success after success, which appear to be "failures" on the timeline of those giving their attention to unwanted -- it just looks like improvement after improvement, where you continually gain with each self-sabotage a stronger and stronger sense of self-empowerment, and a more and more rapid recovery time.
+
+this is exactly what tesla talked about when he said, "What I’m trying to prove is wilder, and almost unattainable. This is what to do in the Universe so every being is born as Christ, Buddha or Zoroaster."
+
+the thing is it's becoming more and more mutiplied each whole time because more and more people are being involved. I'm pretty certain that it's not going to end en cataclysm though. I mean, it could be on some timelines, but this doesn't really help out when looking at the bigger picture.
+
+it's WAY more advantgeous for nosebook to continue on existing because they're essentially "forced" to keep finding ways to try and keep prolonging their fragile setup from crumbling. I think the acceleration of that will become so rapid, that they'll have to essentially keep is going for basically forever, continuing to get more and more technology and ways to try and hold back so many radiant beings from getting connected.
+
+I imagine that in the process, they're going to have to give up a bit on their control techniques, in relation to technology, and begin to "resist not evil" as their fighting against it only makes it bigger. this is likely because when they're focused on holding technology back from people, they're (because of LOA), on the frequency of limiting technolgical advances, thereby vibrationally limiting theirselves with that thought, and not letting in the technology they need to let in.
+
+---
+
+there is a much bigger picture happening here, and while I do think that the aryans (represented by the age of aries) are beginning to take their places, there seems to be a sort of competiton with the the semites (represented by the age of picsis), who at the end of the next age will begin to take their spot as well. I don't really see it clearly all of that because it's super muddy where to draw the lines there.
+
+one way of thinking is the idea that after the last deluge, noah had three sons which probably represent different population groups. I think they probably represnt the whites/aryans, the semites/middle easterns, and the russian/asians. there's an obvious fourth group missing (the indigenous peoples from africa and the americas)[^2].
+
+what's funny is that inside of the earth, the chestahedron is found, as mentioned by frank chester and frank steiner talked about. this chestahedron touches the earth at four points: one is in antartica, the other is in kansas (centre of the USA), the medeterenean (near turkey), and the kumchaka peninsula/japan area. these seem to point to the different culture centres for these 4 groups of people.
+
+although there is a lot of blurry lines and the mixing of the "superior" aryians with these races, I find it quite fascinating that these four points in relation to chesahedron the seem to have an effect on the population groups located there and the energy (earthquakes and energy things) seem to also be quite different where the [edges and faces are found](chestahedron/Remarkable Chestahedron, Part I.html).
+
+now that the aryans are located at the south pole vortex, this symbolically opens up the way for the indigenous peoples of earth to begin taking their spot (probably in the americas). I imagine that the indegenous ones are going to be the most "mixed" of the different races, where we'll/they'll have essentially the widest diversity of all of them and I will boldly make a prediction that their mix will be last to manifest, however the strongest of them all.
+
+---
+
+wow, I got distracted there with the chestahedron correlation. what I'm trying to say in all of this is that I believe the nosebook setup is probably here to stay and they'll need to keep trying to hold stuff back, but the concept of needing not the manifestation is such a powerful one. if you think about the difference between the aquarian manifestation that jesus would have had, it's miniscule in comparison to the one that's beginning to take shape now, and this one is replicatable and makes it so that anyone who wants to, can gain this kind of "power" (or lack thereof, if you consider power, your ability to resist).
+
+(it's a little bit crazy)
+
+so, I've really begun to lean into this whole thing of needing not the manifestation. I hope as many people who want to will join me. this world is completely backwards in what is taught as your true power, and the thing is that I demonstrate this. my words here are sometimes distracting from what I am showing.
+
+to illustrate this idea, I have been thinking about the different "elite" groups and "secret" societies. again in another one of robert's videos about secret societies, I realised that they believe the "occult" or secret stuff is what gives you power. to illustrate this, the initiation ritual of the skull and bones was given, where the initiate lays in a coffin (to die to his old self), and then tells all of the stories of his past (and likely shameful) stories of his sexual experiences. the society learns these to gain power over the initiate sure, but then when you consider that it's just a big boys club and all of these are super close, it gives a sense of group commraderie where they each gain power by knowing some other powerful person's secrets, but at the same time protecting and holding each others' secrets from getting out making a sense of security and forms a bond(age) between the members.
+
+now take a step back and notice that I am the most elite of them all, because I have essentially done the same with all of you -- the whole world. you all know all of my "secrets" and you know of all of my "shameful" past. the funny thing is, it's only shameful until you tell someone, so when you tell someone you feel a sense of libration, which is what the secret societies have amongst their members in the group. they're required to keep the secrets though so their shameful past doesn't get out to the public, and then within the group they can feel librated in their "sin".
+
+this is very much a group (picean) idea of power in the group. however times are changing and this group power is beginning to fade. the reason is because now there is a new super secret society (nosebook) which knows everyone's secrets now, which in their estimation gives them the ultimate power (blackmail or whatever), however they don't have nearly as much power as they think they do, because in order to get it, they had to get people to "not care" so much (and I'm a huge part in this too), which basically means that blackmail isn't really an effective form of control. remember when the new justice was coming into the news and they were disecting his calendar and other questionable activities in his frat years? even with all of that publicity, NO ONE CARED -- I mean, they did, for about a week or two, but then there were way bigger things to care about (again, I think that probably trump's media churn and I had a large part in this).
+
+so, what you have is an organisation which is trying to hold power over the people by knowing (in very high quality down to the physical sensation) everyone's (sexual or otherwise) secrets. if you will recognise that they have your secrets, it's a liberating experience, just like the secret societies have, however, it's individually liberating, meaning that the power that the individual gets from the libration no longer depends on some secret's being safe within the group -- or, you could say that as we move more and more toward the idea that everyone is always broadcasting[^3], we're all going to be in essentially one giant secret society[^4] now -- which means that we're all "initiates" essetially, and the higher levels of that secret society know our secrets, but we don't know theirs until we've earned it by going through some contrived set of procedures in order to attain or gain access to the next level of secrets.
+
+so in that sense, no longer is it the empowerment gained by the secret-society *groups*, but the individual empowerment that the individual gains by simply, "not caring" so much about what anyone else is doing. actually, this is probably why the 1984 idea requires that people care about what others are doing, and then report any non-conformist activity to the authorities. in this system, no one needs to report. you only need to observe it and care about what the other person is doing, causing you to think a thought, which their system picks up automatically as a "report" on what someone else is doing.
+
+in order to truly find your liberation, just like in the secret societies, you can know someone else's deepest darkest, most awful secrets, but you don't care.
+
+---
+
+we're going to get there and all of us will gain the most impressive abilities, much much more powerful than what I have. we just need to not worry about getting the ideal manifestation. even the self-sabotaged manifestation will be millions of times (potentially much more) better than the "ideal" manifestation would have been in the previous era -- and as eternal beings, we'll be able to live it out each time steadily progressing and improving on the manifestation by self-sabotaging the "ideal" manifestation each time. I guess that makes us all kind of (for reals), godlike.
+
+yesterday when I was stoned, (and likely tonight again) I pumped out a whole bunch of stuff for nosebook to fight against in relation to this concept. it's going to be a lot of fun :)
 
 [1]: the one that self-sagotaged as described in his autobigraphy when the man instead came to his door wanting to do a poll on people who believed they had ESP, and then the second one which created for the US govt the "death ray" -- which was really a way to test mass scale time travel, and then mysteriously and suddenly died.
+
+[2]: if you've followed robert's work any amount, he gives plenty of evidence that the african migration narrative did not happen, and these different population groups didn't just magically go from african into these other groups. lots of mixing has happened over a long period of time, so it's not so "clean"
+
+[3]: something that nosebook wants, so your thoughts on their experience can be tracked and used as "training" for what their machines should look for.
+
+[4]: in secret societies, not everyone knows everyone's secrets. it seems like the higher of a "degree" you are, is kinda like your "clearance level" in the US govt, which gives you access to more and more secrets, where the public is the one with access to zero secrets, and the initiate, only a couple.
 
 # the end
 
