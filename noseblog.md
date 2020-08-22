@@ -6018,6 +6018,35 @@ I very much dislike this subject because I like just doing what I'm inspired to 
 
 [1]: it feels to me like I may eat these words a bit, and I just want to say that as anyone gains more sensitivity (like is happening rapidly to me), the reflection of how one feels will become manifest as reality in more rapid and extreme ways. don't worry it's just evidence of things that you can do to improve your perception on, kenny :)
 
+
+### 2020-08-22 11:02 - weird day yesterday
+
+a bunch of weird stuff happened yesterday, and it felt as if I had a complete reality swap. it's hard to explain but yesterday, I had the sense that someone was hearing what I was saying about the self-sabotage thing, and somebody seemed to have changed the mental program they run my head on, or something. all of a sudden I wanted to do the more ideal manifestation and then circle around after some amount of time and then do the self-sabotage one (stone). a bunch of thoughts seemed to all of a sudden change in me too.
+
+for example, last night I came to this fairly obvious realisation that every single time something disastrous happened to me, I was stoned. more on this later... it then seemed obvious to me that all of a sudden I wanted to just stick with mushrooms and coffee for now, skipping the weed bit. I was like this before, but I still kinda like taking a break and smoking. however, I've really come to the realisation that making one feel really good by some sort of external means is a recipe for disaster. in my life this has happened with drugs (drinking, coke, and weed) but also, this seems to be the trigger for self-sabotage.
+
+I was thinking about the different self-sabotage events that I know of, jesus, myself, and tesla -- and it seemed like in these cases, when one feels abnormally good for whatever reason: sex, drugs, and imagination (respecively), then one can essentially swap out the reality for a similar vibrational one -- or something like that. I want to give this idea more thought, because then, we can develop a technique to self-sabotage[^1] seamlessly and without too much effort.
+
+there were numerous times where I distinctly felt as if time was flowing toward me as well as well as me flowing forward in time. a very strange sensation, but it makes perfect sense when you think of attraction and its function in the law of *attraction*. not quite like anything I had felt before. it was nice to feel something like that so tangible.
+
+the next weird thing that happened right afterward when I began walking to the field[^2] where I had this constantly bothering scene in the usual suspects when the cop complains (about kaiser sose) saying, "he's protected by the devil himself" (or something like that). the reaction kept entering into my mind, and when it did I had this weird feeling like they were trying to force me to go down the self-sabotage path, but someone was listening to what I wrote yesterday and finds me quite useful, so would rather that instead of rising from the ashes, I had the sense that we'll instead do the self-sabotage in some time..
+
+my reaction to that yesterday was immediately it felt good to me, but I honestly am such a contrast fiend, I really wanted to crash and burn and rise back up. I love that stuff so much. I can't wait to fix up the bugs in my perception program.
+
+I thought about it some more and we technically have almost unlimited time to work all of this out, so I think we can create quite the vortex. in contrast, if I had of continued on, I don't think I would have crashed that hard honestly because I'm so good now at finding a way to update my perception so rapidly; I really don't believe it would have been that bad. as a result, I think I should really try and come up with a multi-vector attack-vector (at least various girls) sort of setup so that I really crash mindblowingly hard. I mean we're gonna need to give them something to work with for 2000 years, right? lol
+
+---
+
+later on I was having these various girls pop into my head. I didn't think much of it (cause lots of weird stuff happens in half-conscious star-watching situations). however, later feeling people's reactions, it seemed like some people were interpretting that as me making a sort of selection. I'm fairly certain that they were more the most recent ones I had been thinking about more than anything. however it is, I just don't really think, if I have to make some sort of selection, to try and make it while I'm in such a disconnected state, and certainly not while I'm trying to fight to keep my consciousness while relaxing, while releasing my thoughts, while focusing, while star-watching (a very complicated task[^3], let me tell you, even though I've gotten pretty good at it) so let's just hold off on any of that for right now.
+
+we'll figure it out. I'll write my ideas as they come :)
+
+[1]: or nosebook sabotage someone's life trajectory with a similar one.. this will be a useful tool for them to have in the toolbox for them to be able to keep this up and keep us constantly needing to improve our perception for the next 2000 years... know what I mean :)
+
+[2]: I usually get the reactions when I get outside into the open air and there are more sounds and things which give me feeling of what people are thinking
+
+[3]: I have always tried to encourage people to star-watch, telling them that it is easy, because it is. it's actually mindblowing simple. the hardest part is stopping/releasing your thought, which if you're any good at meditation, you're already good at that. you only have to additionally hold your focus on the light while relaxing (kinda like daydreaming, so it's like focus without focus), which is also pretty easy and isn't too complicated once you get used to it. however, trying to do that while maintaining consciousness (which is kinda like the opposite of relaxing and the opposite of releasing/stopping thought), is difficult. as a result I've found, and these are kind of the advanced techniques, that I have to keep my mind going on lightish (or meaningless) thought, which is rather difficult because the brain wants to think about all the big, important, and juicy (holding lot of emotional impact to them) thoughts... so to keep it simple, I just tell people that it's easy, and if anyone actually tried it and started running into these "advanced" problems, I supposed they would ask me and I could explain my processes to combat loss of consciousness and forced tiredness, etc. based on where they're getting hung up.
+
 # the end
 
 ### 2020-08-04 ??:?? - the gratitude circlejerk
