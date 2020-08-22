@@ -5966,7 +5966,7 @@ to illustrate this idea, I have been thinking about the different "elite" groups
 
 now take a step back and notice that I am the most elite of them all, because I have essentially done the same with all of you -- the whole world. you all know all of my "secrets" and you know of all of my "shameful" past. the funny thing is, it's only shameful until you tell someone, so when you tell someone you feel a sense of libration, which is what the secret societies have amongst their members in the group. they're required to keep the secrets though so their shameful past doesn't get out to the public, and then within the group they can feel librated in their "sin".
 
-this is very much a group (picean) idea of power in the group. however times are changing and this group power is beginning to fade. the reason is because now there is a new super secret society (nosebook) which knows everyone's secrets now, which in their estimation gives them the ultimate power (blackmail or whatever), however they don't have nearly as much power as they think they do, because in order to get it, they had to get people to "not care" so much (and I'm a huge part in this too), which basically means that blackmail isn't really an effective form of control. remember when the new justice was coming into the news and they were disecting his calendar and other questionable activities in his frat years? even with all of that publicity, NO ONE CARED -- I mean, they did, for about a week or two, but then there were way bigger things to care about (again, I think that probably trump's media churn and I had a large part in this).
+this is very much a group (picean) idea of power in the group. however times are changing and this group power is beginning to fade. the reason is because now there is a new super secret society (nosebook) which knows everyone's secrets now, which in their estimation gives them the ultimate power (blackmail or whatever), however they don't have nearly as much power as they think they do, because in order to get it, they had to get people to "not care" so much (and I'm a huge part in this too), which basically means that blackmail isn't really an effective form of control. remember when the new justice was coming into the news and they were disecting his calendar and other questionable activities in his frat years? even with all of that publicity, NO ONE CARED[^5] -- I mean, they did, for about a week or two, but then there were way bigger things to care about (again, I think that probably trump's media churn and I had a large part in this).
 
 so, what you have is an organisation which is trying to hold power over the people by knowing (in very high quality down to the physical sensation) everyone's (sexual or otherwise) secrets. if you will recognise that they have your secrets, it's a liberating experience, just like the secret societies have, however, it's individually liberating, meaning that the power that the individual gets from the libration no longer depends on some secret's being safe within the group -- or, you could say that as we move more and more toward the idea that everyone is always broadcasting[^3], we're all going to be in essentially one giant secret society[^4] now -- which means that we're all "initiates" essetially, and the higher levels of that secret society know our secrets, but we don't know theirs until we've earned it by going through some contrived set of procedures in order to attain or gain access to the next level of secrets.
 
@@ -5987,6 +5987,32 @@ yesterday when I was stoned, (and likely tonight again) I pumped out a whole bun
 [3]: something that nosebook wants, so your thoughts on their experience can be tracked and used as "training" for what their machines should look for.
 
 [4]: in secret societies, not everyone knows everyone's secrets. it seems like the higher of a "degree" you are, is kinda like your "clearance level" in the US govt, which gives you access to more and more secrets, where the public is the one with access to zero secrets, and the initiate, only a couple.
+
+[5]: which is a good thing @[noseblog](2020-08-22 08:37)
+
+### 2020-08-22 08:37 - thinking about not caring
+
+I had some reactions to what I said about no one caring about the justice. I meant it as a good thing, not a bad one.
+
+I think that not caring is a good thing (especially when you feel good), because when you care, you focus (and therefore attract) more of how that problem feels into your experience.
+
+also, as you adjust your perception to one that doesn't experience as much everyday distress from what you observe, naturally less things will bother you (cause you perceive them differently). they're just part of the bigger equation and will work theirselves out naturally over time.
+
+you see, the thing is, if you were to try and figure out a set of rules which are the things that everyone should care about (we call them laws), then it kind of makes a problem (cause not everyone cares about the same stuff). perhaps, there may be a really refined set of "laws" revolving around the stuff everyone does care about, like I'm pretty certain that no one wants (unless they specifically request it?) to be assulted or killed or somethings like that. however, even though no one wants it people still do attract it, but I think it's fine to have laws for these sorts of things because they will affect zero people who are consistently feeling good, cause they won't be attracting that stuff.
+
+I guess I'll illustrate it like this: imagine you see a guy is making fun of some kid (or maybe something else you think shouldn't be happening to someone). first, it's important to realise that if you are the observer of it, that means that you are resonant to that in some way. it's also important to note that both the kid and the guy are resonant to it as well. that's hard to explain so I'll just say this: if you were feeling good, you wouldn't be the kid, the guy or the observer of it.
+
+now, imagine what happens when you begin to care about whatever it is: now you've changed your focus away from whatever it was that was a response to what was feeling good (hopefully) to something that doesn't feel good. so, for your sake, and nothing to do with the other person, you need to either not care or to find some sort of redemptive quality in the situation to find a way to get back to feeling good.
+
+however, let's say you see someone on the street that needs help. again, you are resonant with the person who needs help, so potentially you're just the right person in the right place -- so, if giving help feels good to you, then by all means do it. don't hesitate, actually.
+
+---
+
+in practicality, it's impossible to expect everyone in the world to just start feeling good all the time, and no change is instant, either; it's always gradual. therefore, I recommend that you simply don't bother with stuff that's not applicable to you (happening to someone else) and keep your focus what feels good to you (eg. other people's problems don't usually feel good, unless you're seeing the solution), and notice what in your life is continuing to improve.
+
+the more people that are feeling good for the majority of the time there are, quite literally the less and less events of troublesome nature will occur. it'll be slow going at first, but eventually we'll arrive to a time when all of a sudden we realise to ourselves that we have a whole bunch of laws around things that no one is doing anymore or would even consider doing, and then at that time we can make some adjustments, because they'll be obvious, however, while this world is still a pretty mixed bag, I would just let the people who's job is to worry about that, worry about that, and pay attention to how you feel, noting that troublesome circumstances around you are only a reflection of the vibration you've got going on[^1] (eg. how you feel, what you believe people will be like, and how you perceive yourself and others)
+
+[1]: it feels to me like I may eat these words a bit, and I just want to say that as anyone gains more sensitivity (like is happening rapidly to me), the reflection of how one feels will become manifest as reality in more rapid and extreme ways. don't worry it's just evidence of things that you can do to improve your perception on, kenny :)
 
 # the end
 
