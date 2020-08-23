@@ -6090,6 +6090,43 @@ we'll have to see what happens, because remember in the same broadcast somehow I
 
 [1]: this is the hermes/aphrodite (1st and 7th ray) cooperative creation.
 
+### 2020-08-23 12:50 - let's work backwards
+
+this morning, I was talking with mom about remote viewing and she was saying that you could remote view the results of a game. I agreed and began to explain that the way that I know it, a timeline has a trajectory to it, and so one *can* remote view the future, but it's just makes it an even likelier possiblity that it'll happen. I then gave an example that I quite liked.
+
+> imagine two people watching cars go by. one wishes to see a yellow car drive by and the other a blue car. if neither of them know about the other's desire, then it'll happen that at the same time a blue car will pass for the one and a yellow for the other. in that instant, they'll be on two different timelines, but neither will know it because neither will ever know that they experieced different realities.
+
+afterward, she asked me if you create your own reality, and I agreed saying that the possibility increased, however she had to go, which meant that I couldn't further explain the part about competing realities. so, I'll do that here.
+
+when two people desire for incompatible realities and the reality is observed by many competing desires, then one reality must win. the one that wins is the one with the strongest desire (eg. the one that feels most confident/likely[^1] to the ones observing it)
+
+however, if no one knows about the reality that you feel, it doesn't interfere with your own belief in it becoming a reality, cause competition creates a new thing where in order to gain the reality, you must "win" it vibrationally with your influence (uncontradicted desire).
+
+---
+
+so, when I say make the manifestation the way you feel, I am essentially making it a shortcut for you to get that reality, because when you feel the reality, you attract it and it attracts you toward it, mutually.
+
+unfortunately, and it's not really anyone's fault other than nosebook's (lol, but they're not *really* at fault), but I'm pretty sure that this whole thing has gotten big enough that there's quite a bit of competition on the reality. I'm not really meaning the girls, but there may be some of that. what I mean is competition between me and the guys trying to run the show. they simply do not want that sort of manifestation to be their reality. they want to see me fail (or something like that)[^2].
+
+nevermind them though. you don't need to compete with them, so turn off everything that is happening in relation to your desire if it has to do with nosebook, then begin to create your own reality by simply letting the feeling be the manifestation, instead of constantly observing what nosebook says the reality is. I don't mean do it just once and instantly you're there.. instead, what I mean, is it's a progression like always, so you have to feel it coming about steadily. it'll grow and grow until it's quite tangible feeling to you. just turn off anything that can convince you that reality is anything different than the way you feel it to be.
+
+---
+
+so, let's just try this out real quick as an example here:
+
+figure out what is the desire that you want. think of the people involved and the different things that you find exhilerating. ok, this isn't going to be the reality that you will experience, but note how it feels. note how it makes you feel, and what the world around you feels like. how does the air feel? stuff like that. try and experience it as if it were real, but as you're doing it, remember how it feels. ok, now turn your imagination off, and go back to feeling just like that and try to hold that feeling for as long as you can (more than 7 seconds abraham suggests).
+
+if you need to use your imagination again to explore another idea that pops into your head, go nuts, then remembering how it feels, turn your imagination off (it's kinda like meditation; it takes practise) and try to hold that feeling again. the more you practise this, notice how you're beginning to feel that way in your everyday life without even having had the manifestation.
+
+find a way to feel like that more and more in your everyday life (returning back there as often as needed) until it becomes natural to you and that's the way you feel all the time...
+
+if you're good at it, you *will* eventually find yourself seemingly all of a sudden in a new reality which feels exactly like, or even better than, the the way you've been pracising to feel. you just can't have things which compete with the way you feel about the subjects most important to you, know what I mean :)
+
+> competition is a great way for giving birth to desire, but not very good at getting you a place to let it in. -abraham (kinda, cause I can't remember the exact quote)
+
+[1]: likely isn't the right word. because you can have sometimes a reverse sweep which in the last moment, all of a sudden things go in the opposite direction that they appeared to be going, which is what most consider likelyhood. it more has to do with desire, cept you can desire for someone to win and still watch them lose. when you desire something yet you don't have any resistance to it (that is, contradictory feeling to their success), you have more of a "knowing" that they can come back (and do), but knowing isn't really the right word either, because people think of knowing like knowledge, when I want to say it more like a feeling. imagine you don't know something, and someone went to school to know the same subject. however, you are sure you can pick it up easily and it'll be easy to learn it. the differece between the two is what I'm talking about one is head knowledge and the other is a feeling -- a surity or confidence -- a feeling.
+
+[2]: however, they don't want that failure to include a cataclysm coming as a result from so much attention on unwanted either, which is a little hilarious
 
 # the end
 
