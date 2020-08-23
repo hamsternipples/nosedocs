@@ -6047,6 +6047,50 @@ we'll figure it out. I'll write my ideas as they come :)
 
 [3]: I have always tried to encourage people to star-watch, telling them that it is easy, because it is. it's actually mindblowing simple. the hardest part is stopping/releasing your thought, which if you're any good at meditation, you're already good at that. you only have to additionally hold your focus on the light while relaxing (kinda like daydreaming, so it's like focus without focus), which is also pretty easy and isn't too complicated once you get used to it. however, trying to do that while maintaining consciousness (which is kinda like the opposite of relaxing and the opposite of releasing/stopping thought), is difficult. as a result I've found, and these are kind of the advanced techniques, that I have to keep my mind going on lightish (or meaningless) thought, which is rather difficult because the brain wants to think about all the big, important, and juicy (holding lot of emotional impact to them) thoughts... so to keep it simple, I just tell people that it's easy, and if anyone actually tried it and started running into these "advanced" problems, I supposed they would ask me and I could explain my processes to combat loss of consciousness and forced tiredness, etc. based on where they're getting hung up.
 
+
+### 2020-08-23 10:57 - looking at it which way you want
+
+last night I started out with different reactions regarding the idea of the proposed idea (which mr. motor apparently doesn't like) of having a more ideal manifestation, then going back to make the self-sabotage. the reactions were giving the sense that we would grow like the bottom of the sine wave up to the top. so imagine that it would be slow going at first, then a huge increase, followed by a slowing, until I suppose that we would peace out to go back and put outselves into the other day where I had the weird feelings of time (or perhaps another more opportune one) and then make the self-sabotage timeline from there. obviously, once you get to the top of the sine wave it starts decending again, slowly at first then rapidly, then slowing again before it reaches the bottom again.
+
+the reactions seemed to that idea seemed to be where quite a few people can't stand the idea of seeing me getting connected, and some don't like the idea that my positive attitude and not their own effort is the reason why there's such an increase. the last reactions seemed to just not like the idea that at the top it will descend again (again, reinforcing the idea that they don't like that they're not the reason for the success).
+
+well, the problem with vibration is that things travel both ways: up and down (or forwards and backwards depending on your perspective). you simply cannot avoid that it's any other way. the only real alternaive is perhaps finding a way to be the creator of the vibration instead of the vibration itself. so, if you imagine a tesla coil, the DC pulses on the primary coil are not the vibration itself, but the cause for the induction into the secondary creating the vibration. I don't know enough to comment further, but it seems like a relevant idea for them to consider.
+
+---
+
+the opposite of that idea is to begin now with the self-sabotage now, so that a quick dropoff is made now, then, I assume that a second timeline would be created at the very bottom, where the guys can go and use that increased contrast as a propellant to begin to make their own success. that's perfectly fine with me, because that gives them the ability to make their own reality a bit, and then also at the bottom of that timeline, I too, will begin the recovery process and will take off in an upward direction, too -- so it'll be a little bit like a competition, kinda -- where two different timelines, starting from the bottom-most point in the wave will begin their upward trend.
+
+sure man whatever you want, I guess. I must warn you though, if we do it this way, I don't know how long it'll take to finally break me down, and it could be quite a while too, who knows. this could be the beginnings of the 20 year nosedive that I was wanting so bad a while back. I get the sense that we're kinda heading in that direction again and that's we're on track for again.
+
+the major advantage I see out of it is that it'll give the girls a whole lot more time to actually get good at the whole creating the own reality and paying attention to your emotions thing. along the way, I'm fairly certain that there could be a lot of fails a long the way, in the sense that they won't get what they want, and it'll feel maybe like they don't know it as well as they think they do -- which is sort of like how I was like in the beginning of all of this, and they'll simply have to, like me, need not the manifestation, and simply make the manifestation the way you feel, not any phyical circumstances.
+
+it's also what I was seeing when I was stoned the other day and I could see that a kind of big bubble seemed to begin to surround me, and, even though I was becoming considerably more attractive, at the same time, I was simply uncatchable (cause I was so far ahead?).
+
+---
+
+the other notable reaction that I noticed is that people seem to wonder why I'm so hell-bent on destruction (wanting to do such a long nosedive). first, only a person that is as sure of their (eventual) success, and their invincibility and eteralness, as I am could think that. and second, it's not the destruction (cause nothing really gets destroyed anyway), but the creation which emerges later after the space has been created. it's the negative side of desire really. 1st rays love this stuff, and the 7th rays do too, because there's a whole new thing to create there[^1].
+
+however, I think the real reason why is, if things are falling apart and there's destruction, then it forces people (both the public and also those in charge who want to be in charge of their own realities) to begin giving their attention to how what they want feels like.
+
+if you look at the concept, "need not the manifestation" there are other ways to see it, but I prefer this way:
+
+> "make the manifestation how you feel instead of the physical circumstances you desire"
+
+(because the circumstances you desired were what you thought were necessary to make you feel the way you want to feel)
+
+see what I mean?
+
+---
+
+anyway, this could just be yet another stage in the getting them to try and figure out what it is that they want, and it'll change (evolve) again. who knows.
+
+I can feel some people feeling a bit disillusioned about me saying that we're back on track for the 20 year nose-dive. it's actually only 18 years now, and remember what abraham said: «you are never content in trying to convince yourself that there's no solution that's possible» followng up with, «that's like saying, I'm here in this body to sift and sort and give birth to desires, but some of the times, I just can't get the desire that I've given birth to.»
+
+we'll have to see what happens, because remember in the same broadcast somehow I was able to see that I was going to become conscious of more than one version of me, too. perhaps this is all part of it. we'll just have to see. trust the process. I'm sure everything is working out fine.
+
+[1]: this is the hermes/aphrodite (1st and 7th ray) cooperative creation.
+
+
 # the end
 
 ### 2020-08-04 ??:?? - the gratitude circlejerk
