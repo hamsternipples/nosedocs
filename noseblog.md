@@ -6086,7 +6086,7 @@ anyway, this could just be yet another stage in the getting them to try and figu
 
 I can feel some people feeling a bit disillusioned about me saying that we're back on track for the 20 year nose-dive. it's actually only 18 years now, and remember what abraham said: «you are never content in trying to convince yourself that there's no solution that's possible» followng up with, «that's like saying, I'm here in this body to sift and sort and give birth to desires, but some of the times, I just can't get the desire that I've given birth to.»
 
-we'll have to see what happens, because remember in the same broadcast somehow I was able to see that I was going to become conscious of more than one version of me, too. perhaps this is all part of it. we'll just have to see. trust the process. I'm sure everything is working out fine.
+we'll have to see what happens, because remember in the same broadcast somehow I was able to see that I was going to become conscious of more than one version of me, too. perhaps this is all part of it. we'll just have to see. trust the process and make the manifestation the way you feel.. I'm sure everything is working out fine.
 
 [1]: this is the hermes/aphrodite (1st and 7th ray) cooperative creation.
 
