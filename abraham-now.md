@@ -933,3 +933,13 @@ ok, back to where I was now. the reason why I realised that I'm now having deja 
 nice! I didn't realise that is what is happening. I now want to mention something: have you ever noticed that the feeling of deja vu inspires confidence in you? you can't possibly "fail" or things can't really go wrong because you've already experienced it? you say well, what if I had this terrible feeling dream and now I'm living this terrible feeling reality just like in the dream.
 
 you navigate these "timelines" with your emotion, and if your dreams don't feel good, that's definitely not coming from your inner being. this can only be coming from prolonged exposure to your own fear and worry (some real good practise it takes to thikk that way so clearly)
+
+
+### 2020-08-24 16:40 - (2020-08-15)
+
+#### p2. 01:02:40 - departing words
+
+you are standing in a new segment looking forward to something.
+trust that whatever it is, will come to you in a myiad of delightful ways.
+you are wiser than you know yourself to be; let your life show you how wise you are.
+trust yourself
