@@ -2,8 +2,8 @@
 
 I decided I wanted to begin writing things down. I'm going to try and do a quick blurb here so that I have a bit more context. it seemed like I wanted some way of organising my thoughts a bit more than the twitter way, and still have a bit more context for me to remember things with. I've gotten to the point that remembering what happened a week earlier not only feels like about a month has passed, but I find it rather difficult to even conceptualise how things were so long ago. this will hopefully give me the reference point I need to help me remember how things were so long ago, a bit easier
 
-[archive 2018](noseblog/noseblog-2018.md)
-[archive 2019](noseblog/noseblog-2019.md)
+[archive 2018](/noseblog/noseblog-2018.md)
+[archive 2019](/noseblog/noseblog-2019.md)
 
 ### 2020-01-04 13:37 - ???
 
@@ -5526,7 +5526,7 @@ so, back to vlad, and in another section of that interview he explains that tesl
 
 remember that tesla I equate to mercury (thoth) in my mind, and he loves pigeons a lot. venus is always symbolised by a pigeon or a dove.
 
-so then again around the same time, I had a really strange find on the internet regarding the planet vulcan, with an article by asimov on the "coincidence" of the planet vulcan, @[the planet that wasn't](asimov/the-planet-that-wasnt.md) where he basically shows that with newtonian physics, you need another planet there to explain mercury's orbit. this planet was called vulcan because it must orbit so close to the sun. he concludes like this:
+so then again around the same time, I had a really strange find on the internet regarding the planet vulcan, with an article by asimov on the "coincidence" of the planet vulcan, @[the planet that wasn't](/asimov/the-planet-that-wasnt.md) where he basically shows that with newtonian physics, you need another planet there to explain mercury's orbit. this planet was called vulcan because it must orbit so close to the sun. he concludes like this:
 
 ```
 Vulcan, you will remember, is the equivalent of the Greek Hephaistos, and the most famous myth involving Hephaistos goes as follows--
@@ -5548,7 +5548,7 @@ And what does ein stein mean in Einstein's native German? "A stone!"
 I rest my case.
 ```
 
-a stone, huh? imagine you are tesla and you want to self-sabotage. you need someone to ensure that no one figures out how electricity really works. in @[tesla's 1899 interview](tesla/1899-interview.md), he not only disagreed with einstein and faught against him (giving him more power), he also had this to say:
+a stone, huh? imagine you are tesla and you want to self-sabotage. you need someone to ensure that no one figures out how electricity really works. in @[tesla's 1899 interview](/tesla/1899-interview.md), he not only disagreed with einstein and faught against him (giving him more power), he also had this to say:
 
 ```
 If Einstein had heard these sounds, he would not create theories of relativity. These sounds are the messages to the mind that life has meaning, that the Universe exists in perfect harmony, and its beauty is the cause and effect of Creation. This music is the eternal cycle of stellar heavens. The smallest star has completed composition and also, part of the celestial symphony. The man’s heartbeats are part of the symphony on the Earth. Newton learned that the secret is in geometric arrangement and motion of celestial bodies. He recognized that the supreme law of harmony exists in the Universe. The curved space is chaos, chaos is not music. ***Einstein is the messenger of the time of sound and fury.***
@@ -5950,7 +5950,7 @@ one way of thinking is the idea that after the last deluge, noah had three sons 
 
 what's funny is that inside of the earth, the chestahedron is found, as mentioned by frank chester and frank steiner talked about. this chestahedron touches the earth at four points: one is in antartica, the other is in kansas (centre of the USA), the medeterenean (near turkey), and the kumchaka peninsula/japan area. these seem to point to the different culture centres for these 4 groups of people.
 
-although there is a lot of blurry lines and the mixing of the "superior" aryians with these races (there may have been others as well.. we don't know much about these prehistoric times), I find it quite fascinating that these four points in relation to chesahedron the seem to have an effect on the population groups located there and the energy (earthquakes and energy things) seem to also be quite different where the [edges and faces are found](chestahedron/Remarkable Chestahedron, Part I.html).
+although there is a lot of blurry lines and the mixing of the "superior" aryians with these races (there may have been others as well.. we don't know much about these prehistoric times), I find it quite fascinating that these four points in relation to chesahedron the seem to have an effect on the population groups located there and the energy (earthquakes and energy things) seem to also be quite different where the [edges and faces are found](/chestahedron/Remarkable Chestahedron, Part I.html).
 
 now that the aryans are located at the south pole vortex, this symbolically opens up the way for the indigenous peoples of earth to begin taking their spot (probably in the americas). I imagine that the indegenous ones are going to be the most "mixed" of the different races, where we'll/they'll have essentially the widest diversity of all of them and I will boldly make a prediction that their mix will be last to manifest, however the strongest of them all.
 
@@ -6127,6 +6127,15 @@ if you're good at it, you *will* eventually find yourself seemingly all of a sud
 [1]: likely isn't the right word. because you can have sometimes a reverse sweep which in the last moment, all of a sudden things go in the opposite direction that they appeared to be going, which is what most consider likelyhood. it more has to do with desire, cept you can desire for someone to win and still watch them lose. when you desire something yet you don't have any resistance to it (that is, contradictory feeling to their success), you have more of a "knowing" that they can come back (and do), but knowing isn't really the right word either, because people think of knowing like knowledge, when I want to say it more like a feeling. imagine you don't know something, and someone went to school to know the same subject. however, you are sure you can pick it up easily and it'll be easy to learn it. the differece between the two is what I'm talking about one is head knowledge and the other is a feeling -- a surity or confidence -- a feeling.
 
 [2]: however, they don't want that failure to include a cataclysm coming as a result from so much attention on unwanted either, which is a little hilarious
+
+
+### 2020-08-25 13:39 - another list
+
+I decided that I am just going to enumerate all of the girls that I felt good about in a list. I couldn't figure out what to csll it. at the time I was getting up to write it down, I had santa claus song stuck in my head, so I thought maybe to call it "the list" -- but that sounds like "the (definitive/authoratative) list" to me, with the emphasis on it being something really athoratative or definitive. I just decided to take the words from the song and call it "a list" -- interpret it as "A-list" if you want (as opposed to B or C-list, I suppose)
+
+@[a list](/a-list.md)
+
+I'll just add them there as I think of them, and we'll go from there, but they're written down at least.
 
 # the end
 
