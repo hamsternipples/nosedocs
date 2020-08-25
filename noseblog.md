@@ -6137,6 +6137,47 @@ I decided that I am just going to enumerate all of the girls that I felt good ab
 
 I'll just add them there as I think of them, and we'll go from there, but they're written down at least.
 
+
+### 2020-08-25 16:44 - disaster???
+
+one of the funny reactions I've been getting today and yesterday is that they were sort of expecting a much bigger disaster, yet none has seemed to come.
+
+this is because I'm very good at feeling the way I want to feel. I remember the first day when basically no one really believed that anything good would come from this, and I simply did not feel quite as good as I normally felt. I recognised this as the effect of others' focus on me, does actually make me feel better than I feel.
+
+this is natural, considering when someone holds you in high esteem, you feel good because of their focus, and the same is true with all of you: I feel better in general when you guys have a positive opinion of me.
+
+so, when -- and I really mean that it felt like day and night difference between thursday and friday (which was interesting because on friday I told chris that all day I was certain that it was sunday)... it felt as if I had lived saturday, but I couldn't remember it. it felt like the other times when I got "reset back" and the difference between how you guys felt about me was tremendous, but it didn't really bother me. I just made a decision that this was an opportunity for us to gain even more momentum, starting from a "further" place than we want to feel.
+
+so, as I was feeling these reactions the last few days, it didn't really bother me because I am so certain of my "success" (that is my ablility to continue to feel better) that it was never a problem. I even had a bit of a monologue for a while yesterday where I was explaining that I didn't know exactly how I wanted to feel, and neither did I know exactly anything that I wanted to "do" either. girls sounded to me like a nuisence, and I didn't really have any good reason why I wanted to do anything -- I just knew that I wanted to feel better.
+
+I could remember how it was when I first got 4d perception and each vision upgrade the world seemed to become more vibrant and alive. I know that is what I want, and I notice that when I'm out in the field improving on my vision, I know I'm getting closer to that, and even though my physical vision doesn't seem to improve much, and the clarity of my (gross) emotional perceptoin seem to be getting more muddy -- that is, it's harder for me to feel big things like hate or frusration anymore, however at the same time it feels like I have this ability to conceptualise very big and complicated things about the human body and the cosmos and stuff. it's like I've lost my ability to "empathise" with others on gross abstract ideas, and have since gained the ability to tune into much finer and more intricate ideas now.
+
+as a result, even though I didn't feel trumendously well about all of this situation, abraham says that satisfaction only comes from having an intention (mine was the amazing vividness and aliveness my vision had when I first gained 4d perception) and then moving in the direction of it. I went out to the field, and though I don't really have much evidence to show for it and a lot of difficulty keeping my consciousness, I *still* believe I had one of the most productive nights in a long time.
+
+it's all about reovery time :)
+
+---
+
+so then, I was thinking about this just now and I think that while I remain conscious, I am nearly 100% certain that there is no way that any form of sabotage could really derail (hehe) me in any meaningful way. I'm convinced that at this point, it could only be self-sabotage that could do it. I was then reminded of a quote that tesla said in his autobiography:
+
+```
+I am unwilling to accord to some smallminded and jealous individuals the satisfaction of having thwarted my efforts. These men are to me nothing more than microbes of a nasty disease. My project was retarded by laws of nature. The world was not prepared for it. It was too far ahead of time. But the same laws will prevail in the end and make it a triumphal success.
+```
+
+basically he states: these INFECTED ONES did not sabotage my efforts. instead using contrast to your advantage, it's better to give the best ideas to the ones with the most "evil" implementation of the idea, ensuring that the idea will come out in its "worst" and most "evil" form, ensuring that it'll only be improved upon, and will, in the long term, arrive to a far superior form because of all of the desire born out of "knowing what you don't want" (contrast).
+
+---
+
+I've completely adopted this point of view, with the idea of "resist not evil" -- because the most "evil" version of some manifestation only ensures that succeeding versions (cause nothing is ever truely lest or destroyed), will all be guaranteed to be improvements.
+
+furthermore, I've even begun to really take upon the next step here, "need not the manifestation" because even if there is something that appears to be trying to "thwart" your efforts, it's really all about you and your own percepion, and so the *only* way (once understanding that it's all attraction), that something can be "thwarted" is through self-sabotage. that is, it's only you and your own form of perception which inhibits or blocks something. everything else is just adding more energy into it or causing a furher evolution (clarification, refinement) of the desire, making it something even more desirable than before.
+
+you can't thwart the laws of nature; you can only thwart yourself by believing that something is lost when it really isn't.
+
+---
+
+I believe this form of thinking is an echo of the era to come (capricorn), which likely will extend the "need not the manifestation" idea further by using your perception to put different physical manifestations back into the vortex (demanifestation) so they can evolve again into something more wanted again.
+
 # the end
 
 ### 2020-08-04 ??:?? - the gratitude circlejerk
