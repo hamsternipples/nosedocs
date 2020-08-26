@@ -12,3 +12,9 @@ these are the girls that I had a notable enough good feeling about that I want t
 ### 2020-08-25 19:24
 
 - about an hour ago I was outside and I heard a girl make a screaming sound, and it reminded me of another time that I was walking back on briargate and heard a girl make a similar screaming sound from a house with a trampoline -- probably on newpark(?). anyway, she reminded me of that, and I want to invite them both.
+
+### 2020-08-25 20:18
+
+- in the video where robert is talking about hungarian gypsies, there is a girl dancing in front here: @[youtube](https://youtu.be/QvKp1WKc-MQ?t=114). as I was taking a shower I was feeling different things...
+
+so, this is where I pause to wonder to myself wtf is going on, cause this video was produced in march 2019, which means the footage is a little older. my mind is specifically geared to suspect the most extreme and then work my way back to reality from there. however, if I begin to explain, I will launch off into a multi-page explanation much longer than what I want to put here, so I'll just leave it as a suspicion because I don't really understand how this could logically be happening unless something quite a bit bigger is happening. I just don't know, and additionally it's really weird because when watching the video again just now to get the timestamp, I have this extremely familiar feeling with her, as if I know her, but I assure you I don't and very likely (judging by the architecture) we're in different continents as well -- so I'm totally puzzled about this and how it could be happening, yet at the same time my heart is like kinda jumping around with excitement too. I dunno...
