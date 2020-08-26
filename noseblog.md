@@ -6178,6 +6178,76 @@ you can't thwart the laws of nature; you can only thwart yourself by believing t
 
 I believe this form of thinking is an echo of the era to come (capricorn), which likely will extend the "need not the manifestation" idea further by using your perception to put different physical manifestations back into the vortex (demanifestation) so they can evolve again into something more wanted again.
 
+
+### 2020-08-26 07:55 - a juxtoposition
+
+last night I had some crazy insight into how I think things will turn out. it builds tremendously on the ideas presented in the previous entry.
+
+near the end of the night, actually the sunrise, I was reminded of another idea which didn't feel nearly as good, which was what abraham said in @[abe-now](2020-08-15 ??:??) where they gave the seemingly out of place answer to a question that I didn't feel was directly asked by the questioner, where they gave the idea of mark telling esther that instead of installing 5 new programs and a new operating system all at once, to instead take it one program at a time, that way they could revert back to last known stable should a problem occur. I think the meaning is obvious in relation to my situation. however that idea, while perhaps valid in some ways, didn't feel very good to me at all. I don't really know why, however, it may be clear at the end of this entry.
+
+---
+
+I've really begun to lean into the idea of maximum contrast, that is the "least ideal manifestation" in order to ensure that from there will only be improvements on the idea. I gave the idea of tesla, and terence has ideentified various other juxtopositions where some ideal was about to happen on this planet, but then something happens any a lesser form gets instituted in its place. this is in a sense what I mean by a disaster or a nosedive rather than anything. it's where I'm constantly improving, even though my circumstances keep pulling me down... sort of like what has been happening here this whole time. I'm constantly making progress, but the progress is constantly "thwarted" or "reset back" in some way, where I'm forced to learn to focus faster and recover more effectively than to just coast on a bunch of momentum.
+
+if possible, that is what I would really enjoy for the girls as well, and tonight seems to kind of come up with a good plan for that. it combines the tree of the knowledge of good and evil of adam, in relation to source-like (who you really are) perception and also the idea of what tesla talked about where the appearance of the ideal manifestation (his world system) couldn't take place yet because it was ahead of its time -- in a sense, it was too ideal of a manifestation for back then. people hadn't yet known what it is that they don't want, so they didn't clearly know yet what it is that they do want.
+
+---
+
+so here's the idea the way that I saw it: yesterday when I woke up, I had this constant sense that the different sexual interactions that I would have with the girls would radically change their perception. I didn't really think about it then, but I imagine they could come to about where my perception is at. that's the first idea.
+
+next, I was thinking about what I said in @[noseblog](2020-08-23 10:57):
+
+```
+we'll have to see what happens, because remember in the same broadcast somehow I was able to see that I was going to become conscious of more than one version of me, too. perhaps this is all part of it. we'll just have to see. trust the process and make the manifestation the way you feel.. I'm sure everything is working out fine.
+```
+
+so, the goal for me (unequivocably) is to become conscious of this source perspective of myself. remember, right after that, I had this sudden realisation and I could see that this was the "fall of man (adam)" was all about. man resided in this protected place with ideal conditions where he saw things like source did.
+
+now, whether adam is aryan and eden is atlantis or whatever, I don't really care because there are lot of parallels with the atlantis story and the man in the garden of eden story. my point here is that I could see that man (adam) started out with a source like persepctive, and then they/he fell from that perspective in some way. robert suggests, and I agree[^1], that adam's fall had to do with sex. plato says that the reason for the atlantian fall was because of the "admixture" (the diluting of their dna/bloodline with the indigenous tribes of the earth)
+
+back to last night: I could see that instead of trying to fight against the idea of competition between the girls, we should instead lean into this, and once the realisation that competition is only perceptual for each of the girls, they could begin to allow not only a new form of perception (like mine where multiple timelines can be perceived), but they could instead use that competition to fuel the desire to gain access to this form of perception, giving them the ability to perceive theirselves from a source-like perspective where they have all sorts of different timelines happening at once, some with more ideal circumstances and some with less. let us consider this the source-like perception that adam had.
+
+once they're perceiving multiple timelines, then they, like me, can will learn that they can have different timelines with different levels of contrast in them, and that not a single one of them is "bad" -- because they have the vantage point of perceiving things like their source perceives them, from a much longer-term perspective, where the contrast (knowledge) between wanted and unwanted (good and evil) creates an enormous vortex.
+
+I assumed, based on what I was seeing last night, that their competition would give birth to their "ideal" manifestation, which they would then be able to begin living from their source-like perspective. additionally, other timelines can be created with them, and they can be aware of them and eventually, if they appreciate the contrast from a broader perspective, choose to "fall" into that timeline and experience its contrast in the first person..
+
+there is an intereting thing that no one really talks about the adam and eve story, is that they decided they *wanted* the knowledge of good and evil. it must have been enticing enough to want, because the higher level of command expelled them from the protected area, should they, in such an easy environment, "become like one of us". sound familiar? clearly the gods saw adam and eve's new enlightenment as something that threatened their position of superiority and cast them out to toil (effort). essentially, the "gods" felt that adam and eve must *earn* (through effort) their "god" status (access to the tree of life) again, and weren't just gonna have easy access to it like that in the ideal environment of the garden.
+
+---
+
+they way I understand that source-like form of perception is that all timelines that you're aware of are happening at once, and you can kind of focus into one or the other, wherever you want to be, and because all of the timeline are "who you really are" you are essentially observing yourself from that source-like perspective. in all of the timelines, nothing appears as good or bad (good or evil), but instead just as like choices or opportunities which appear more or less desirable, and the desire they will create is the obvious form of perceiving this. each of these "branches" you experience all at once, watching yourself expand and give birth to more desire on all of the timelines at once. wherever you want to focus you can and this is where your consciousness follows.
+
+it's important to note that you don't navigate them emotionally, because none of these timelines cause any negative emotion to kind of pull you into that reality. you perceive things like source does, from a non-resistant point of view cause you feel so good. as soon as you begin to experience negative emotion, the worse you feel, the more it causes you to focus there. adam experienced this when all of a sudden he noticed (had knowdledge of) evil (bad), and focused there, causing him to feel fear and shame immediately[^2]. whatever the case, some sort of negative emotion (likely caused by perceiving evil for the first time, cause source doesn't experience negative emotion when perceiving evil, source only sees it for the valuable contrast and resulting desire that it'll create)
+
+---
+
+so, I'm just going to assume that nosebook (or some upper level of command) has the ability to create timelines. I'm also going to assume that I will accomplish the ability to have this source-like perspective (nothing anyone can do can stop me; I'm clearly on my way rapidly there). thirdly, I'll also assume that after some time (or maybe they only need once), when the girls have sex with me, they'll gain my form of perception (the source-like one).
+
+so assuming all of those to be true (I'm pretty sure they are), then the final piece is when the girls are capable of turning their competition into the ability to use their new form of perception to allow whatever it is that they really want, and to begin to experience that. a multi-timeline source-like perspective, then they could choose what it is that they want. they could remain in their source-like perspective if they want and just see all of the different contrast provided by the different timelines through the eyes of source, or they could choose to "fall" into one of their "ideal" timelines that was born out of their turning their competition into what they wanted.
+
+essentially, different relations could be setup with them, and it wouldn't be a problem, because remember all of the infinite versions compatible with your form of perception exists at once, and even though you don't perceive them, there is no problem that they exist. the girls (and me) won't perceive these artificially created timelines unless they're interesting to us as a catalyst for creating more desire (bigger vortex), and so then once they become a part of our awareness because of the huge vortex (desire), then if any of the elements contained in that timeline cause any of us to feel negative emotion, like imagine during sex or something that someone is able to convince us of a form of perception that isn't so source-like and causes negative emotion[^3]. from there, we'll lose that godlike state again and "fall" into that timeline forcing us to find our way back there again emotionally. self-sabotage.
+
+---
+
+personally, I like this setup a lot for myself, because it basically means that for some really long period of time I will "fall" and regain my godlike status again some uncountable amount of times. I'll likely become so good at it, that the end of the timeline (or era) will actually be marked by when they can no longer get me to fall again. personally, I welcome this challenge, and if any of the girls want to join me in this sort of challenge, it could be crazy fun.
+
+it's kind of a win-win for a lot of people, because it would give a lot of boys/men a lot of opporunities to capitalise on the girls' form of perception in artificial timelines, and to try out the girls' form of perception for a bit. if the boy's perception is stronger, she'll get pulled in and have to find her way back, which is kind of a good thing. for me, this gives a lot of women/girls the ablity to try out my form of perception, and if any of their forms of perception are stronger than mine, I'll get pulled in and have to find my way back, which I really strongly welcome, and I *REALLY* can't wait to get really good at this.
+
+additionally, you can see how for those with the time machines, remember how I said that an alternative to consider to allow one to get out of being a part of the ebb and flow of time, is to be the pulse on the primary coil, rather than the current flowing through the secondary. well, this idea is kinda that. I was trying to figure out how that could possibly be (the primary coil) and this seems to be the answer[^4]. one could easily generalise this out such that everyone is eventually perceiving the image that you put in their eyes, like me, and even though they are perceiving from the more source-like perspective, they would have to gain the ability to sense that form of perception, because they would essentially be locked into the timeline selected for them (the one put in their eyes), and then different relations could be created in each person's alternate timelines, causing peole to bounce back and forward essentially until they learn to perceive their everyday experience from the same perspective as source (no more negative emotion... or rather negative emotion that doesn't cause distress. it's more like an indicator than a result... eg. a red-light vs. a collision)
+
+if nosebook decides to do this, then it also adds an extra dimension to the difficulty because not only will people have to become adjusted to feeling the high frequency of their emotion and desire, rather than the gross tangible physical feeling that's so easy to get lost in (cause it's big and juicy and our brains like big and juicy), and so people will likely spin their wheels pretty much idefinitely until they actually *want* to gain their own sense of freedom, and start feeling the way they want to feel (good). everyone on this planet will eventually get so good at recovery, we'll all be on jesus-level ablity to create. also the more powerful creators can easily be partitioned and kept away from the more secret stuff :)
+
+man I'm gonna get so good at recovery so rapidly, you guys won't be able to contain me. I really wonder how you're going to find a way to keep me bouncing around inside for 2000 years. I imagine you'll have to cut me off pretty quickly because I don't imagine it'll take me too long to become more powerful than your system :) I'll be back though... you can guarantee that :)
+
+
+[1]: because that's how I "fell" so long ago losing 4d vision when I lost my virginity to a prostitute
+
+[2]: or maybe feeling fear and shame was what made the fall... it's unclear, but I do know that you navigate emotionally, and the better you feel, the more source-like your perspective is.
+
+[3]: cause that's all negative emotion is, where your perception is different than your source's
+
+[4]: just yesterday I decided to shoot my mouth off and say that while I can't feel gross emotion anymore, I can receive the high frequency concepts just fine. now do you believe me? I also figured out what the swastika means, too. pretty productive night :)
+
 # the end
 
 ### 2020-08-04 ??:?? - the gratitude circlejerk
