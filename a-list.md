@@ -22,3 +22,9 @@ so, this is where I pause to wonder to myself wtf is going on, cause this video 
 ### 2020-08-26 09:58
 
 - walking home, I saw a guy walking on the field near to me, and I didn't think much about it, and then a thought popped into my head that he wanted me to invite his daughter. I thought it was a terribly strange idea, but it persisted. anyway, I decided I'm gonna go with it... welcome :)
+
+### 2020-08-27 14:17
+
+- walking home, I met dan, poncho's socio. we shook hands, and then when I got home, I started to realise that he must have met me for a reason. it feels like his daughter or something. anyway, I quite like the way she feels. welcome :)
+- dang well, it's really hard for me to locate what I'm feeling here on this one because it feels like there are more than one different signal. in this same video, @[youtube](https://youtu.be/QvKp1WKc-MQ?t=114), I believe I can feel the one in the back with the red and the white pretty strongly. however, I just don't know. I'm just going to say that if any of the girls there in the back that are playing around there that want to join, I think is fine. I don't have anything that says no and it actually feels pretty good, too.
+- as I was going out to the field and a few other times as well, I was reminded of this girl in pink shoes I saw very briefly in what looks like isreal: @[youtube](https://youtu.be/Bny_mt_6N-I?t=812). yo, I dunno cause I don't really feel her very strongly, however the idea did pass through my head a few times, which honestly doesn't really mean a whole lot either cause lots of thoughts pass through my head... anyway, not really feeling anything solid on it, I'm gonna let it sit for now. however, I did want to write about it so that LOA begins to take effect and either amplifies what I don't really feel right now, or brings about something more in line with what is really wanted.
