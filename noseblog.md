@@ -6248,6 +6248,19 @@ man I'm gonna get so good at recovery so rapidly, you guys won't be able to cont
 
 [4]: just yesterday I decided to shoot my mouth off and say that while I can't feel gross emotion anymore, I can receive the high frequency concepts just fine. now do you believe me? I also figured out what the swastika means, too. pretty productive night :)
 
+
+### 2020-08-27 14:06 - german efficiency
+
+I was laying down and thinking about how things are when I was reminded of a bit in tesla's autobiography where he goes out of his way to make a note of german efficiency:
+
+```
+Just to give an idea of German thoroness and "efficiency," I may mention here a rather funny experience. An incandescent lamp of 16 c.p. was to be placed in a hallway and upon selecting the proper location I ordered the monteur to run the wires. After working for a while he concluded that the engineer had to be consulted and this was done. The latter made several objections but ultimately agreed that the lamp should be placed two inches from the spot I had assigned, whereupon the work proceeded. Then the engineer became worried and told me that Inspector Averdeck should be notified. That important person called, investigated, debated, and decided that the lamp should be shifted back two inches, which was the place I had marked. It was not long, however, before Averdeck got cold feet himself and advised me that he had informed Ober- Inspector Hieronimus of the matter and that I should await his decision. It was several days before the Ober-Inspector was able to free himself of other pressing duties but at last he arrived and a two-hour debate followed, when he decided to move the lamp two inches farther. My hopes that this was the final act were shattered when the Ober-Inspector returned and said to me: "Regierungsrath Funke is so particular that I would not dare to give an order for placing this lamp without his explicit approval." Accordingly arrangements for a visit from that great man were made. We started cleaning up and polishing early in the morning. Everybody brushed up, I put on my gloves and when Funke came with his retinue he was ceremoniously received. After two hours' deliberation he suddenly exclaimed: "I must be going," and pointing to a place on the ceiling, he ordered me to put the lamp there. It was the exact spot which I had originally chosen,
+```
+
+lol :)
+
+I always thought that story was especially funny for him to include in his autobigraphy. it's almost as if tesla wanted to play some sort of backwards commentary on future events.
+
 # the end
 
 ### 2020-08-04 ??:?? - the gratitude circlejerk
