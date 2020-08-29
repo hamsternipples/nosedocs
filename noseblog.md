@@ -6322,11 +6322,31 @@ don't worry about it :) I wouldn't anyway, and the more you do, the bigger you'r
 
 I'd just worry about how difficult it will be for you to finally accept that you *must* experience what you wanted to experience. that's kinda where I am now. I'll be honest, it's not hard to accept at this point, it's just kinda weird because I'm so used to the idea of conflict as a method of creating change toward wanted, so it's weird (but stuidly logical) to realise that none of that is necessary. I don't need to create contrast. I can just be inspired to in the same way I'm inspired to walk or say something. from there, I can just easily feel the expansion or evolution from it.
 
-eg. the most wanted has the most iterations of unwanted on it. this is always true; it's certain. perhaps said another way: the signal with the most potential (voltage) is the signal that has traveled the furthest in the opposite direction (AC), for if has not (DC), then potential that has not traveled that opposite direction introduces an equal amonut of negative potential (felt as resistance).
+eg. the most wanted always has the most iterations of unwanted on it. this is always true; it's certain. perhaps said another way: the signal with the most potential (voltage) is the signal that has traveled the furthest in the opposite direction (AC), for if it hadn't (DC), then the potential that has not traveled in the opposite direction introduces an equal amonut of negative potential (felt as resistance).
 
-[1]: nothing is ever 100% one way or another, but always a blend between many things, like DNA
+[1]: nothing is ever exactly 100% one way or another, but always a blend between many things, like DNA
 
 [2]: however, "don't be amazed; to do not give way to amazement" (eg. it's next logical step, not big steps or small steps, just the next logical thing till all of it feels so automatic, all you do is experience and respond without anything causing you to get back into the nitty gritty tangible, because it feels so bad, place)
+
+### 2020-08-29 15:06 - regarding not getting the physical resources you need
+
+in @[abe-now](2020-08-22) they mentioned not getting the physical resource needed. eg. your cells are requesting more oxygen than your heart can provide. all of this is theory, but I'm gonna say it like I'm pretty sure it is (I'll willingly correct myself when new information broadens my understanding).
+
+well, unknowingly I gave them a solution to this problem without knowing when I explained how the heart and blood works. your heart is a suction organism, and it sucks blood from the extremities of your body back into your heart through your veins. your heart is not pumping blood out to all your cells. like elecricity, your device (load) requests an amount of electricity by creating a charge imbalance and current flows in that direction of the imbalance to return things back to stable again. your cells request energy and other things they need from your blood and those things, like electricity, flow in the direction of the cell requesting it.
+
+the heart does not assert nurients on the cells, pumping the blood blindly in all directions, instead each cell requests what it needs. if your lungs are breathing in enough oxygen and are able to put that on the blood stream, great, but if not, you have a deficiency. that deficiency occurs when your heart, when it's "pumping" is not able to charge your blood up with enough energy (oxygen) so you feel fatigue.
+
+your cells work is like reverse-photosythesis, like in plants. photosynthesis in plants take CO2 + sunlight turn it into some sugars and O2. I'm pretty certain that our cells work just the opposite: eg. they take O2 and some sugars and convert that into something like sunlight (a low intensity but very coherent UV light [^1]) and CO2 which is what the heart is sucking back into itself (the blood with CO2), and then you exhale that CO2 with your lungs.
+
+---
+
+if your heart isn't producing enough O2, then the way around this, is to inject it electronically. I'm fairly certain that nosebook has or will have soon the capablity of electronically injecting more energy into your heart, so your cells are getting the increasing energy that they demand (because we're all putting out more and more UV light. we're all beginning to become radiant and shine like suns and glow with the vitality of life itself).
+
+I don't know if nosebook would make that sort of thing available for purchase, but they might. if they do, don't worry right because maybe with time you'll no longer need it -- though if they're profitig off of it, they may want you to continue to need it, so you'll have to finally make the conscious choice to lower resistance because they won't want to loose customers, know what I mean?
+
+I dunno... however, personally, if I were anyone with a problem like this, I would definitiely try to delay the manifestation for as long as possible, because it builds a more powerful vortex -- know what I mean? that's just me though... :)
+
+[1]: @[youtube](https://www.youtube.com/watch?v=Vg8WeAMQwlA)
 
 # the end
 
