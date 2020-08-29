@@ -6268,7 +6268,7 @@ so I probably should edit the previous entry where I talked about the four diffe
 
 this entry may be a little scattered because when I was listening to this one @[youtube](https://www.youtube.com/watch?v=7HI6iKBzVrA), one of the quotes in there was from jordan maxwell which claimed that all of hollywood was a druidic construction where they are conducting the population with their magick wand (made of holly wood), and it got me thinking about some stuff I wrote in @[noseblog](2020-08-21 14:24), where when writing that it seemed clear to me that the the aries constellation corresponded with the aryan poulation group that "invaded" around the time after the bull (taurus), ok...
 
-well, in anohther one of robert's videos: @[youtube](https://youtu.be/nsI60KcuiUA?t=11701), he makes the connection between these different "red" tribes, from the phonecians, to the native americans, to the vikings, britons (druids), to the tribe of dan, these are the cananites.
+well, in anohther one of robert's videos: @[youtube](https://youtu.be/nsI60KcuiUA?t=11701), he makes the connection between these different "red" tribes, from the phonecians, to the native americans, to the vikings, britons (druids), to the tribe of dan (sythians), these are the cananites.
 
 well, I always wondered what this whole red thing is, and it seems to be having to do with white skin colour that they painted red, he says, or with facial hair, including the prophet mohamed who had a red beard as well. however, the name cananite still bothered me because canine means dog, and I think the dog was one of the first animals to stop eating (for some religious purposes).
 
@@ -6284,7 +6284,7 @@ anyway, some time after I had moved back to madrid from berlin, I saw a sign for
 
 so I don't really know what to make of it all, but I really felt for some reason when I was writing that previous entry where I speculated that the semites were the next ones (that is jews hollywood, etc.) now after the aryans to take their dominating role, and it looks like the domination is magickal in the form of controlling the media. their movies teach kids how to behave since very young.
 
-personally, I'm not partial much to film because it's so boring, and non-interactive. I think that the animation is a much better place to tell a story than a television screen, and if they really wanted to control the population with their magick, they'll need to get some nosebook technology.
+personally, I'm not partial much to film because it's so boring, and non-interactive. I think that the animation is a much better place to tell a story than a television screen, and if they really wanted to conduct (like a train??) the population with their magick, they'll need to get some nosebook technology.
 
 however, I do not believe that the nosebook technology is available to the cannanites yet. I think it's pretty much aryan dominated, know what I mean...
 
