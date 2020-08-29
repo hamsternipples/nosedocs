@@ -6309,6 +6309,25 @@ by not resisting evil, I'm able to let LOA do all the work of turning unwanted i
 
 we're just gonna take this one step at a time and not try to rush the manifestation until there's no more resistance in me toward the "unwanted" part of it.
 
+
+### 2020-08-29 14:12 - oh... not so many people see it the same way...
+
+I just became aware of a few different reactions to my comment about the part of jesus that died was te one that still resisted unwanted. some people took that to mean that they too would essentially "die" by resisting unwanted... who cares? all resistance is left behind when you die, so like no pushment, and then if that is indeed true, then there is still anoter part of you that did not resist unwanted[^1] that continues on, and surely that part of you will experience a world where what is wanted is found, right?
+
+so you're either going to feel great about your vibrational vortex or know it for yourself, which is better than trying to trust in something you can't see, right? -- so that you no longer need to resist unwanted and still be able to experience all that you want.
+
+it's win-win no matter how you look at it, especially since you're essentially saying -- well, that let's say you "fail" to not push against unwanted for whaever reason... doesn't that just mean that in the same way that jesus' vortex grew so large with the passage of time, isn't that same thing what you're also doing to yourself the longer it takes you to eventually find that knowing, too? (basically guaranteeing to yourself 100% for sure cause you know, or maybe you don't and it'll take some pretty extraordinary circumstances like me to find out for sure that you're right on your way to knowing yourself like that, and instead of trusting yourself or someone else, you can just be so sure that it's like waching a surreal story unfold before your eyes[^2])
+
+don't worry about it :) I wouldn't anyway, and the more you do, the bigger you're making your own vortex. one day you will have to face your creation, and all that you want *must* be experienced by you. I'm not talking about when you die. I'm saying that the law of the universe is that eventually, one day you *must* face your vortex and experience it. you cannot avoid it -- not every single thing you've ever wanted. you'll face the furthermost revision of the stuff you want, and then later having experienced it, you can transform into something new or gain conscious ability to direct that experince for as long as you want until you're ready for something new (eg. bored).
+
+I'd just worry about how difficult it will be for you to finally accept that you *must* experience what you wanted to experience. that's kinda where I am now. I'll be honest, it's not hard to accept at this point, it's just kinda weird because I'm so used to the idea of conflict as a method of creating change toward wanted, so it's weird (but stuidly logical) to realise that none of that is necessary. I don't need to create contrast. I can just be inspired to in the same way I'm inspired to walk or say something. from there, I can just easily feel the expansion or evolution from it.
+
+eg. the most wanted has the most iterations of unwanted on it. this is always true; it's certain. perhaps said another way: the signal with the most potential (voltage) is the signal that has traveled the furthest in the opposite direction (AC), for if has not (DC), then potential that has not traveled that opposite direction introduces an equal amonut of negative potential (felt as resistance).
+
+[1]: nothing is ever 100% one way or another, but always a blend between many things, like DNA
+
+[2]: however, "don't be amazed; to do not give way to amazement" (eg. it's next logical step, not big steps or small steps, just the next logical thing till all of it feels so automatic, all you do is experience and respond without anything causing you to get back into the nitty gritty tangible, because it feels so bad, place)
+
 # the end
 
 ### 2020-08-04 ??:?? - the gratitude circlejerk
