@@ -4470,7 +4470,7 @@ for me, the rate at which I'm learning is going so fast, I just want to go go go
 
 as I wrote that, it occurred to me, that there will always be infinitely more things more and less perceptive than you. you are always at the centre of your universe, and in your perception, you always change to be a repeat of the same thing you last were, until you transform and transformation happens when you gain a broader perspecive; a new macro perception where you perceive a new collection of bits in some form of organisation that provides that new macro perspective.
 
-I keep getting these glimpses of how the structure of things deermines its form of perception while at the same time being a part of that since stream of consiousness: the source of perception for all structures that came before it, and everything similar to it. the perception of the whole universe is contained within that "source energy" and all of us are that ... abraham says "extension" -- and I get why, because it's hard to express that word in english. it could be said that you (all of us -- even the ones you don't like) are an expression or a facet, or the lastest version of the perception in resonance to the form of that (source) energy. it's so cool.
+I keep getting these glimpses of how the structure of things deermines its form of perception while at the same time being a part of that stream of consiousness: the source of perception for all structures that came before it, and everything similar to it. the perception of the whole universe is contained within that "source energy" and all of us are that ... abraham says "extension" -- and I get why, because it's hard to express that word in english. it could be said that you (all of us -- even the ones you don't like) are an expression or a facet, or the lastest version of the perception in resonance to the form of that (source) energy. it's so cool.
 
 I wish I could explain better. it's so wonderful knowing that nothing is going wrong, and there are no "bad guys" and that all reality is just a reflection of your form of perception (that is, your interpretation of that energy) as perceived by you (resonant with you) from within your form (and resonant with your form). your form is your human body.. so like your current DNA implementation. you really are a product of your own perception, and a reflection of how you perceive the world.
 
@@ -6287,6 +6287,27 @@ so I don't really know what to make of it all, but I really felt for some reason
 personally, I'm not partial much to film because it's so boring, and non-interactive. I think that the animation is a much better place to tell a story than a television screen, and if they really wanted to conduct (like a train??) the population with their magick, they'll need to get some nosebook technology.
 
 however, I do not believe that the nosebook technology is available to the cannanites yet. I think it's pretty much aryan dominated, know what I mean...
+
+### 2020-08-29 05:46 - approching zen
+
+I figure, that if you can pretend to feel bad, just to catch someone's attention, and get right back to feeling good, you're probably approaching zen.
+
+(as opposed to pretending to feel good, just to catch someone's attention, and then getting right back to feeling bad)
+
+
+### 2020-08-29 09:32 - you know none of this counts, right
+
+I gave out a whole lot of different conrasting ideas last night. you know that none of them matter to me at all. for me, I just keep it on the one and let LOA do all the work.
+
+here's why: I just realised that the reason why there was a time split on jesus' timeline is because there was still a part of him that resisted evil. if there was no resistance in him to evil, there wouldn't ahve been a time split, because all of him would have embraced the "evil" self-sabotage timeline.
+
+in a sense, the part of him that died was the part that resisted evil. it's totally backwards to think about, because you would think the opposite, but it's actually true -- just think about it a moment and you'll see.
+
+anyway, the point is, I think that none of us want to have a time split, and clearly there is a part of me that still resists, but it's going away rapidly.
+
+by not resisting evil, I'm able to let LOA do all the work of turning unwanted into wanted. all I need to do is to continue on not needing the manifestation, meanwhile many "evolutions of desire" will happen, and we can just keep evolving it until no more evil is perceived anymore. know what I mean :)
+
+we're just gonna take this one step at a time and not try to rush the manifestation until there's no more resistance in me toward the "unwanted" part of it.
 
 # the end
 
