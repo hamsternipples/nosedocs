@@ -1033,4 +1033,4 @@ literally, right around where I paused it here, I love that they take a totally 
 
 [6]: posiive contrast is feeling bad then feeling better vs negative contrast which is feeling good then feeling worse.
 
-[7]: this seems logical because esther is much more dramatic than I am. I love dramatic people and tend to enjoy hanging around them because otherwise I would be waaaay too serious (trigger to allow let people react to this, LOA to respond to it, and I can make a followup). it's funny how our different perspecives on calibration are so similar.
+[7]: this seems logical because esther is much more dramatic than I am. I love dramatic people and tend to enjoy hanging around them because otherwise I would be waaaay too serious (trigger to allow let people react to this, LOA to respond to it, and I can make a followup). it's funny how our different perspecives on calibration are so similar, and yet what intoxicates us thn most is the same: to find out how source perceives the same thing (and to adopt it as our own, or own that perspecive).
