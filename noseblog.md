@@ -6379,6 +6379,53 @@ I also find it funny that this is the more complicated electricity explanation t
 
 [1]: all of this is clear as mud to me too. I don't really see it. I can only try to describe the concept, so in reality, I cannot visualise the circuit until I feel it out a bit better. I'll probably need to draw it out on paper and create a schematic to explain what I mean here. however, what I do know is that both sides of the circuit has what seems to be a tesla coil (maybe with a third coil?), and a magnifying transmitter are involved. they interact with each other, and athough both sides of the circuit are nearly identical (or identical), one of them is stimulated by electricity from the ether (and probably has a virtual ground) and the other one is stimulated with electricity from the wall (and likely has a real ground). the one stimulated from the ether should be the dominant/emissive one, and the one connected to the ground is the receiver. I'll figure it out eventually, but I think it's something like that.
 
+### 2020-08-31 02:32 - proposed "compromise" to the mun idea
+
+there are two things that stuck with me after I smoked the last time. the first was an idea that I should make the mun, bipolar instead of muli-polar. I'll elaborate on this as we go, but before I go there, this seems to correspond to another idea I said, where the chesahedron is in this planet, and one of the vertices is on the south pole, and the other three being in kumchaka/japan, medeterrenean, and the centre of the USA. it seems that perhaps the planet is going into a transition from being a bipolar planet to one that is actually looking to have 4 poles/vortexes (one at each vertex).
+
+anyway, the main idea on the changing the mun to be bipolar doesn't really resonate with me because I see myself as multi-polar, not just bipolar, but then again I have already accepted my bipolar nature, too -- so that's probably the next step, but first we'll work on the bipolar nature.
+
+before I talk about that, I want to remind the reader that a magnet has a "north" and "south" pole, but they are the same spinning vortex, just looking at it from opposite directions. eg. if you look in front of the clock at it, the hands turn clockwise. however if you walk behind it and turn around (imagine the clock case is transparent), you will notice that the same hands are now turning anti-clockwise. all you did is change your position relative to the magnetic field -- but it's always spinning the same way. eg. your orientation relative to the vortex matters to how it interacts with you (eg. attraction or repulsion).
+
+---
+
+ok, so the way I have it now, the "planet" is the true identity of the person (email and password), and then that planet has a number of "muns" (eg. illuminated or reflections) of that parent planet (and the sun of which the planet is itself a moon to)'s light. what I mean is that a planet is just a moon of the sun, if you wish to look at it that way. a planet can have all sorts of different moons orbiting around it in various ways, but the more luminous the planet becomes, the more harmonic the moons' vibrations will become of the planet, and instaed of going any which way, will go on the ecliptic of the plannt in a sequence of atmospheric double layers (of decreasing C[^1] and increasing Q[^2]) extending outward which create the "orbitals" around the nucleus (planet or star).
+
+logically, then you must begin to notice that there are, for each double layer, a physical membrane to the outer world, and then proceeding out from there, you get less and less physical until you're in space. the thing is, this sort of perception is more on the inner/outer aspect of perception, which I do not have a good way to model very well in code, however the important thing to note is that the planet has an inner (double layers extending inward) and then a physical membrane which is the last physical layer before less and less atmosphere until space (of the containing entity's atmosphere). the important thing to note is that there is a physical (outer) part which interacts with its environment and then an inner layer(s)[^3] which are hidden from view by the outermost physical layer and then.
+
+---
+
+so that's the rationale, and here's the proposed change: I'll still keep it as a planet (identity) and each planet will by default have two muns. to make this possible, I'm going to totally invert the above rationale above to make this possible: by default one mun is the physical planet, and then the second mun is the conter-rotating antithesis to the planet (much like our own system). so one planet (true identity: username/passord) and two muns (the planet which is a moon of the sun, and the planet's moon which is combinatory reflection of the sun and the planet). the reason why both of these are considered muns is because they're both illuminated by the parent enitty (moon reflects earth's light and also the sun's light).
+
+consider that the website itself is what I consider the sun... right? so the planet should be illuminated by the light (content) of the parent sun, and also self-illuminated by its own content too. when the mun's content (luminance) begins to overtake the sun (that is, other muns are contributing more content/luninence to it than the host sun/website), then the mun can itself become its own sun with many muns of its own.
+
+it really is the best way I can think of to make something that's "distrbuted" and is modeled after nature itself.
+
+---
+
+so my proposal is to make it so that a person has a physical aspect, and the person can define as much of that as they wish. then, I will consider these as like hemipsheres of the brain. so, if you're more right-handed, you would consider this your "dominant" or emissive (physical side). then your opposite hemisphere will be your recptive side -- so, if you're right-handed, your left-side would be considered your inner side. the user can then define as much of this inner side as they want.
+
+for example, I have frequently defined myself as left-hemisphere (right side) as stressed out male adult, and the other right-hemisphere (left side) as a young girl. I suppose it could be possible to define orientation as well as gender. maybe perhaps I'm like a lesbian little girl in a man's body ... something like that?
+
+anyway, I think this could be a kind of interesting way to present the idea, as it's much different than the traditional way, so it's kind of hard to anticipate how people will respond to it. perhaps it's a bit more manageable for people to begin to think about having a bipolar nature (remember it's the same vortex, and only the interacting object's relative position that makes it appear like its bipolar).
+
+---
+
+ok, this may seem out of place, but the last thing that stayed with me from the last stone was thinking about this weird idea that I could imagine that other people define their inner person different. I was thinking about some of the more assertive women that I would consider to be women that are so demanding/assertive[^4] that they can make a man turn gay -- well, I thought, if I consider that I'm a little (lesbian?) girl in a big boy's suit, then perhaps these women may be a little (gay?) boy in a big girl's suit. I could imagine their behaviour as similar to how a gay little boy may act in his childhood while he still didn't know his orientation[^5]. whether or not that is the case didn't matter to me, because it gave me an idea.
+
+what if there were women that perceived theirselves this way, and they decided to surround theirselves with men/boys that were gay, and instead of making little girls who don't fit their model, miserable -- just played with the boys?
+
+I'll leave it at that :)
+
+[1]: I used the letter C here, as in the constant for the speed of light, however, I am using it in the form of "conductivity" where this is actually a measure of how energetic or rapidly source is responding here. for example, subatomic will have a C greater than the C outside the atom (giving it all those crazy "quantum mechanics"), and in the nucleus, similarly will have an even greater C than in the subatomic area. I'll improve this definition in the future. the other value of which is a funcion of C, I will call Q similarly to the Q of an amplifier.
+
+[2]: I will consider C also a function of rarification (more space than matter), and it increases the furher out you get into the atmosphere, the furter you get out into space. this has something to do with the dielectric constant. it seems they're related. I don't see it fully yet.
+
+[3]: am I suggesting that there is an inner earth? I would almost certainly suppose that there is one, and following this theory, it'll have a much higher Q to earth than what we have on the surface here (which is probably a mix of Q to earth and Q to the sun). I would also guess that it's likely to have a higher C as well (as a function of those Qs), even though it's "inside"... think multi-layered capacitor around some sort of ball of energy.
+
+[4]: forgive me, cause that's not what I really mean! this definition will improve soon, but I have to "activate an emotion which makes it really exhilerating when that emotion lifts up off" -- so just go with it :)
+
+[5]: forgive me thad, but you gave me the idea when you described your interactions with other people at your school, and I caught your "emotion"...
 
 # the end
 
