@@ -6425,7 +6425,7 @@ I'll leave it at that :)
 
 [4]: forgive me, cause that's not what I really mean! this definition will improve soon, but I have to "activate an emotion which makes it really exhilerating when that emotion lifts up off" -- so just go with it :)
 
-[5]: forgive me thad, but you gave me the idea when you described your interactions with other people at your school, and I caught your "emotion"...
+[5]: forgive me thad, but this idea came out of a disturbance you created in me when I was horrified by your description of your interactions with some of the other girls people at your school. I caught me so off-guard, that I captured the concept you transmitted for further analysis... and this, I guess, where it ended up... :/
 
 # the end
 
