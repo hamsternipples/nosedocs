@@ -1057,13 +1057,13 @@ the other advantge of not making an image for myself (out of positive reinforcem
 
 [2]: there may be something to who seems to be more affected by these mixing of the vibrations. one may say it's the one listening, and not the one talking, but I don't believe it has to be one way or another. I think it's more to do with who's dominant (who's the most stable emotionally) in the situation, regardless of who's receiving the message.
 
-#### responding to some reactions
+### 2020-08-30 11:?? - responding to some reactions
 
 it occurred to me that in the specific example of sex, however, this concept can be generalised to explain many other things, it seems that women tend to turn that vibration into reality more redily than men do. I think the reason is the physical apparatus. if the penis/clitoris is the receptive organ (primary/secondary coils), and the prostate/uterus (terciary/quatinary coils) is the emissive organ, then it's normal that the woman would be more potent creators of that reality than men are.
 
 the next part is the dominant part. in most cases, it's the man that is the dominant one (usually physicaly, but also vibrationally), so that would imply that the man is usually the primary coil and the woman is the terciary. it seems possible that if the man ejaculates, then when that happens, the ejaculation is the primary coil, which begins to induce in the secondary coil a signal... and if that happens before the terciary/quatinary coil is receiving, then the emissive organ will begin transforming the signal induced on the secondary coil.
 
-ideally, what should happen is that the 3rd/4th coils should be the dominant ones, meaning that they're transforming non-physical energy into reality, to which the 1st/2nd coils are receiving.
+ideally, what should happen is that the 3rd/4th coils should be the dominant ones, meaning that they're transforming non-physical energy into reality, to which the 1st/2nd coils are receiving[^1].
 
 if it's the other way around (eg. the man causing the orgasm first), then the receptive organs translate the physical energy put out by the penis into reality. therefore, if the man has some negative beliefs, the woman (in this case) will translate them into reality. the more energetic the environment is, the more rapidly this will happen. obviously men and women have both receptive and emissive organs, so the same could be said about gay relationships, too -- however, I think it's less reality creation in that way in gay relationships, and even less in lesbian relationships -- meaning, less impact.
 
@@ -1082,3 +1082,5 @@ think about it further, in that we think often times that the physical receiver 
 therefore my theory is then, that the location of the receiving organ is "open" so it's getting it's signal more from source than from the other person. you can see how woman's bodies are structured in such a way that this is more likely to occur if they are first to orgasm. for gay men, this may actually be easier to accomplish. hands do have an effect too, so stimulating the clitoris/penis with the hand does translate the energy from whomever's hands (left or right -- there's likely a difference) into reality, too.. so like animation/movement matters and rough stimulation can make rougher results, I would imagine.
 
 (I think I had a dream about this concept when I was waking up, cause I remember I was thinking about it when I awoke)
+
+[1]: all of this is clear as mud to me too. I don't really see it. I can only try to describe the concept, so in reality, I cannot visualise the circuit until I feel it out a bit better. I'll probably need to draw it out on paper and create a schematic to explain what I mean here. however, what I do know is that both sides of the circuit has what seems to be a tesla coil (maybe with a third coil?), and a magnifying transmitter are involved. they interact with each other, and athough both sides of the circuit are nearly identical (or identical), one of them is stimulated by electricity from the ether (and probably has a virtual ground) and the other one is stimulated with electricity from the wall (and likely has a real ground). the one stimulated from the ether should be the dominant/emissive one, and the one connected to the ground is the receiver. I'll figure it out eventually, but I think it's something like that.
