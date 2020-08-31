@@ -943,3 +943,94 @@ you are standing in a new segment looking forward to something.
 trust that whatever it is, will come to you in a myiad of delightful ways.
 you are wiser than you know yourself to be; let your life show you how wise you are.
 trust yourself
+
+
+### 2020-08-30 17:59 - (2020-08-22)
+
+#### p2. 07:12 - step by step for calibrating
+
+I call caibrating, changing my perception.
+
+I when the questioner asked the question for a step by step on calibrating, I immediately wanted to try giving my own answer first before hearing theirs. I think it'll bring about a huge improvement on my technique because I've never really thought about hte step by step process which I take. therefore, I'll give two answers. one is how I approach it conceptually/emotionally, and second is the same think perceived from the opposite direction (structurally or logically).
+
+first, I have to recognise that something feels bad. this, for me is the most difficult part because when I'm angry, I am anger. I am the embodiment of anger, and it feels very normal to me. it feels completely justified isn't the right word -- perhaps more natural, in the sense that I don't feel any reason why I shouldn't be angry.
+
+when I was younger I had different rules that told me how I should feel in certain situations and I had like limits and stuff to how much of an emotion (good or bad) I could feel... so if I felt too good, I had to go eat something or smoke a cigarette to distract me from how good I felt. same for feeling too bad: if I felt too bad, I had to go eat something or smoke a cigarette to distract me from how bad I felt.
+
+however, nowadays, the more I've released resistance, the less I have any limits to how much of any emotion I think I can feel, and I don't really compensate much[^1]. instead, I just have a much stornger desire to want to feel good than I used to. feeling good for me is terribly addictive to me and I can't wait to find some new way to feel better. releasing resistance has kind of made me feel like I'm on drugs[^2] all the time, and I'm totally addicted to finding new ways to feel better.
+
+so, when I have something that enters my mind which doesn't feel good, now instead of some program activating to tell me this is bad behaviour or some other rule (either self-inflicted or otherwise), now I just have a growing desire to want to feel better.
+
+I don't really think much about the positive thought calibration that I can use to make something feel better. instead what happens is, I become aware of the thought or belief that is holding me back from feeling good about the same subject.
+
+so, for example, let's say that someone comes and does something completely unjust or uncalled for. I almost never recognise that I attracted it until after cooling down, so that teaching from abraham isn't helpful for me in the moment[^3], however it is important to realise this, so I try to make some sort of mental achnoledgement of it at some point to really release the resistance to the thing. basically, one of the evidences that I have for resistance to be released on the subject is that I have attracted it.
+
+---
+
+real quick: I just had this random idea going through your(?) head. in it, there was like a movie director or maybe a writer -- someone determining the direction that different characters are making, and they're giving their attention to these different interactions that their characters are having happen. is the direcor therefore attracting those different things into their own life by focusing on them? my answer is it depends. what matters is not so much the thoughts, but the emotion that those thoughts produce. if I see something and one person is totally devistated emotionally from it, and yet that same thing does not cause me negative emotion, then that means that I don't have near as much resistance to it as the other person does.
+
+remember that negative emotion only means that my perception of the thing (whatever it is), is a bit off, and definitely not the same way that my source sees the same thing. therefore, if I think about what I'm saying, I'm essentially saying to become psychopathic, in that observing terrible things no longer cause me to feel negative emotion.
+
+back to the director: if he is (gonna use masculine because I've never met a female director, yet) arranging the interactions, and those interactions are causing him to feel negtive emotions, I wouldn't proceed with that interaction. however, if it's an interaction where normal people would classify it as awful, unjust or terrible, yet it causes the director no feeling of negative emotion, then I think it's fine. some directors create their scenes around emotional inspiration from their own bad (or good) feeling, making the scene a (usually false) sonse of raelity in harmony with their feelings.
+
+instead, what I like to do is just to let different characters interact inside of my head. their interactions don't make me feel bad, so I don't even need to let the sitation play out in my head. instaed I just directly feel the result of the simulation's run time: just like how after I imagine something for a bit, I feel something. I feel the emotion without having needed to play out the scene in my mind, because none of the scene really causes me so much negative or positive emotion.
+
+think for myself what next logical step means: it means that the next action feels normal, logical or natural, and so therefore doesn't really have a tremendously good or bad feeling to it. next logical state/step is all about reducing the relative amount that something feels different. big changes in how I feel create big contrasts, which has a tremendous effect on reality around me (especially at higher levels of DMT).
+
+---
+
+therefore, when something happens, because I've released so much resistance I have nothing telling me anymore that I should be behaving or feeling any different than I do right now. so with that logic (that slows me down) gone, the only thing left there is, is a strong desire to feel better. so, if I can't feel that desire stronger than the negative emotion I'm feeling right now, I tend to get kinda worked up in the emotion until I can feel that desire again.
+
+after some time I begin to feel that desire again and I often have to make a conscious choice, saying something like maybe "this is very unjust or something that should *not* be happening, and so the way I feel right now *is* justified, but I want to feel better." and so from there I can shift into a better feeling spot. I can also achive a better feeling spot from some sort of substance or condition like sex or something too.
+
+most people would stop there once they're feeling better but I believe that stopping there is the least productive thing to do, because I haven't done anthing to change my perception. it's now that sometimes I realise that it's attraction.
+
+however I get there (to feeling better) doesn't matter to me. the next thing I do is, now that I'm capable of thinking better feeling thoughts, I have to find a way to find a way to change my perception on the subject -- cause my vibration is always where I last left it, so the point of feeling better is so that I'm in a better spot to calibrate or change my perception of it.
+
+this is where the teachings of abraham are quite helpful, and reognising the reflectiveness of my world to how I feel -- meaning oftentimes what I notice in someone else that causes me distress, is also an attribute of myself I don't like. when I recognise that, I just go ok, I want to improve that, and I don't really know how, but something better -- then just let LOA do the work there.
+
+when I think about anything that is unjust, for example, if it's happening to me, then I take the easy road of just recognising that it's more energy, and so therefore a good thing, but that I also attracted or maybe even expected it. it's easy to having experienced something enough times to recognise the pattern and begin to expect it, so that's why I like the "more energy" perception instaed of the "told you so" pattern based perception[^4].
+
+in almost every case, the thought that's causing me to feel bad is almost always apparent to me. the only thing is, it feels kinda like it hurts a bit to change it. something like a feeling like if I change this thinking around it or let that go, then I'll be just accecpting this bad thing as OK or just. this is the perception that doesn't feel good and it's what I need to find a way to become OK with it. I don't need to accept it -- just become OK with it. after I find a way to change that, I don't instantly feel better, though sometimes I do, instead I gradually feel better and better and this is completely intoxicating[^1].
+
+once you become the master of your own perception, there is nothing that feels daunting anymore, and "overcoming" difficulty becomes intoxicating, becuse it's the steadily rising always feeling better thing. after some time I have an impact, and I feel worse, but then I just get back to feeling good again, and once more I'm feeling better and better all the time[^5].
+
+for me, now what's happening is it's not about feeling good anymore, but about feeling neutral (OK, content, satisfied) than anything. I'm not bursting with good feeling or feeling bad, but things are just next logical step for me, and I don't really want something that makes me feel too much better/worse than how I feel, so I'm basically trying as hard as possible to lessen the impact anything has on me now.
+
+I don't really perform this operation very consciously anymore. instead, it's just sort of like a reflex like the gear shifter and clutch while driving. I'm only minimally aware of it, and it's not affecting my overall thought process, until I'm in a tight spot like parking or something and I have to pay more attention to the gear shifter to manouvre the tight spot.
+
+---
+
+lol, ok, they didn't give a step-by-step answer, lol. it must be that everyone kinda makes their own process. I suppose that one could turn what I just said into a step-by-step though, but it may obfuscate the emotional aspect to it. I'm iteratively using emotion to find a way to change my perception to be the same way as source, so that I can perceive reality like they perceive it. (period. end of story. I showed the path, but you have to find your way there there, if you want to see things like source does, that is)
+
+#### (10:44) - activating an emotion which makes it really exhilerating when that emotion lifts up off.
+
+they talk about what are you calibrating to, and that you can tell how you feel by calibrating to your source. then, they suggest that sometimes talk therapy or really discussing an issue with someone can be quite a thing to really «activate an emotion which makes it really exhilerating when that emotion lifts off».
+
+it's funny, because I don't see it that way. for me that is also dangerous territory because I have noticed that after feeling really good, I feel the contrast of feeling that good in comparison to how I normally feel, so like a drug which which makes me feel better, I again need that positive contrast[^6] so go to find the way to repeat that process. I can see why abraham said that esther finds it intoxicating. I used to see it that way too. however, my technique of modifying perception doesn't really change the emotion much, so I rarely feel that positive contrast. almost always the belief that needs to be changed kinda stings a bit, like I'm giving up some portion of my ego or my right to be right or make a point about some injustice -- giving up that right kinda stings a bit to me because I have such a massive ego.
+
+I think abraham's teachings are more geared toward peole who like dramatic swings (in emotion/contrast/drama)[^7]... I try and lessen the impact though as much as possible.
+
+so for me (and also your benefit), the most important thing to note about what I wrote in the last section, is that when I change my perception, I usually don't really have any "breakthtrough" moments, or anything that makes me suddenly feel much better. usually I'm still kinda pissed at whatever it was or maybe pissed off that I'm no longer able to push against that. instead I just begin to gradually get let it get better with time. making each change to my perception have as little of an impact as possible -- making the process of changing my percepion, eventually lasting and effortless, as if I were simply shifting gears.
+
+#### (11:53) - you're not calibrating to be right; you're calibrating to feel good...
+
+> don't lose the plot; you're wanting to return to your source energy
+
+literally, right around where I paused it here, I love that they take a totally different angle at it than me. when they say, «you're not calibrating to be right; you're calibrating to feel good», they're saying exactly the same thing as what I was saying about the injustice part stinging a bit, because justice is all about being right on something (whether it's that the rule is wrong, or someone is not following the rule), so change the goal completely, instead of trying to be right, try instead to find a way to feel good.
+
+(to be continued... brb - 12:24)
+
+[1]: interestingly, I just now noticed that I actually no longer limit myself to how good I feel, and actually finding a way to feel better has become so addictive, I think this manifests itself in drugs and substances too, where instaed of compensating to make myself feel bad again, now I just want to feel better better better all time. good addiction to have, but I probably don't want to get too carried away with any one condition, and instead should diversify the good feeling.
+
+[2]: more specifically, MDMA or perhaps coke (though I respond much differently to coke than most, so I dunno how good this analogy is here).
+
+[3]: they even agree with that saying that telling someone, or yourself that it's all attraction when things are going wrong, doesn't usually go well: you say, "I wouldn't have attracted this thing I do not want into my life"
+
+[4]: if I were the director of the different influences people experience, I wouldn't make a system based on patterns, because that will create a runaway acceleration feedback loop. instead I would classify different things as having an energetic emotional response (both good or bad) and make actions based on energy levels, constantly optimising for more energy, constantly pushing the actors to their emotional limits all the time. remember that the goal is to push that to the extreme that one can handle without going too far. you got to get back to next logical state/step (NLS)
+
+[5]: I think this happened in my life after I crossed the halfway point, where no longer are things tending downward, but instead tending upward. I almost always feel my best at the end of my day instead of the beginning of my day now, for example. I think this means I'm feeling more wanted/neutral than unwanted emotions now.
+
+[6]: posiive contrast is feeling bad then feeling better vs negative contrast which is feeling good then feeling worse.
+
+[7]: this seems logical because esther is much more dramatic than I am. I love dramatic people and tend to enjoy hanging around them because otherwise I would be waaaay too serious (trigger to allow let people react to this, LOA to respond to it, and I can make a followup). it's funny how our different perspecives on calibration are so similar.
