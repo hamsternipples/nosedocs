@@ -1034,3 +1034,25 @@ literally, right around where I paused it here, I love that they take a totally 
 [6]: posiive contrast is feeling bad then feeling better vs negative contrast which is feeling good then feeling worse.
 
 [7]: this seems logical because esther is much more dramatic than I am. I love dramatic people and tend to enjoy hanging around them because otherwise I would be waaaay too serious (trigger to allow let people react to this, LOA to respond to it, and I can make a followup). it's funny how our different perspecives on calibration are so similar, and yet what intoxicates us thn most is the same: to find out how source perceives the same thing (and to adopt it as our own, or own that perspecive).
+
+### 2020-08-30 23:18
+
+#### (??:??) stage fright
+
+any time that I have to perform for someone, I can experience stage fright (even if it's an intimate place and there's no express expectation to perform).
+
+abramam talks about how it has to do with your perception of how others are evaluating you. and that may be, but I have very high performance expectations for myself, and so I rarely care as much about what others' are evaluating about me -- instead, my own evaluation of my performance is more pertinent.
+
+I don't like to perceive what others are thinking about me, because it's usually not so good. sometimes it is good, and I've noticed that perception is like an image that a person has of me, and that image holds power over me in the sense that... let me explain it like this:
+
+if I perceive something that someone likes about me, it makes me feel good, which creates a feedback loop where I need to do something similar (cause the same almost never works), to where I get a similar good-feeling response. eventually however, my creativity runs out and I'm no longer able to come up with a similar item to say[^1]... what happens is that person now perceives me as that image (definiion or concept) they created in their mind because of my actions.
+
+so for example, if we're talking sex (but the same applies to, for example drinking intractions, or phone conversations), the imagine my performance made them feel really wonderful, so that image is now held in the other person's mind, so they come to expect it, which means and I have to come up with a similar, but slightly different way of reinforcing the concept that person has of me (or the image I've created for that person).
+
+the reason why an image like that can hold power over me is because, especially during sex, but in all of the examples I gave above, they are interactions where two or more people mix their vibrations to come to a new vibration, and if I are expected to hold up some ideal image in the other persons' mind, then I can never measure up to the original "high" they had of me. however, remembering that all interactions are a mixing of vibrations[^2] to come to a new vibration, if you do not need to perform according to their expections (that is, the image I think they have of me), then it's much easier to come to something new or novel in the moment (a new vibration).
+
+the other advantge of not making an image for myself (out of positive reinforcement others have given me), is that it gives me the chance to make adjustments to my own image. it's the image I have of myself. I create the charactor that I'm playing right now, not others' expectations of me determining my charactor, know what I mean?
+
+[1]: an example comes to mind when I ask jaron what he thinks about something "random" -- sometimes I don't have any good ideas, or maybe when I want to tell him a dimotivational phrase I thought of.
+
+[2]: there may be something to who seems to be more affected by these mixing of the vibrations. one may say it's the one listening, and not the one talking, but I don't believe it has to be one way or another. I think it's more to do with who's dominant (who's the most stable emotionally) in the situation, regardless of who's receiving the message.
