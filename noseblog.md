@@ -6429,6 +6429,29 @@ I'll leave it at that :)
 
 [6]: as if he (the gay little boy) were a little girl, and he disapproves of something that the little girl is doing. so there is this weird reciprocal relationship, cause if you think about a gay man, he may instead perceive himself as a straight little girl, but he's stuck in a big boy's suit. so, when he sees another little girl not matching his perception of how a little girl should be, he is mean to her (a common boy's reaction, when a girl disapproving of another girl is usually much more passive-aggressive). more on this in the next entry
 
+### 2020-08-31 08:48 - thoughts on the different "orientations"
+
+- remove gay/lesbian words
+- orienation = postion: top/bottom, front/back
+- orientation is a gradent
+- both muns do not have to be the same attributes... only in perception adult/child
+- allows for expression of the hermaphrodite/baphomet idea of someone containing both male and female attributes
+- you would think that the most subordinate of the attributes would be a bottom-boy, but again this is kinda the reversal here, because the lotus in the tantra whtever stuff is bottom-boy, top-girl.
+- however, in the same way that it reverses that, notice how now the most "dominant" (heterosexual) position you would consider to be top-man, but is it? in (homosexual) relationsips, maybe the most "dominant" position would be considered to be the back-man, no? this reversal of ideas causes confusion in the brain, which makes it easier to think of the relation in a geometric sense instead of dominanation sense (which is what I like about it)
+- also emotional words to describe the mun (eg. stressed, confused, frustrated) as the mun's "status", however these too are presented as a bipolar gadient so the other "polarity" of that emotional status must also be defined. (eg. easy/stressed, on point/stressed, enligtened/confused, charging forward/frustrated)
+- no relation between the identity and the muns (so both are as anonymous as you want them to be)
+- code operates like a multi-polar solar system, but the bipolar system is presented to the user in the interface
+- for example, a maybe front-girl is hard to imagine in reality, but you don't know, so perhaps this may take up the physical form of a transexual man (who looks like a woman) or maybe an overly-dominant woman (it doesn't matter). also, perhaps another example may be a top/bottom/front/back-boy which (would appear normal), but it may still take on the form as a transexual woman (who looks like a man). again, it doesn't matter.
+- making orientation a gradient of horizontal/vertical (for example. 50% top, 50% bottom, or 25% each, or 10% front, 90% back, etc.) takes away the stigmas and makes it more of an expression of your personality type. it also does not mean that you are actively that way either. for example, if someone were to consider theirself to be asexual, they may still feel like a follower/back, leader/front, pinnacle/essential/top, or foundation/basic/bottom. it doesn't have anything to do with sex unless you want it to be.
+- you should be able to choose the word you describe your orientation, too as it's a description of your personality more than anything:
+	- top, prime, essential, pinnacle, etc.
+	- bottom, basic, foundation, base, structure, etc.
+	- front, leader, chief, figurehead, etc.
+	- back, end, tail, assistant, attendant, servant, etc.
+- obviously, gender, orientation, etc. are all optional data. nothing is required other than a display name (and it doesn't need to have anything to do with your real name). also, by default there are no links from the mun to the identity, and even more than one identity can control a single mun (one-way relationship, so that there's ideally no connection between any of the muns the identity controls, unless the mun specifies it).
+- muns can have relations with other muns. if a mun orbits another mun, it's like a moon around a planet. if a mun orbits more than one other mun it's like a comet. if two muns orbit each other, it's like a binary stars/astroids. if three muns, ... etc. you can see how this becomes geometric.
+- for a "typical" child, like let's say a girl may start out with a little girl on the outside and then on the inside she can select adult woman (or man), but let's say she picks an inner woman. after some time she will eventually feel like she is now the woman on the outside (regardless of age), and now a girl on the inside. she decides this when she feels that way about herself.
+
 # the end
 
 ### 2020-08-04 ??:?? - the gratitude circlejerk
