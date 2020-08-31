@@ -6413,7 +6413,7 @@ anyway, I think this could be a kind of interesting way to present the idea, as 
 
 ok, this may seem out of place, but the last thing that stayed with me from the last stone was thinking about this weird idea that I could imagine that other people define their inner person different. I was thinking about some of the more assertive women that I would consider to be women that are so demanding/assertive[^4] that they can make a man turn gay -- well, I thought, if I consider that I'm a little (lesbian?) girl in a big boy's suit, then perhaps these women may be a little (gay?) boy in a big girl's suit. I could imagine their behaviour as similar to how a gay little boy may act in his childhood while he still didn't know his orientation[^5]. whether or not that is the case didn't matter to me, because it gave me an idea.
 
-what if there were women that perceived theirselves this way, and they decided to surround theirselves with men/boys that were gay, and instead of making little girls who don't fit their model, miserable -- just played with the boys?
+what if there were women that perceived theirselves this way, and they decided to surround theirselves with men/boys that were gay, and instead of making little girls who don't fit their model[^6], miserable -- just played with the boys?
 
 I'll leave it at that :)
 
@@ -6426,6 +6426,8 @@ I'll leave it at that :)
 [4]: forgive me, cause that's not what I really mean! this definition will improve soon, but I have to "activate an emotion which makes it really exhilerating when that emotion lifts up off" -- so just go with it :)
 
 [5]: forgive me thad, but this idea came out of a disturbance you created in me when I was horrified by your description of your interactions with some of the other girls people at your school. I caught me so off-guard, that I captured the concept you transmitted for further analysis... and this, I guess, where it ended up... :/
+
+[6]: as if he (the gay little boy) were a little girl, and he disapproves of something that the little girl is doing. so there is this weird reciprocal relationship, cause if you think about a gay man, he may instead perceive himself as a straight little girl, but he's stuck in a big boy's suit. so, when he sees another little girl not matching his perception of how a little girl should be, he is mean to her (a common boy's reaction, when a girl disapproving of another girl is usually much more passive-aggressive). more on this in the next entry
 
 # the end
 
