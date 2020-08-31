@@ -6348,6 +6348,38 @@ I dunno... however, personally, if I were anyone with a problem like this, I wou
 
 [1]: @[youtube](https://www.youtube.com/watch?v=Vg8WeAMQwlA)
 
+
+### 2020-08-30 11:?? - responding to some reactions
+
+it occurred to me that in the specific example of sex, however, this concept can be generalised to explain many other things, it seems that women tend to turn that vibration into reality more redily than men do. I think the reason is the physical apparatus. if the penis/clitoris is the receptive organ (primary/secondary coils), and the prostate/uterus (terciary/quatinary coils) is the emissive organ, then it's normal that the woman would be more potent creators of that reality than men are.
+
+the next part is the dominant part. in most cases, it's the man that is the dominant one (usually physicaly, but also vibrationally), so that would imply that the man is usually the primary coil and the woman is the terciary. it seems possible that if the man ejaculates, then when that happens, the ejaculation is the primary coil, which begins to induce in the secondary coil a signal... and if that happens before the terciary/quatinary coil is receiving, then the emissive organ will begin transforming the signal induced on the secondary coil.
+
+ideally, what should happen is that the 3rd/4th coils should be the dominant ones, meaning that they're transforming non-physical energy into reality, to which the 1st/2nd coils are receiving[^1].
+
+if it's the other way around (eg. the man causing the orgasm first), then the receptive organs translate the physical energy put out by the penis into reality. therefore, if the man has some negative beliefs, the woman (in this case) will translate them into reality. the more energetic the environment is, the more rapidly this will happen. obviously men and women have both receptive and emissive organs, so the same could be said about gay relationships, too -- however, I think it's less reality creation in that way in gay relationships, and even less in lesbian relationships -- meaning, less impact.
+
+so as I was siting there percceiving this idea, I had this theory come into my head where often times men turn gay because of some major reality creation after an interaction with a woman. all it means is that these men are strong emitters (even if they prefer the receptive role), and my theory is that they would prefer the less energetic reality creation or to create another men's reality, than to have their own beliefs be blown way out of porportion by a woman (who clearly doesn't get it).
+
+it's probably a controversial theory, and I don't fully get behind it myself, so further refinement will come.
+
+---
+
+therefore I was thinking about that theory as a catalyst to the idea then that it should be made, in more energeic circumstances (and it'll likely become the opposite in 6 more eras) that in heterosexual relationships, women should be the dominant ones.
+
+think about it, because according to that theory, which is based off of tesla's world system, that means that the receptive one should orgasm first, making them the emissive organ, and ultimately the reality creator.
+
+think about it further, in that we think often times that the physical receiver is the one reciving the vibration, but remember ... what are you calibrating to? in the example of stage fright, for whatever reason, I'm trying to uphold some sort of image, and so therefore I'm too focused on the feedback from the other person (no matter how obnoxious they are). if I can be, as the receiver of source, transform that source signal into an output capable of being received by the receiver. what I mean is that the one to orgasm first is the receiver (physically or vibrationally; you choose) is the one that that is receiving the translated signal from the penis/clitoris.
+
+therefore my theory is then, that the location of the receiving organ is "open" so it's getting it's signal more from source than from the other person. you can see how woman's bodies are structured in such a way that this is more likely to occur if they are first to orgasm. for gay men, this may actually be easier to accomplish. hands do have an effect too, so stimulating the clitoris/penis with the hand does translate the energy from whomever's hands (left or right -- there's likely a difference) into reality, too.. so like animation/movement matters and rough stimulation can make rougher results, I would imagine.
+
+(I think I had a dream about this concept when I was waking up, cause I remember I was thinking about it when I awoke)
+
+I also find it funny that this is the more complicated electricity explanation to the the phrases, "you you ready to get in front and stay in front" and "are you more of a engine or a caboose" -- both illustrating that the one in front (that is, the receiver) is actually the engine or the leader and the caboose is the follower -- as opposed to the heterosexual perception of "are you ready to get on top and stay on top" which is a perception more of dominance because of positioning like a 'leader'board (vertical: top/bottom = first/last = 'leader'/'those underneith you') instead of a perception of travel (horizontal: first/last = front/back = 'leader'/'those following/behind you')
+
+[1]: all of this is clear as mud to me too. I don't really see it. I can only try to describe the concept, so in reality, I cannot visualise the circuit until I feel it out a bit better. I'll probably need to draw it out on paper and create a schematic to explain what I mean here. however, what I do know is that both sides of the circuit has what seems to be a tesla coil (maybe with a third coil?), and a magnifying transmitter are involved. they interact with each other, and athough both sides of the circuit are nearly identical (or identical), one of them is stimulated by electricity from the ether (and probably has a virtual ground) and the other one is stimulated with electricity from the wall (and likely has a real ground). the one stimulated from the ether should be the dominant/emissive one, and the one connected to the ground is the receiver. I'll figure it out eventually, but I think it's something like that.
+
+
 # the end
 
 ### 2020-08-04 ??:?? - the gratitude circlejerk
