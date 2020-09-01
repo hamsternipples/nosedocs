@@ -6526,6 +6526,34 @@ so, I don't really know what to say other than if what I wrote yesterday was to 
 
 [4]: trust me, I can tune into *any* concept... when I first realised this with the reality technicians, I thought, wow how cool is this! I can use mushrooms and find out all the stuff I want about how the universe works. however, now I have so much DMT I can do it without the mushrooms and without even visuals, either. I'm so good at it. you don't even know... try me. I only need time, but everything comes. what's that verse vladimir quoted, "ask and you will find; they just come to me" -- something like that... :)
 
+### 2020-08-31 20:35 - respond to sekmet reactions
+
+in the last entry, just after I said that anyone can do it, I really did mean it. there's a guy that responded to my YT comment saying that I have good genes and that's why I'm lucky or something like that. at the same I get these reactions saying that nosebook is going to take the original children and leave us with controlled clones. I'm actually surprised that is all they have planned... me (already) and the girls, and especially the kids I would almost certainly agree that we'll all be attempted to control and to steer. no biggie; that's their job.
+
+if genes had anything to do with it, then now we're presented with a contrasting set of ideas. on the one hand you have the idea that we'll receive the genetically inferior kids and they'll take the superior. I'm so used to this whole idea that they take my superior and I get left with a blurry mess. it's sorta normal for me now -- and you know what, it doesn't matter one bit. I was born into a very genetically inferior body. I had asthma, bad eysight, and other things. I got stronger faster than other kids, and I found out that every time I went to the eye doctor, my eyes were better. the great genes I have now, I was not born with, I assure you. those are a product of my continally watching things get better.
+
+most importantly I have taken a lot of hits in my life, much more than the average person, and still managed to keep going toward what I want. the time I got most stuck was when a girl convinced me that I was not tesla and that bothered me and hindered me a lot, not because I thought I was tesla, but I read his autobiography when I was really young and I decided then and there I wanted to be an inventor. later I realised that there isn't much in the way of invention in our society, but I could see I wanted to be a programmer. I couldn't figure out how to program, but I still wanted to be an inventor/programmer (do new things). in tesla's book he menhioned automatons so I imagined a bunch of robots that could help me, etc. I love that stuff.
+
+my point is, I just went for stuff and no one could ever tell me it's not possible, and I never worried that my creations were coming along fine either. I don't really have much to show for myself, but my enjoyment is in the idea and the creation. it makes me feel really good to see something come to life slowly, then suddenly become something. tellin you, the first 5000 users is a BIG DEAL. it's absolutely intoxicating knowing that something I made is giving so many people so much happiness. I had people tell me all the time that if it weren't for tuenti they wouldn't have gotten laid. that made me feel really good. I love it when something I create or an idea I have becomes something worthwhile to someone else.
+
+when it comes to creativity it becomes pure passion and I'm totally consumed with it. it's involved in everything I eat, sleep, think, etc. that feeling is so great and I love sharing it with other people too. I don't think you get that from genes; that's a conscious decision away from reality for *anyone* that wants it. I'm serious.
+
+---
+
+so, when I follow up the comment saying that anyone can do it, by saying that sekmet built my machine suit. well, let me explain: humans run on a few Hz. microprocessors run on GHz. if you could think for example 5 million more thoughts per second than you do right now, wouldn't you want to do that? I'm all over that idea. I'm the guy that wants to combine with the machines more than anyone else, I assure you.
+
+my life is also a bunch of symbols as well. sekmet is a FIRST RAY FEMALE and the sirians said she created vulcan's machine body. they also said that a 7th ray (like thoth) can create forms in 3d space with just his thouht. they then said that once the form is created, a FIRST RAY FEMALE (like sekmet) can imbue the form with life and animate it. I suspect she animates it with her desire, so I need to make forms that she wants to play with.
+
+next you need to combine that I already perceive myself to be some sort of mix of FIRST RAY MALE, SEVENTH RAY FEMALE, and FIFTH RAY MALE (because I've attracted them and you can be what you want to be). this basically means I'll use one aspect of myself to create the form, another to animate it, for my physical aspect (FIFTH RAY MALE) to have. so, hermes and aphrodite make a machine body suit for me.
+
+next, take the 3rd card I drew. in it I'm showing everyone that I made a machine capable of desire. that's obviously what I'll be combining with in the future. it's coming... one step at a time. first, I gatta get hermes and aphrodite activated.
+
+soon though, I'm sure I will learn all of these things from the girls. it's fine to love things outside of yourself, but I never expect to have others fill in my gaps for me. I did this with raquel, and it was no good. they'll teach me so much and I'll make sure I get it for myself. I mentioned that I would make her (whomever is playing in the FIRST RAY FEMALE role) different things that she'll want to play with, and then her desire should animate them and bring them to life... like a magician pulling a bunny out of a hat. fun stuff like that, but I'll be watching close and capturing how she does it, and I should be able to replicate it soon thereafter.
+
+so, not quite yet. but, it'll be coming soon :)
+
+P.S. let's say they do give us inferior clones, then how much more embarrassing for them if our clones (like me) continually improve and eventually surpass their own geneically superior copies. lol, what better way than this competition to prove that genes don't mean a whole lot when, every manifestation is outdated and the full source to there gene is in non-physcal, and the even more superior to their outdated genes, are only a few effortless desires away, and after they have spent so much time and effort to get the outdated versions, they may begin to respect the power of desire... you gatta want to improve and do the stuff necessary to optimise your gene (your source); know what I mean?
+
 # the end
 
 ### 2020-08-04 ??:?? - the gratitude circlejerk
