@@ -6754,15 +6754,15 @@ ok, so these pure archetypes that show up at the directions and polarities are o
 there's someghing with the (8) faces but I don't see it yet.
 
 each of these 12 slices (3 divisions * 2 directions * 2 polarities
-	- 1/3 (of first quadrant) (1st,7th ray) (leaning left):
-		- (0°/90°)->(30°) (more, ±polarity)
-		- (30°)->(0°/90° (less, ±polarity)
-	- 2/3 (of first quadrant) (2nd,6th ray) (balanced):
-		- (30°)->(60°) (more, ±polarity)
-		- (60°)->(30°) (less, ±polarity)
-	- 3/3 (of first quadrant) (3rd ray) (leaning right):
-		- (60°)->(90°/0°) (more, ±polarity)
-		- (90°/0°)->(60°) (less, ±polarity)
+	- 1/3 (leaning left) (1st/7th ray):
+		- (0°/90°)->(30°) - (more, ±polarity)
+		- (30°)->(0°/90°) - (less, ±polarity)
+	- 2/3 (balanced) (2nd/6th ray):
+		- (30°)->(60°) - (more, ±polarity)
+		- (60°)->(30°) - (less, ±polarity)
+	- 3/3 (leaning right) (3rd/5th ray):
+		- (60°)->(90°/0°) - (more, ±polarity)
+		- (90°/0°)->(60°) - (less, ±polarity)
 
 it appears that when one of the four directions passes through one of these lines on the cube, they represent an abrupt ending to a story, like a premature death or something. think like jesus or elijah or moses, something like that. there are 12 different qualities here and need to be explored. you can see it qualatatively.. so take the 1/3 example this is either rapid increase or rapid decline. this corresponds to the 1st (desire) and 7th rays (physical). their polarity is determined by the personality and environment. so a ist ray with +dir (more) in an of +pol (0°-30° in 1st quadrant) will expedience rapid increase. however, that same character in an -pol environment (330°-360°) will suddenly experience rapid decrease.
 
