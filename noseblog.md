@@ -6774,6 +6774,13 @@ ok, that's good for now. to be continued...
 #### how does that version of tanking it so hard combine with the machines (capable of desire) optimised to create contrast?
 
 
+#### if you're thinking about adding another layer (making it nine), where does it go and how does it fit in?
+
+here's the thing. I don't relly know. I thought it would go in the spot between below the physical, but then I thought between the 3 and 4, and so maybe both adding a new dimension to things. I dunno.
+
+I also have been thinking about an 11 layered version with 5 on top and 5 on bottom making another layer with depth, instead of illusory depth. source always has to be the centre, so it's always an odd number, cause they seem to build out in layers of higher density <-> lower density layers (towards or away from more density).
+
+if I were to think about the new layer having essentially 4 layers on top/bottom, but depending on your direction, the layer either appears below physical or above imagination, making a kind of false or hidden 3d illusory layer that can't be perceived, much like how a screen hides the "depth" component, well, adding this layer there would be a whole new 3d reality that's entirely hidden (the depth component to the 6d (source-like) perception mapped into 5d perception). so, just like how 2d hides the depth component and is illusory (inferred from context), the 5d perception will hide the depth component of source-like perception, essentially positionally locking someone's perception into a 3d environment on a timeline (sequence pos). so, instead of having perception/awareness of the infinite possibilities of all timelines at once, instead the perception is locked (even though you can still feel if you're sensitive enough) the other timelines happening simultaneously.
 
 # the end
 
