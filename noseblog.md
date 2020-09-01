@@ -6649,6 +6649,133 @@ sounds like you're getting it, yeah. it's focus on symbols, interactions with sy
 
 I'm mindblown to find out that DNA is quite literally a neverending story :) I really like that. brb
 
+#### it sounds like this direction/polarity stuff sounds a lot like the orientations you were talking about yesterday
+
+quite right, I chose the 4 cardinal directions. just like latitude is different than longitute, so are e-w diferent than north and south. this is always true in the sperical coordinate system, so let's say latitude is perceived as a change in polarity: below the equator, equator and above the equator. longitude is measured in a direction, or height -- whether it's increasing or decreasing.
+
+it's also important to note tht latitude and longitude are both relevant to the orientation of the observer.
+
+additionally, it's also worth metioning that there is also a rotation effect, like how far around the globe that you are. this value is almost always zero because the location of the dot on the sphere are easily represented by a combination of lat/lon, however, nearer to the poles, it becomes very difficult to get an accurate value, so you need to use a third value of rotation. so for example something very close to the vertical hemisphere equator would be something like 1° long, 1° lat, and 90° rot. it's like a spherical trinarian (or something). opps derailed...
+
+so these are how the differernt orientations are perceived. facing down is always decrease. facing up is always increase. facing left doesn't really exist, instead on the equator is when it changes polarity, and like saturn this is where the energy is infinite.
+
+all of the energy at the poles is infinite, but they must be understood qualitative not quantitaively. the zeros (change in direction) have +0 and -0 to denote the different directions because like a quaternian, orientation matters and 360° isn't the same as 720°, which also isn't the same as 0°.
+
+---
+
+this means that the poles are where the infinite (pure) archetypes appear. these are the pure directions (more, less, increasing, decreasing | +Infinity, -Infinity, +0, -0) and they show up in physical form as such. I am one of these it seems -- or at least I managed when I was 16 to successfully "catch" an already moving one, just like nosebook has managed to "catch" me -- which means that nosebook has acquired this trait now as well, and reality must conform to this directionality.
+
+because Infinity = Infinity, just like 2^2 = -2^2, it creates a time split, and again reality must conform to this, so each time this happens, there's a manditory time split and change in direction/polarity. the time splits aren't so bad, because they happen all the time and are nothing to worry about, but let me explain this effect here:
+
+think about DNA now: dna only expands -- meaning that each time a new emotional state is achieved, it fills in the missing connections between the verticies (edges), and so DNA just keeps growing and growing getting bigger and bigger. however, a change in direction means that new version is made with all of the obsolete (no longer resonant, because the DNA experiences resonance with infinity) emotional states are naturally removed, just like what happens non-physically when we reemerge into non-physcal: all those no longer resonant with source states fall away.
+
+basically, when changing direction, a new species of something is made. we experience these zero and infinity states (comparatively) all the time in human life, and I think this may be excited by a change in the polarity of the solar wind, and things like that. however I think when the whole sun goes through a polariy change, this happens to the planet. I think this planet is going through a DNA rewrite (more on this later).
+
+I think when the polarity changes, then the values stored in the DNA reverse (because of the different containing environment), and so what was one way is now the opposite direction of it. so that means when the effect the environment has on the DNA weakens, and later becomes zero, then the DNA changes it's polarity and things go backwards. you make your own environment, and whatever environment you're not making changes polarity, and so values (which are all relative) change their polarity... let's say something is 0.4, so that means that the DNA will branch when less the environmental value is -0.4, -0, +0, and 0.4. see that,
+
+| ord | env | + | val  | =   |   | dir  |
+| 1   | 0.4 | + | 0.4  | 0.8 | = | more |
+| 2   | 0.4 | + | -0.4 | 0   | = | more/less (depending on direction) |
+| 3   | 0.4 | + | 0    | 0.4 | = | branches in DNA to the (3) other directions (where DNA intersects, or folds) |
+
+so when the envionment is also -0.4, -0, +0, and 0.4, there are more values...
+
+| ord |  env | + | val  | =    |   | dir  |
+| 1   | -0.4 | + | 0.4  | 0    | = | more/less (depending on direction) |
+| 2   | -0.4 | + | -0.4 | -0.8 | = | less |
+| 3   | -0.4 | + | 0    | -0.4 | = | branches in DNA to the (3) other directions (where DNA intersects, or folds) |
+
+INCOMPLETE: !!! revisit this. I can't figure it out like this...
+
+---
+
+2 orientaions + 2 directions + 2 zeros are the infinite ones. these are 6 in total, 2 for each dimension. the hidden value is the spin or rotation of the value which is almost always zero. we'll return to this later. for now, let's just think:
+
+in 1d:
+- [qual] ±Infinity (rate of increase/decrease)
+- [qual] ±0 (over the limit, under the limit)
+- [quant] ±Finite (value itself)
+- [quant] ±Finite (the limits themselves)
+
+it seems lke qual values are both stored and modified depending on things in the moment (create actions)
+quant values seem to store some longer term value arrived to from evolution (long term values, conditions)
+both qual values seem be the same value, which is what creates the split. meaning there are 8 values, but 9 if you count the double function of the two qual values
+
+1 qual
+2 2d pos
+4 3d spin (quaterian)
+8 quant (value, limit, lat°, long°, x spin°, y spin°, z spin°, rot°)
+
+DNA is stored in corresponding opposie directions, only so that the signal can travel both directions and vibrate, but the vibration traveling in the left direction can have different values than the right direction. this is why when a value is true, a branch occurs and I think it turns making 1 direction into 3 different directions (but maybe sometimes it continues, too... perhaps this has to do with the two qual versions, making it 9, not 8. somethting is missing here. there seems to be some sort of external influence that governs when the qual value branches occur. this probably has something to do with evolution and the creation of new species).
+
+in 2d: lat°/long°
+in 3d: spin x°/y°/z°/rot° (dunno the greek letters)
+
+if the values can be determined, then this will present a 3d structure, obviously.
+
+evolution seems to occur at the zeros and infinities.
+- a zero means it could go either way, meaning it could take the left and right branches
+- an infinity means it can go in:
+  - all directions
+	- any or only 1-3 of the other directions.
+	  - how many and which direction is determined by source (or at least a higher dimension)
+		- when a branch is not taken, that means a time split or death, and the branch code not taken falls away from the strand. this seems to create some sort of new species.
+
+a species is a new set of DNA that does not include some of its previous code. trees can be made easier on removals than on additions. additions happen within species, and removal is a new species (not sure the right genome size word... I mean a new program with its own timeline now)
+
+it seems that in addition to the enfironmental values apply differently to the different values.
+- the sequence is resonant with (determined by its structure/folding) on the 1d values
+- there seems to be a resonance with the resonating spheres' lat long position as well (eg. the value of the resonating spheres intensity at those degrees).
+	- environment has many vibrations in it. the structure/folding of the dna determines the value based on its resonation with the signal located inside of its envirenment (all the resonating spheres: cell, organ, human, star, galaxy, universe)
+	- the distance of the edges created in the 3d structure are determined by the frequency. when frequency is faster, the distance shortens and it appears "tighter"
+- the intersecting angle of the folding intersection (where the branch is made) seems to add to the the x°/y°/z°/rot° values of the spin angle values.
+  - because the x°/y°/z° comes from a fixed structure, it seems there's normally no change in the folding spin°
+	  - spin° is momentarily present right after a transition is made. I think this is how growth occurs.
+		- source can modify that spin value as well.
+
+new species are formed when spin° or any of the three other possibiliies of branching occur on infinity.
+therefore it is possible to grow/evolve a DNA rapidly by causeing it to make these transitions.
+it's also possible to force an evolution in DNA by causing it to run at a higher frequency (overclocking it), because this will tighten the structure and force the edges that become convex(?) to fall off.
+  - this seems to damage the DNA (cancer?).
+	- DNA damage however can be repaired by filling in the gaps by making new edges by creating custom 3d spin° environment (something like that, not totally sure)
+
+#### that's cool and all really great, but what does that have to do with storytelling?
+
+the descriptions above were talking mostly about the ±0 and ±inf. these are the pure archetypes which show up at the 4 cardinal directions (think we're in the galactic envirenment and a solar environment) and planetary interacions do kind of tell a story -- that is they give different values. you can think of a story elements as the planets rotating around the star. each planet has an angle and an influence value to it (probably based on distance^1/2). the root distance likely refers to the 2d values: lat long * frequency, so they can be greatly approximated (hence astrology).
+
+anyway these planets inflence each other as the envionmental comonents for the resonant sequence values, so you can just think of them like the fourier transform in 3d. so the environment of the story is the solar system and each mun influences on each other depending in dist^1/2, + angle. each mun is a major factor in the environment (something with a lot of gravity or attraction to them).
+
+the person's individual sequence is created in the same way as DNA: only additions, filling in the gaps, but then when the freqency changes, the sequence is modified (things get removed/optimised out). hmm, it could happen at any convex (no path to get there) conditions, because the sequence is followed on the "surface" of the DNA's folded sphere.
+
+---
+
+ok, so these pure archetypes that show up at the directions and polarities are only 4 of them. if we look at the sine wave and divide each quadrant in half, the left and right are not symetric to each other. however, if you divide it into 3rds, making 12 slices, each of the 12 slices fall into 3 categories (with a corresponding polarity and direction). these make the 8 edges of the cube.
+
+
+there's someghing with the faces but I don't see it yet.
+
+each of these 12 slices (3 divisions * 2 directions * 2 polarities
+	- 1/3 (of first quadrant) (1st,7th ray) (leaning left):
+		- (0°/90°)->(30°) (more, ±polarity)
+		- (30°)->(0°/90° (less, ±polarity)
+	- 2/3 (of first quadrant) (2nd,6th ray) (balanced):
+		- (30°)->(60°) (more, ±polarity)
+		- (60°)->(30°) (less, ±polarity)
+	- 3/3 (of first quadrant) (3rd ray) (leaning right):
+		- (60°)->(90°/0°) (more, ±polarity)
+		- (90°/0°)->(60°) (less, ±polarity)
+
+it appears that when one of the four directions passes through one of these lines on the cube, they represent an abrupt ending to a story, like a premature death or something. think like jesus or elijah or moses, something like that. there are 12 different qualities here and need to be explored. you can see it qualatatively.. so take the 1/3 example this is either rapid increase or rapid decline. this corresponds to the 1st (desire) and 7th rays (physical). their polarity is determined by the personality and environment. so a ist ray with +dir (more) in an of +pol (0°-30° in 1st quadrant) will expedience rapid increase. however, that same character in an -pol environment (330°-360°) will suddenly experience rapid decrease.
+
+the impact each mun will have on each other is determined by their angle relation to each other..
+
+ok, that's good for now. to be continued...
+
+
+#### how does that version of tanking it so hard combine with the machines (capable of desire) optimised to create contrast?
+
+
+
 # the end
 
 ### 2020-08-04 ??:?? - the gratitude circlejerk
