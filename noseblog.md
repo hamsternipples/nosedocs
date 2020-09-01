@@ -6749,10 +6749,9 @@ the person's individual sequence is created in the same way as DNA: only additio
 
 ---
 
-ok, so these pure archetypes that show up at the directions and polarities are only 4 of them. if we look at the sine wave and divide each quadrant in half, the left and right are not symetric to each other. however, if you divide it into 3rds, making 12 slices, each of the 12 slices fall into 3 categories (with a corresponding polarity and direction). these make the 8 edges of the cube.
+ok, so these pure archetypes that show up at the directions and polarities are only 4 of them. if we look at the sine wave and divide each quadrant in half, the left and right are not symetric to each other. however, if you divide it into 3rds, making 12 slices, each of the 12 slices fall into 3 categories (with a corresponding polarity and direction). these make the 12 edges of the cube.
 
-
-there's someghing with the faces but I don't see it yet.
+there's someghing with the (8) faces but I don't see it yet.
 
 each of these 12 slices (3 divisions * 2 directions * 2 polarities
 	- 1/3 (of first quadrant) (1st,7th ray) (leaning left):
