@@ -6868,7 +6868,82 @@ for example, if only toward and more were there, then it would expand boundlessl
 
 I think I may work on a small website that explains that chart fter this, cause I simply cannot visualise this in my head at all. I'm really struggling here.
 
-brb
+
+### 2020-09-02 14:37 - leaning into the disaster
+
+I keep getting these foreign thoughts that keep telling me I should just lean fully into the disaster. there are a number of things wrong, and feels like finalisation-dawg got a new disguise, too.
+
+so, the whole thing about all of this is that I don't need to worry about any of this stuff. I just need to keep going toward what feels good. nothing of the disaster they're proposing feels good to me. make your own reality. why do you feel that by trying to make my reality, you make your reality? I'm not essential to anything in anyone else's reality... and
+
+here's the thing... I see the big picture: my job is to just keep going toward the centre. I don't need to worry about making extra contrast or disasters or anything like that. I follow my inspiration and just let LOA and source figure all of that out. everything that I *want* -- that includes future disasters and everyhing, is found by following my instinct and what feels good.
+
+so, while all that is my goal, you can see that this ends with me getting connected. it's probably some time soon, and what that means when that happens is I will eventually, when that happens, be very close to similar to my source that there is little difference, which means experiencing the vortex that I've been building. obviously, once you get the manifestation and what happens is you're experiencing life feeling really good because it's majority wanted stuff, right? well, if I'm experiencing mostly wanted, then I'm not experiencing much unwanted, which means no contrast, which means no creation of new desires, which means slowing down.
+
+so, now look at this from my perspective... right now I'm experiencing a lot of unwanted, so I'm accelerating. as soon as I get the manifestation, after the initial jump (peak), I'm deaccelerating again, so before I get going too slow, then I jump into a new timeline to where I can get back to accelerating again. in order to accelerate, you need to experience unwanted.
+
+so what this means is, I get going faster and faster until finally I get a manifestation of what is wanted *for me* (though it is cooperative and shared desire of everyone) -- not what is decided is desired after an all-day meeting and lots of terrible ideas (that would slow down the manifestation).
+
+I think the bigger picture is that I have to get a big pop, and then jump into another timeline before I get going too slow, and it seems to correspond to the 11 year cycle, because they seem to be happening at 11 year marks. here's what I mean: I think human bodies in this solar system have 11 year cycles, corresponding roughly to the solar cycle, and basically every 11 years your body reaches another "double layer" -- or membrane (higher density) before another low density or higher conductivity. I think this represents the the "aura" of the body.
+
+basically, if the person when reaching the next density is not going fast enough (that is, their physical aura is not big enough for the density of that age), then they start dying.
+
+what I mean is, after 33 years of age, you are now supposed to have the aura size of a person in 4d, after 44 in 5d, after 55 in 6d (source-like perception).
+
+it's funny the "cut-off", is when I turn 55, because from there I need to be seeing in 7d, and at the moment, there is no physical 7d. that's non-physical right now (actually, everything above 6.5 is non-pysicsl). so when I say that I will take on a new timeline, I really mean it, and I basically have to do it roughly near the peak, that is, before I'm deaccelerating again (which will be after I turn 55, because I'm supposed to be in 6d, and I won't be...)
+
+or, maybe I will be :) this is why I'm sure that I'm basically dictating the idea of how the new 6d and 7d physical layers should be (in a 9/11 layered reality model), because I need to make sure that they're in place in the timeline that we will "invade" when I'm 55. in other words, we're going to be reaching the 0-point (which is also the infinite points) coming up here soon, so what better time to create a new reality layer?
+
+the trend is heading toward ±0 and ±Infinity, so from one perspective (timeline), it appears that the water in the bathtub is equally on both sides (in this case think of it as equal 50-50 good/evil), but they can also be the ±Infininy, which means new things can spring into existance at this point. this means that source has this one, and if you think of the planet and the galaxy, and the sun as strands of DNA, they too have a sequence and so new evolutions and things can happen at these points (see yesterday's work).
+
+ok, so one timeline looks like it's heading toward the moment when there is physically more of one quantity than another. these quantities are qualatative or conceptual and represent somethig frequencially, so you can imagine this concept as "evil", "power grabbers", "sinners", "the sith" -- or whatever you want to. it's a frequencial concept defined and is in the psyche of the galaxy that this thing exists, and we're heading to the moment (in 2000 years) when there is more of this good energy, than its dual, the evil energy.
+
+---
+
+ok, so they're working on a disaster timeline, where they're gonna make a huge mess being all super cool and stuff, and the typical hollywood sort of bs, right, because soon we'll modify this timeline so that the same things that are going to turn into something really desirable here, will easily become *perceived* (even though they aren't) as very unwanted on their timeline. we'll transfer our consciousnesses into these bodies probably around the time that I would "get connected" -- right, but I'm not acually getting connected, because on their timeline they perceive that they were able to either trick me or find some way to make sure I didn't.
+
+it'll look (initially) like I did get connected, because I'll have incredible capabilities, but these are coming from what I've acquired power-wise from this timeline's ascent toward the peak of when I'm 55. likely this will be the peak for a lot of the girls and many others too, and so what we'll do is once we've got all that power built up and feeling so good, jump into a disaster timeline.
+
+no matter how strong the (-) situational environment, the (+) perceived environment (that is, the env created from one's own perception) is all that matters, so capitalising on the momentum that carries us to nearly the peak -- or maybe less, but still the acceleration and the momentum acquired from this timeline's manifestation will basically nearly (cause gatta push it to the limit) carry us along into a really difficult to manifest spot.
+
+getting just far enough into the manifestation that it's inevitable, but because of all of the contrived difficulty, we're in a tough spot now, which means we have to find new ways (cause of the tough spot) to optimise our form of perception further to get the manifestation. upon accomplishing this, get right back into feeling even better and better.
+
+optimising my perception and then, as a result, going faster with a less-resistant form of perception is the most intoxicating thing in the world and feels amazing... which means that now we'll feel millions of times better and better from finding a way to feel good in a total disaster. there still will be contrast though because those scared of living in such an energetic world must find an escape plan. also the next ones that want to provide the difficult situations we'll subject ourselves to are also finding their escape plan, too.
+
+you can see now how this plan continues on. one branch bails out at the last minute (not useful to me/us but maybe to someone else wanting to give them something to really worry about), and the other one to take off (or maybe it's automatically created from desire when I get "connected") which has the ideal environment to encounter all the new contrasting set of circumstances, at which time the process repeats.
+
+I think the duration of your timeline is determined by how far you can get into your perception without deaccelerating (and dying). so maybe if you can only up till 33 or 44, that's cool, just don't worry about it, because you'll go again. some will probably be able to replicate what I'm doing here, and I think in that way, groups will form, and many of us will jump to another prepared timeline together. all you need is someone and a situation capable of making enough contrast to where you can find your way somehow on to a new timeline (against the wishes of those needing to bail out) before hi your peak and start deaccelerating.
+
+this process of cutting the manifestation short while there's still way faster acceleration than before the manifestation seems to be a great way to make these double layers (hence the 6d and 7d talk), and it seems to mean that you can just go full contrast on whatever because it's all perceptual. it only sounds awful with these guys putting their perception on it, yet when feeling like everything is wanted, that would not happen.
+
+for example, I became aware of a new girl that lives across the street. I was thinking about it earlier and I was thinking, man that's a terrible idea if I were to respond to that. but then I thought to myself, is that giving my attention to unwanted? yes, of course it is, and it's also caring about what others will think, too.
+
+I don't really know how to explain it, but let me try like this: my form of perception contributes 300 units of forward direction (»), and nosebook contributes 400 («), so it appears to me as something unwanted cause there's still 100 («), right?
+
+however, as I identified above, that is in fact unwanted, and if my form of perception perceives unwanted, then say it counts as 50 units of («) and now I slow down ... and I'm only going 250 (») now. see that?
+
+I also identified that this is yet another example of caring what people think. the reason why I *justified* that it was something unwanted is because she's in the same house as eva, and so therefore it sounds like a competition disaster to me, yet I don't know that for sure; it's an assumption.
+
+so now, it's easy for me to realise that I have different things in my head (call them "triggers" *wink wink*) which cause me to identify something unwanted (in this case competition between the girls), which puts my attention on something like that which appears unwanted. got it?
+
+ok, now there's two (four) things that can be done here: 1. is that I can change my perception so that competition is no longer a bad thing, or I can change what triggers me, and no longer perceive the trigger[^1] (or both, or none)...
+
+these two differences are the same thing (relational 2nd ray, christ perspective), but looked at from opposite angles (when perceived at the same time -- mutual attraction).
+
+to understand the second one better, imagine you're walking down the street. you may not notice it if you're focused on something, but you can hear kids playing in the background. if you're in a pissed off mood, that may be very annoying to listen to, and it drives you crazy. if you're on the lookout for kids, you may notice it too, but not necessarily, because it's not something your brain thinks as out of the ordinary. the better you understand something, the more "normal" it looks, and so your brain spends less time thinking about it. this is also, likely why manifestations seem to finally come when they no longer are something not understandable -- that is, they're something understandable ("something like this certainly could happen ho me"), or something that feels normal.
+
+---
+
+I'm going to think it over some more, but as I wrote this out, I realised a lot of things. I can certainly lean into the disaster, and while they perceive the disaster aspect of it (cause they still have those triggers), I can optimise my perception so they no longer trigger me, and also no longer perceive competition as a bad thing. for me, I don't really. competition invigorates me actually. I was so excited to prove zaryn wrong about facebook beating us. I didn't stick it out and see what would come from the competition, because instead I quit so I could live an even worse disaster, and a worse disaster after that, kinda still flailing about until the present now.
+
+I think that we're getting close, and I'm really beginning to *understand* that "evil" is a perception, and that same thing looking at it 180° out of phase, would be very wanted...
+
+developing...
+
+[1]: I'm not saying ignore, because that's different... you don't really ignore "triggers" -- which is why they're called triggers. they trigger a form of your perception which makes you feel bad about (and therefore attract into your experience) something that doesn't need to cause negative emotion as long as you "understand it". this is largely what the mushrooms taught me.
+
+---
+
+typing this out for me
 
 # the end
 
