@@ -6782,6 +6782,94 @@ I also have been thinking about an 11 layered version with 5 on top and 5 on bot
 
 if I were to think about the new layer having essentially 4 layers on top/bottom, but depending on your direction, the layer either appears below physical or above imagination, making a kind of false or hidden 3d illusory layer that can't be perceived, much like how a screen hides the "depth" component, well, adding this layer there would be a whole new 3d reality that's entirely hidden (the depth component to the 6d (source-like) perception mapped into 5d perception). so, just like how 2d hides the depth component and is illusory (inferred from context), the 5d perception will hide the depth component of source-like perception, essentially positionally locking someone's perception into a 3d environment on a timeline (sequence pos). so, instead of having perception/awareness of the infinite possibilities of all timelines at once, instead the perception is locked (even though you can still feel if you're sensitive enough) the other timelines happening simultaneously.
 
+
+### 2020-09-02 08:32 - realisations on environment and orientation
+
+the thing I was noticing this morning is that I can classify ideas into two categories: thoughts that create more, and thouggts that create less. even if I perceive how my leg feels or soemthing I would consider pretty neutral, that perception only feels neutral because I don't have enough sensitivity to it. if I were more sensitive, I could feel if it were a little less, which is usually the case because we all think we're dying slowly, then I would be conscious that I believe I'm dying slowly. if I were able to feel it a lot better (more), then that's what "healing" is, really.
+
+however, I've began to adjust to the idea that even when I perceive something like my body, I should feel it becoming more. think about how a child feels about theirself: because they can see adults, they know they're still growing and so they perceive their body to continually becoming more...
+
+ok, so two categories of thought:
+- something that becomes more
+- something that becomes less
+
+---
+
+yesterday, when I was writing out the things on DNA and stuff, I noticed that a positive environment isn't enough, cause think about it. take me for example: I'm almost certainly oriented toward thougts that become more. that's just how I am, so following this chart here of the 12 divisions (I have ideas on 24, but that's for another discussion)
+
+each of these 12 slices (3 divisions * 2 directions * 2 polarities
+	- 1/3 (leaning left) (1st/7th ray):
+		- (0°,90°)->(30°) - (more, ±polarity) (§0,§6)
+		- (30°)->(0°,90°) - (less, ±polarity) (§3,§9)
+	- 2/3 (balanced) (2nd/6th ray):
+		- (30°)->(60°) - (more, ±polarity) (§1,§7)
+		- (60°)->(30°) - (less, ±polarity) (§4,§10)
+	- 3/3 (leaning right) (3rd/5th ray):
+		- (60°)->(90°,0°) - (more, ±polarity) (§2,§8)
+		- (90°,0°)->(60°) - (less, ±polarity) (§5,§11)
+
+I talk about how I've identified 3/4 different parts of my personality:
+- 1st ray (-)
+- (probbly still not yet activated) 3rd ray (-)
+- 5th ray (+)
+- 7th ray (+)
+
+something like that... anyway, the thing that I noticed was two things:
+1. that your more/less factor is determined by *environment* a whole lot. all of the slices experience more moments in two positions and less moments in two other positions.
+2. half of the time you are oriented (by nature, just like AC) you are oriented toward more and the other half of the time oriented toward less.
+3. polarity has a tremendous effect too, because it confines your experience.
+
+so, remember that environment and who you're around matters (cause they kind of set the environment), but you also create your own environment. what I mean by environment is feeling... does the environment feel like it's going to create more (high creativity, extreme anger), or does it feel like it's going to create less (frustration, depression, optimisation, perfection). the other aspect to environment is how it feels: good or bad. so, for simplicity, I'll just use these words:
+
+be:
+- more(+)
+- less(-)
+feel:
+- good(+)
+- bad(-)
+
+then you have alternating emotions going up the scale there... I will come back to this in a future entry, but all emotions can be put into three movement categories:
+
+- going away (left/backward)
+- balanced (middle/balanced) (perfectly balanced is near impossible, so they break up into)
+  - slightly away then slightly toward
+  - slightly toward then slightly away
+- going toward (right/forward)
+
+so those three sections can be perceived as 2*2(4):
+
+| start  | end    | result   |
+| toward | toward | toward   |
+| toward | away   | balanced |
+| away   | toward | balanced |
+| away   | away   | away     |
+
+it seems like there is an alternating pattern to emotions where it goes in order... toward, away, steady, toward, away, steady ... even the reverse is the same order. it's sort of like the double layers which extend outward from a sphere. you go toward toward more density, then after the peak, you go away from density till it's balanced again, then toward density again, etc.
+
+I believe this is what abraham calls: moving in the direction of what you want, contradictary thought, and split energy.
+
+so the important thing to note here is that emotions that feel good have all three movement caegories, and they can also be both more and less. I want to make the table of the possiblities later.
+
+---
+
+wow, I totally derailed my original topic here... ok back to orientation being a product of environment. I was thinking about how I would tank the timeline so hard, when both less and more orientations are present. so it got me to think about what makes me think less or more thoughts.
+
+so for example, I notice that when I'm in a positive environment, my thoughts are in the more category, and when I'm in a negative environment, I'm in the less category. this is because creation and destruction feel about the same goodness to me. neither of them feel bad.
+
+so, what you can see that in a (+) env, because I am *mostly* a leaning toward (1st ray) type of person (»), so things become more (≥) rapidly. however change the envionment to a negative one, and I'm just the opposite: things rapidly decline. that's because I'm of a positive orientation, so when things feel good, I naturally go toward them and they become more.
+
+other people are oriented differently is what I was noticing.. I'm not 100% only a more type of person. I only use him when I need things to become more. I also have a less person (prbably two) that love to be destructive and love to make up undesirable (unwanted/less) futures/structures, so I'm a bit of both, and this is kind of what I wanted to show is that all of us have (because of the nature of the way things are, you are guaranteed to have both qualities). I am trying to integrate something like this into the next webpage, because I think it's important.
+
+some people, because they grew up in a difficult environment, need a (-) env in order to go in the forward (toward wanted). nothing wrong with that, but just recognise that a positive environment will make you want to go away from unwanted. let me explain.
+
+so, the difference between more/less and toward/away is about like the difference between latitude and longitude. what that means is that if you can know how you work, then you can know better how to do stuff. more and toward aren't always the best way, cause otherwise contrast, and all of life would cease to exist. all parts are needed, and if they're aware of their orientation relative to the environment, they can be utilised (or someone can utilise them) effectively.
+
+for example, if only toward and more were there, then it would expand boundlessly. opimisation is a quality that I love, and that's all about less. additionally going away from less is a good thing when you want expansion, and is the same thing as going toward more (but viewed from the opposite direction).
+
+I think I may work on a small website that explains that chart fter this, cause I simply cannot visualise this in my head at all. I'm really struggling here.
+
+brb
+
 # the end
 
 ### 2020-08-04 ??:?? - the gratitude circlejerk
