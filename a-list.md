@@ -47,3 +47,15 @@ I could see that a lot (most) of them will end up joining me there over some cou
 from my perspective, I just keep finding the way toward the best feeling spot, not needing the manifestation because if the manifestation hasn't happened yet, it means that I still have part of me which resists unwanted (evil). if I resist unwanted, I attract unwanted so I just keep going (know what I mean??). also, if the manifestation hasn't happened yet, it only means that there's still a bit more of an evolution to go, which makes the manifestation become more wanted (for everyone).
 
 along the way, I'm going to throw out some bad ideas, ok? so just don't worry about them. they're probably pivot points to make it easier to find the frequency of what's wanted (for everyone). don't take me too seriously, or rather, I should say, someone has to get the bad ideas out there. no need to be scared or try to resist them from happening. (eg. there's a common idea that if I say a bad idea out loud, I will certainly attract it into my experience. this is not true if you can find the evolution, and focus on, and therefore attract, the evolved manifestation instead).
+
+### 2020-09-03 11:58
+
+some more interesting additions here. I had some more thinking about the whole "resist not evil" idea, and I think it's totally all about my perception, and what I attract that matters. so here we go...
+
+- the iran girl in robert's latest video here: @[youtube](https://youtu.be/kp6H0VSvi9Y?t=681)
+- the girl across the street that just moved in that I was puzzled about.
+- the girl I saw in the park while picking mushrooms today with a little dog.
+
+dang, I can't really remember any more. when I walked through the park the day before yesterday, I felt some ideas, but nothing concrete. experience tells me that those ideas are likely nosebook, so I'm just going to let them sit for now.
+
+man, I thought there were more than just three. it was a weird feeling because the magnitude of the feeling I had to want to make sure they were written down made it feel like there were more... dang... I can't wait to meet them :)
