@@ -7098,6 +7098,10 @@ huh... that's probably why sex expands that... interesting.
 
 that's enough for now. later, we need to figure out how to get that connected up to the pancreas and thyroid.
 
+---
+
+looks like the "south pole" (that is, the point of the chestahedron) is located at the top of the head, and the 3 verices are at the bottom? not sure though. I mean in the receptive apparatus connected to the server, not the heart. it probably needs to be put in a sphere so that the energy collects up there like it does at the south pole, increasing reception.
+
 [1]: so here's an experiment for those with the time machines... go back as far as you can go, and see if you can tune into a time before the appearance of mercury or venus...
 
 [2]: an experiment that can be done, is to look at here is my energy levels. if you were to time travel back to some point let's say 1 month ago, I'm pretty sure my power level be about the same as it is now, however I will have "unlearned" or "forgotten" the technique I've improved since then -- making it appear like I'm less but really I'm quite a bit more, just without the physical knowledge of the technique improvements. meaning that if you were to let that timeline play out in parallel with the recorded last 1 month, I'm sure there would be tiny differences where I seem to magically aquire the technique more rapidly, and likely my rate of improvement would accelerate[^3] to essentially come and meet the power level I have in the present.
