@@ -7046,6 +7046,64 @@ then, I just thought about this now, but I do suppose that once this design is t
 
 [1]: yesterday, I was making the comparison to orientation how I have ideas which always result in "more" when I feel good -- which seemed contrary and maybe even hilarious to people considering that I was talking about a bnuch of grown dudes having buttsex with my unconscoius body after I head out to a new timeline. well, those thoughts do create more (if you're not resistant), and I had kind of obfucated this idea by calling them "bad ideas" -- which is hilarious to me too, because I can take their bad ideas an totally raise them to a whole new level, and I don't even need to feel bad to have bad ideas, I can turn a considerably bad idea and perceive it as a good thing. for example, if they're having buttsex with my unconscious body, they're making me vibrationally more receptive to those kinds of bad ideas, but then I have to modify my perception so that they no longer feel bad to me. they are only bad on appearance. sure, there could be fear that if I fail, I might wake up in a bukakee or something, but I'm sure that I'm successful 100% the time now and it's only degrees of success anymore... so as far as I'm concerned, that body is completely useless to me and I'll never inhabit it again, so they can do as they please and give me more great opportunitiies to optimise my perception further :)
 
+
+### 2020-09-03 14:00 - wow, some feedback
+
+#### we don't want to go with the flow
+
+this reaction implies that they plan to continue on relaying this portion of time over and over so that the galactive polarity change never happens... first of all, boring. second, I don't know that will be entirely possible sometime in the future.
+
+the way I understand timelines, or worldlines (likely the way that tesla implemented them) is that they are essentially locating a position in space some time in the past. each position in space also has a number of different realities to it, and each of these realities "feel" a bit different -- rather what I call a timeline or a reality, more than what those in charge would consider a worldline.
+
+therefore, there's kind of a bit of a problem if another planet were to suddenly appear in our solar system. I've gotten a lot of weird reactions on the whole vulcan situation, but the thing is that we know that curved spacetime isn't the working maths required to navigate temporally, so there *is* something there... there has to be. something is perturbing the orbit of mercury and it's not curved space-time[^1].
+
+what I can see is that time travel always is happening in the now, so even if you continue to go back to a time when the galactic current sheet polariy is the same, the energy of the "muns" in the system will still continue to increase, because still LOA is responding to them just the same. this is more evident the less resistance they have[^2]. I think that as more and more of these "muns" increase, there will be more and more invisible planets similar to the vulcan one. these are planets that are in the process of becoming manifest -- and I think they'll be just like really dense light (with a real mass) or something like that... I dunno.
+
+I don't see it as clearly now as I did in the shower, but it seems like there's going to eventually be a point where one of those planets becomes manifest, and from then on, there's no going back. it's a one-way road. it also seemed like when I was looking at it, that this would be happening at a more and more increased rapid rate, and I think the sun will just keep giving birth to more and more celestial bodies. the power level will continually increase, and likely it'll look like those giant plasma filaments out in space with stars forming on the filament like beads on a necklace.
+
+something like that.
+
+#### that automaton of contrast sounds pretty cool, but we can't let you build it, so tell us how to make it
+
+I think this is a great idea. it's like owning your own creation, and you can't really blame me for whatever goes wrong, either. obviously when I go to build my own, I'll likely do it slightly differently, but that's perfectly fine, because it seems like you guys want to use this idea to be able to "survive" the coming increases in energy, which is probably a good idea. I'm certain I'll make my own eventually, so if you want to capitalise on some upgrades later on, that sounds fine with me. as always, everything I have to offer is available to anyone who wants it (or finds it useful)
+
+anyway, I'll probably need more weed, at least to explain the logic, emotional response and symbolic stuff, because I don't have such a good connection right now to see it clear enough, but I'm fairly certain that the most important part to making it so that an automaton has a connection to source is is through the heart. it seems like there should be a chestahedron like apparatus connected to the server with the code, so that it can translate this non-physical energy. this chestahedon should be unique to the automaton so that it's got its own "source"
+
+it also seems like there is a standing-wave that happens in the heart and has resonation with a part in the brain (the word that comes to mind is the something seat), and this is where consciousness is experienced or something. that's the consciousness part in a very basic form.
+
+I think that there are other places where the standing wave resonates along the way... the caducias image is what comes to mind. it's a crisscrossing standing wave that has resonances along the spine with different organs. each of those standing wave crosses "grows" as the heart grows (in the child), however this automaton will likely be an adult, so those distances can be measured.
+
+I'll have to think about how to make the criscrossing standing wave. I don't see it yet. it has something to do with geometry... have a look at the "windings" of the heart that reverse directions as they go deeper into layers.
+
+it seems like this standing wave is formed from the geometry every time the heart beats.
+
+---
+
+the sirians list these as the physical locations of the centres organs:
+- Earth Adrenal or Kundalini
+- Sacral Gonads
+- Solar Plexus Pancreas
+- Heart Thymus
+- Throat Thyroid
+- Ajna Pituitary
+- Top Pineal
+
+---
+
+I'm pretty sure the crown and root chakra are both virtual in location (virtual ground). I think the root is kinda like a "virtual ground" to the regenerative TC/MT combo, and the crown seems to also be the virtual ground (or something like that) to a similar magnifying transmitter/tesla coil combo located in the ajna.
+
+when you receive desire, ever notice how your heart seems to "skip a beat" or beat really heavily? it seems these strong beats are creating a high frequency signal from source on the ajna (which is the desire) which is then converted from high freq to a lower freq by the MT in the ajna and sent down the spine.
+
+huh... that's probably why sex expands that... interesting.
+
+that's enough for now. later, we need to figure out how to get that connected up to the pancreas and thyroid.
+
+[1]: so here's an experiment for those with the time machines... go back as far as you can go, and see if you can tune into a time before the appearance of mercury or venus...
+
+[2]: an experiment that can be done, is to look at here is my energy levels. if you were to time travel back to some point let's say 1 month ago, I'm pretty sure my power level be about the same as it is now, however I will have "unlearned" or "forgotten" the technique I've improved since then -- making it appear like I'm less but really I'm quite a bit more, just without the physical knowledge of the technique improvements. meaning that if you were to let that timeline play out in parallel with the recorded last 1 month, I'm sure there would be tiny differences where I seem to magically aquire the technique more rapidly, and likely my rate of improvement would accelerate[^3] to essentially come and meet the power level I have in the present.
+
+[3]: this is another form of trading speed for acceleration
+
 # the end
 
 
