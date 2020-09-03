@@ -6941,12 +6941,65 @@ developing...
 
 [1]: I'm not saying ignore, because that's different... you don't really ignore "triggers" -- which is why they're called triggers. they trigger a form of your perception which makes you feel bad about (and therefore attract into your experience) something that doesn't need to cause negative emotion as long as you "understand it". this is largely what the mushrooms taught me.
 
+
+### 2020-09-02 17:55 - more leaning?
+
+last night I had a really awful thought flow through my mind, cause I was talking about entanglement... so, nosebook has this terrible fear that once I leave, they're going to plummet to nearly certain death at recond pace. since these guys are terribly scared of dying (the thought reminds me of dynastic egyptians' upper-class), that means they really are looking for ways to try and avoid this disaster as much as possible.
+
+so I came up with the idea that they should put me on another timeline, and since my body will remain with them, they can pretty much just assume that they'll be fine, because they can't possibly, no matter how hard they try to give their undivided attention to unwanted (undittunwanted), they simply won't crash and burn into burn into oblivion because my body is there with them. well, they have at least until I'm successful again -- so let's say 22-33 years more to try and get more travellers that have strong desire[^1] in order to preserve their well-being. they'll also need to cut me off (terminate my body), just in case they can't create enough unwanted to balance out all the energy I bring -- eg. the same situation they're trying to avoid where earth becomes too energetic of a place, and people start flying and stuff, and having telepathic capabilities (cause they won't be able to keep many secrets that way)
+
+they need to control all communications and make sure people don't get telepathy[^2] and or flight or whatever, so they have to make sure that all aspects of human physicality is completely controlled by them. if they didn't find a way to 100% control our physicality, then their secrets would be completely accessable by everyone.
+
+ok, so back to the leaving bodies with them thing... yesterday after I was writing out all of those notes, one of the reactions was that they were realising that if the orientation of a woman is toward intense reality creation, then buttsex is basically the inversion of that, and so they were considering the idea of how to get more buttsex energy being created so that things don't get too energetic too quickly. hold that thought.
+
+so after I had the realisation that I was their insurance policy. it's possible that some people simply bail out to make their own timeline or they transfer their consciousness into one of the gnomitos and grow up to be the second generation. hold that thought too.
+
+they also need to energetically manage theirselves further because if the girls go with me, then they have more options on keeping that energy from getting too low (that people turn back into primitive barbarians) and not from getting too high (close to where I am now) where they're losing the capability of controlling the physical experience. hold that thought too.
+
+then after I had the realisation that I was their insurance policy, a terribly bad idea came into my mind even though now I understand it... (why this is a follow up to last one) I realised that they realised that if we all go off on timelines, our bodies will continue on with them, and they could do what they pleased with them. the idea came to me that they would try and do something so that when I have sex with one of the girls in the new timeline, then they would be having sex with the (unconscious) girl on this timeline too.
+
+just now when I was out smoking, I realised the connection to all this stuff now. consider that a bunch of the girls figure out how to release their competition and find a way to have me whenever they desire (creating various timelines because I'll exist in multiple places at once) then, when I (we) leave, there will be a whole bunch of me. imagine now how much a bunch of dudes would love to have buttsex with my unconscious body traveling along on other times[^3], finding more and more awesome experiences...
+
+that's a whole lot of contrast, and that's a whole lot of direction in toward unwanted.. it could be wanted, but because I think buttsex is opposite vibrationally to vagina sex, the opposite actually happens and (absence of) reality or space is created ... anyway. if you have more space then you can expand bigger. in addition, there is an energetic transfer of concepts during sex, so they're essentially giving me (or the girls) a whole lot of bad ideas in the process.
+
+here's the thing though: it's probably already happening. I've always wodered what on earth would possibly possess the nosebook of fwh's timeline to allow him to make a timeline here in this one... what on earth are they getting in exchange, right?
+
 ---
 
-typing this out for me
+ok that's the gross part. now we get to implications.
+
+first, once I'm gone, they need to find a way to either have a plan to get me off their planet in under 22 years (or have 2 more dimensions people can grow into), or they need to keep finding ways to add more dimensions (or both). they can try to mitigate the energy increase with attention on unwanted during sex with our unconscious bodies (something I'm sure they'll need to keep a big secret), but it'll only work so much, because it may slow things down temporarily, it'll definitely (once we optimise away the inefficient perception) speed things up once the perception is improved.
+
+the that girls go with me, then, are also quite an asset. for easy numbers, let's just say that the girls and me are all about equal power levels, however considering acceleration in this example I'll say that my acceleration is about 10 times more than theirs... then that means that after a number of successful jumps, you'll want to get rid of my body, cause you can essentially replace my energy level with 9 girls that are still accelerating slower, however in a few more jumps, the girls will be at about my acceleration level then too, so either more dimensions and more powerful technology is needed to make sure no one finds out your secrets, or you gatta get some more slower acceleration rate noobs on timelines and get rid of some of those rapidly accelerating girls..
+
+the noobs are a promising idea, but you either have to keep the buttsex a secret, or find people who don't care what you do with their unconscious body. these would be fairly resistance-free people, so a lot of balancing will need to be done.
+
+another consideration is that when releasing a body, I don't believe it's like instant death or anything like that cause the planet has a lot of momentum to it, but letting go of really powerful people will have a dramatic energetic impact, so it's going to have to be planned in such a way that for some time, giving attention to ideas that cause negative emotion would have to be prohibitted, so that not to much downward force is created... I'm sure they'll have to come up with all sorts of really weird holidays and stuff.. maybe fasting or something so that not too much badness is attracted in a short period of time without sufficient travelers giving their attention to wanted energy.
+
+I have no idea how you guys are going to pull that off. that seems like a rather difficult task. another tool in that toolbox, besides the noobs who want to make timelines similar to mine, is perhaps transferring consciousness into either girls or into other dudes similar to me out there making a new timeline.
+
+another thing to consider is that this is not likely the only earth that's doing this, so it's sorta like a tree, probably extending from the first(?) copy of earth that happend as a result of the vortex (and resulting desire) created from the flavian impact on christianity[^4] but then maybe this isn't a new idea.. I don't really know honestly, but when I think about these things, I don't really see time as a linear line... you just put characters into the timeline, and they do stuff, but it's all happening now. this thing we live in these physical timelines is but an illusion when you see that you can just put new things in the timeline wherever you want to "fix" or offset whatever mistake is made (like missing energy on the timeline).
+
+---
+
+huh. I didn't think of that... but, easily, nosebook if they needed to, could ensure they don't fail by also putting their bodies into a timeline parent to this one, and if the earth below goes away, no problem -- just repeat and transfer consciousness into a new timeline. or, if this timeline goes bad, then again, no problem, cause you just wake up in the you left on the previous earth (hopefully not while someone is having buttsex with you, right?)
+
+a lot to think about :)
+
+[1]: cause I don't need 10 backup bodies, in case something goes wrong -- I only need one
+
+[2]: really, they can only allow telepathy that they control -- which is why everyone's imagination is controlled by them, so if you tune into one of their secrets, the system won't show it to you
+
+[3]: I think this realisation was caused and/or is the result of when I was poking at thad a bit, saying that if he transferred his consciousness into a body of one of the girls, I think he would make a lovely little girl. I guess he really likes buttsex :)
+
+[4]: according to many sources, jesus ripped off a whole bunch of stuff from a lot of different esoteric sources, so it's most likely these ideas aren't original[^5]. anyway, this sort of thing is a really common motif on mushrooms and ketamine (that I know of) and it seems pretty fair bet that jesus had some access to mushrooms.
+
+[5]: according to terence, in his vision of the other earth, they roman empire didn't collapse, they combine with the tribes in the americas like the maya, and a psychedelic society emerged, where they began to notice in dreams and visions echos of another earth where everything went all wrong. they studied it psychedelically and eventually came to have some of the understanding. terence mentioned that nukes were the red light that caused them to focus, and somewhere around the time that these nukes became a technology, tesla showed up on the scene and redirected their efforts into ring to control people energetically -- and the rest I've explained here.
 
 # the end
 
+
+### 2020-09-02 ??:?? - ratios/sections of the sine wave = picture
 ### 2020-08-04 ??:?? - the gratitude circlejerk
 ### 2020-07-13 ??:?? - vision deviod of meaning
 ### 2020-05-24 ??:?? - sumerian gods reflection
