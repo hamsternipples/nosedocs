@@ -7222,6 +7222,59 @@ final note: it's quite possible that after a few iterations of this, there won't
 
 [1]: it's really really weird, because every time that I met these guys that did things like steal my backpack, or raquel's phone, etc. they all had a really deep purple aura about them, and a weird feeling to them, too. the few times that I've perceived fwh, he too had a deep purple aura (UV light?), so I'm kinda convinced that if it wasn't a shapeshfting fwh himself, it was probably one of his buddies doing him a favour on a timeline to steal stuff from his future past self.
 
+
+### 2020-09-05 08:57 - wow, more feedback still
+
+#### explain what you mean by 6d perception
+
+to understand, you need to understand 5d. 5d is where you can look from the inside of yourself outward in all directions at the same time (like our sun), and so you perceive yuorself from all directions looking at yourself.
+
+you can also perceive outward in all directions, so when you go to look at something, again you perceive it in the same way: from all directions looking inward at it. I like to think of this as "beholding something".
+
+ok, that's 5d, but if you make the same transformation that you make from 3d into 4d, or the difference between looking at the screen (3d) and perceiving that there is a space *between* you and what you're looking at.
+
+so, now imagine that you're beholding yourself from all angles, and you begin to notice that there is a space between you and what you're looking at (yourself). this space is what abraham calls the "the you and you" -- which just means that now you have source like perception, in that you recognise that the perceived you, is not the same, or in a sense trailing behind the real you.
+
+between this gap is what I'm most interested in. just like with the transformatin from 3d to 4d, the thing that can now be observed in the space between is the imagination -- and the imagination is mostly physical looking. so, we do the same transformation here, and once you can perceive that space between you and you, then you can begin to perceive source in that space. what do I mean by source? I don't know :) I can't wait to find out...
+
+if I had to guess, I would imagine that it's something like the imagination is to the physical world, which is mentally maniplatable physicality.
+
+so, remember how emotions is how you navigate timelines? your world is a reflection of how you feel, well, imagine then something kind of like a mentally manipulatable emotional/conceptual landscape, which is essentially the concept of the thing that brought it to the moment in which you behold it, and then the possiblities that exist as potentialities (like voltage) from there.
+
+I don't really know what it's like yet. I can just do the transformation in my head and expect to see it soon enough.
+
+#### why does it seem like they're insisting that they're going to rip all of these ideas and make their own bastard version of them?
+
+because that's what they *will* do :) someone has to make the first prototype.. they're going to get all these ideas all setup in such a way that in their perception, they will have trapped me into one of those automaton suits and are finding a way to manipulate their own success into place.
+
+however, in my estimation they VASTLY UNDERESTIMATE the power level they're going to need, and will, in their perspective, ultimately fail at getting us under their control, so that will essentially create desire (spans across "time") that things were to be different.
+
+that's where we come in. we're gonna jump back into their timeline, sometime this year or the next (not sure when exactly) and modify things so that they turn out WAY WAY worse for us, giving them all the hints they need to have technology powerful enough to actually be able to succeed. because our timeline becomes the more desired one, that timeline will "win" the competion for reality, and they will all "forget" their disaster timeline, and find theirselves successful in our disaster.
+
+that's the whole point of what I'm trying to say, is that without us failing so hard, they would theirselves fail, however, since we also need them to create the contrast necessary to make the failure possible, we're a bit "entangled" -- which is why for both of us, "the problem is the solution" -- which is why I'm so interested in the automaton idea.
+
+they will also need a whole lot more of a gap as well. remmeber when I said 6d perception, well, the layers that I'm working on are kind of like virtual layers, because they're not really real reality. they are constructs, and only a different way of perceiving the same thing. when I talk about the IAM thing, it's all desire and structure perceived from another (perpendicular to?) 2nd ray (christ) perspective.
+
+so what these virtual layers do is, essentially obfuscate or hide the 6d perception with some other virtual (constructed) form of perception on top of it, just like when they turned my eyes off, I realise that the eyes are a constructed form of perception which completely obfuscate what's *really* there. this would be very much the same thing.
+
+what that means is that essentially nosebook will have the ability to perceive each of our 6d (source-like) perception, but we won't be able to. that'll give them the ability to make the timelines for people like I mentioned in the previous entry.
+
+the automaton is also important because it means that they can essentially direct large groups of people (audience, charactors, and actors), simply by changing their desire programming.
+
+they'll likely need to have one for all of the different versions of myself that exist, and like I said, I'll basically be suck in a body that's completely out of my control. the only thing I can do is to react the way that I want to react, and define more and more that self identity that I was talking about, because all I can do is to just continue on doing my best to respond the way I want to respond, and know that source is evolving the desire based on percepion of unwanted.
+
+---
+
+the reason why I'm certain that they vastly underestimate the power level, is because the energy level on earth will rise so much so rapidly, they'll find that eventually everyone will have 6d perception, and at that point, there won't be an audience much anymore, so it's not about watching someone else, it's about waching yourself and your team of travelers going through these different situations with each other. meaning that instead of it being a contrived "set and scene" sort of thing, it'll be more like multiple teams/factions showing up (inhabiting) the same earth at the same time, and they'll have controlled conflict between each other in accordance with their programmed desire.
+
+I was beginning to see this morning that actually it's likely that this process will happen again in 3 more eras (scorpio/libra), and 2(4) more virtual layers will need to be added again, kind of making a sort of cross (cause I perceive these added layers as perpedicular to the main 7), with source in the middle.
+
+it'd be kind of funny if after 3 more eras (leo/cancer), 4(8) more virtual layers were again added perpendicular to the other layers, kind of making a swastika layer layout... :) just like how the thrust layer works as a kind of virtual centre point[^1], then when the swastika layers are built, you could then imagine then that the physical and desire layers (and the two yet unnamed layers, left-most and right-most of the virtual layers) would become the new centre points, meaning that we would perceive like we perceive sub-atomically to the physical layer, subatomically to desire layer, subatomically to the IAM (monad?) layer and subatomically to the story physicality.
+
+we just have to get there :) only ~12000 more years to go :)
+
+[1]: which will become a transition layer as soon as we move to 11 layers restoring source to the centre point again
+
 # the end
 
 
