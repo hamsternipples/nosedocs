@@ -7108,6 +7108,72 @@ looks like the "south pole" (that is, the point of the chestahedron) is located 
 
 [3]: this is another form of trading speed for acceleration
 
+### 2020-09-04 18:?? - wow, more feedback
+
+#### why did I write 'build your own trap' and then delete it?
+
+these sorts of "slipups" or "mistakes" seem to be evidence of a future timeline. I didn't mean it in a negative sense, but more of a sense like, "nice well you'll be dogfooding your own prototype and have to live with your own design flaws"
+
+however this and a number of other things I've noticed, seem to be things that can be edited slighty in a future version of this timeline, where these minute changes have a dramatic effect on how people perceive the chain of events.
+
+what I was learning with the competition subject around the new neighbour in front there is that it has basically 100% to do with my perception, and if I choose to perceive competition, for whatever reason, it'll attract a reality in resonance with that. however, if I simply keep my eyes looking toward the continued unfoldment of what's desirable, then I get that. I have full control.
+
+---
+
+so now think about this from the future. the big burst has happened, and now after the extremely magical huge expansion, things begin to slow down (they're still going way faster than before, but they're slower than the exhilerating "magic" that feels so good in the manifestation). so, when things start to slow down, some people try and go into guarded mode and try to protect the thing that makes them feel good. others get bored and try to find either a repeat of the last (this is chasing the dragon) or they try to find a similar circumstance with someone else. what I'm suggesting is neither of those, but instead to go back and turn your "magical" manifestation into a complete disaster with the flaws you can find in your own perception.
+
+this is what I mean by tanking the timeline -- because out of it, such tremendous desire will be created that another really awesome thing will emerge as a result of the fallout.
+
+I believe that starting here on this timeline, and with everyone having experienced how effective this technique is for building desire, really all there needs to be are a few components, and the most important one is an anti-desire, which is where the automatons of contrast (AOC) concept comes from, because they'll have charactor provided by the actor, and they'll do the job of creating "contrast".
+
+I imagine that there will be a whole lot of "parallel" earths happening, with infrastructure (nosebook's job) and a whole bunch of these actors there just waiting for people like me and the girls to show up there and make a bigger splash than before. I'm sure that in the process we'll come to more and more ridiculous manifestations. the best part about it is, that with everything conrolled like that, it can become fully automated (tesla throught experiment) and multiple realities similar to this one can be created for other guys like me, and stuff like that.
+
+observation creates desire so that I will imagine that an elijah type factor comes into play, making it possible for everyone (in the audience) to eventually paricpate in events like this. I'm nearly certain this is the case because energy will rise rapidly enough that an audience of observers will not be viable. instead, I think the audience will in a sense, become the actors, and the whole world will participate.
+
+I think it'll start out with all of the "weak" people playing actors in automatons, and the whole world is the stage, and the travelers are the ones coming in, in groups to kind of like make their influence in that world, and they'll take many others along with them each time that they go through, just like it's certainly quite possible that I'm going to take a whole lot of people with me into the next timeline (the hollywood one).
+
+#### if timelines keep getting created, won't time move slowly?
+
+yeah, I've been thinking about this, because in a previous entry I gave the thought experiment, that even though I'm reset back in time, that time which I forgot about happening isn't actually lost and that my power level has increased anyway.
+
+if I had to speculate on how this will take effect, I would imagine that after this timeline is successful (we go in masse to the next timeline), the people running the show will keep resetting us back in the hollywood timeline over and over because proabably too much good stuff will keep happening, and all the while, they'll be (correctly) trying to avoid their desruction until they're approaching the very final minute... pressure will likely be coming from the galaxy itself and also the rising energy on the planet (however the harder we tank it, the little bit bigger their window is) meaning that, eventually they'll likely feel forced to setup their control structure in such a way that they can control it from a derivative of the automaton tech that they feel is good for their use, and "join us" (in very contrived and controlled circumstances so that there are multiple layers between the reality we live and the reality they live). I would imagine this will be the case for quite a few "directors" in the hollywood experience...
+
+in other words, the directors are kind of like making their movies and stuff here, and likely the whole world will be the movie set and the audience. it's a funny blending, because from their perspective, it's nearly impossible to tell the difference between the audience and the charators that need to be kept under control.
+
+what I mean by charactors that need to be under control, look at my life: there are all sorts of actors that appear within my life to try and affect the desire of nosebook into my life. they view me as a threat, and so to ensure that I stay out of truble and don't get too powerful, they employ all sorts of actors to try and mitigate, enhance, or steer events.
+
+if you think about the overhead involved with someone like me or the truman show, it's a lot, because it requires a whole lot of direction. next, if the number of uncontrollable charactors seems to be increasing, because we'll take more and more with us, clearly the environment and the audience (who lives in the audience) will need to be far more automated.
+
+it's also impossible that one type will appeal to all, so you can see multiple competitions beginning to form. one is a competition between the earths for most compelling or capivating environment (other emotional attributes as well), and then at the "end" of each timeline, that earth's energy level will rise quite dramatically, probably causing those with the tesla tech who need a different environment to temporarily find a more suitable environment or some way to survive the big "burst" (for reasons I explained in a previous entry about implications). after that manifestation, right when it starts to feel like it's slowing down, along with the new ones that want to join us, we'll transfer ourselves into a new timeline to repeat the process, leaving a nice earth for those who want to cultivate a new audience and environment to inhabit it again
+
+it's likely that we'll just keep rinsing and repeating this process for the entire time this era. there are a few gotchas though, because as I kind of made reference to with the vulcan talk in the previous entry, I am pretty certain that each time a new celestial body emerges from the sun, I don't think it's possible to go back to a time before that.
+
+I think that we're basically getting setup for the 0-point in relation to the galaxy, and somewhere around the time of the beginning of the hollywood timeline, we'll be off and "saved" from certain destruction. during the hollywood timeline, I imagine there will be a lot of changes on earth and teslas dream of turning our planet into a sun, and having energy shoot out of the equator will be essentially the start of this "galaxy" I've been talking about.
+
+somehow uranus must have something to do with this. uranus has his pole pointed toward the sun, and in mythology he (along with gaia) is credited with having given birth to the planets we now know as jupiter and saturn. I find that weird becaus gaia is the name many have given the earth, so somehow the golden age on earth is associated with the creation of saturn... weird. anyway...
+
+so, I think that they'll simply keep going for as long as they possibly can before it's too late, and I think that will happen over the course of what we would consider ~2000 years (one era/age).
+
+to give myself some credibility of that prediction, it sounds to me like adam and eve was something that happened around the beginning of taurus, but the "aryan invasion" didn't happen until aries.
+
+#### what if the automaton were to have programmed positive desire (insstead of negative)?
+
+well, then it would rapidly get that desire. much more rapidly than humans -- which is why I want to build one, and combine with it -- know what I mean?
+
+there's also the funny case of perception, because what you *think* you want, isn't always what you *really* want. and, another thing to consider is that the auomaton operates automatically without any direction. it experiences emotional response to it's situation in relation to its desire just like humans do, and then follows that, auomatically.
+
+what interests me the most here is that the actor. the actor is just along for the ride essentially. the actor will get to feel the constantly improving emotion along with the automaton, and the contrast associated with the differing situations. so this presents a whole new sensation to be discovered, and I think it largely has to do with the new physical layer I want to add making it an 11 layer experience. here's why:
+
+when you think about what desire is, the manifestation of it, is *always* an emotion. that's what everyone is looking for with their desires -- so you navigate your life coming to conclusions about what will make you feel the way you want to feel, however this automaton does all of that navigating automatically for the actor. the actor is simply along for the ride, so what the actor contributes are the kind of like "details" of the moments.. maybe something like a presence. I can't really see it or explain it very well, but there is some relation between the symbols and the experience which give a different type of emotion or something which I can't explain very well. additionally, it's not really desire either but an overarching "theme", motif or moral -- something which I have labeled "thrust" (for lack of a better word).
+
+you can see both of these elements present in my life alraedy. for example, the "thrust" that I have been giving so much attention to has been "need not the maniufestation" and "resist not evil", "do you want to be right or to feel good" (along with some others)
+
+these themes and motifs have been present in my life the whole time, and quite honestly they are some of the most important foundations to who I am as a person, so like if I think about it from the outside-in perspective, then I see them like different thrusts (or morals) that my life has given me to give up on some bad ideas. however, if I look at it from the inside-out perspective, these things that are now a part of my core character form a sort of IAM (or god) complex, where no matter how far I get into a tough spot, I know that fighting against something makes it worse and you just want to make sure to hold off on the manifestation for as long as possible, so that it can feel as normal or unspectacular as possible.
+
+this means that I am already, in a sense, living this 9-layered reality I want to create. I see quite a bit of evidence that once you've constructed this core of who IAM is, then there's a new set of feelings or sensory capablity that comes as a result. for example abraham was talking about trusting other people's words, and to instead trust your own feeling as guidance. however, I have so many people trying to manipulate the way I feel, that's not 100% reliable either, so I've resorted to this new form of logic which comes as a result of those "thrusts" my life has given me to define who IAM, right. that logic is super stable and is kind of like an internal source (or who IAM is) that I can rely on, which essentially encode the laws of the universe into perceived traits within action.
+
+so, that means I'm already seeing evidence of the 11-layered universe right now, and it likely won't arrive until after the hollywood timeline is created, and likely it'll come as a result of all of the effort that will me made to try and rob me of this "identity". I know I am on the right track, and one of the funny thing fwh told me to do is to ponder what I AM means -- which is also really funny because of the judaic constructs that this timeline uses for its "thrust". meaning, a very large majority of the stuff I have in this I AM, is kinda like "stolen" and modified jewish concepts.
+
 # the end
 
 
