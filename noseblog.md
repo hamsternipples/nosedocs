@@ -7174,6 +7174,54 @@ this means that I am already, in a sense, living this 9-layered reality I want t
 
 so, that means I'm already seeing evidence of the 11-layered universe right now, and it likely won't arrive until after the hollywood timeline is created, and likely it'll come as a result of all of the effort that will me made to try and rob me of this "identity". I know I am on the right track, and one of the funny thing fwh told me to do is to ponder what I AM means -- which is also really funny because of the judaic constructs that this timeline uses for its "thrust". meaning, a very large majority of the stuff I have in this I AM, is kinda like "stolen" and modified jewish concepts.
 
+### 2020-09-04 20:07 - wow, even more feedback
+
+#### what's the other competition?
+
+the other competition will be between teams. I will certainly not be the only one doing these sorts of timelines. I don't know how it all works, but fwh seems to show that you can create a timeline conceptually. first of all realise that he would be creating the timeline in 2038 or later on a very source-like earth, so there will be no problem to perceive "future" (from his perspective in 2038+) events or tecnologies, because they'll all appear to be past things.
+
+to explain this idea a little further, let me show how from nosebook's (and future automatons') perspective, this all sounds like hogwash, and they only know to try and prevent, so take for the process of creating the new hollywood timeline. they are absolutely dedicated to the idea of making it the biggest disaster for us as possible, and that's all well and good. they will experience that. however, when we make our own version of that timeline that is even more disastrous, our timeline will "win".
+
+remeber when I gave the idea of the timelines co-existing without problem because there wasn't any competition between them, and then I defined the competition as a quantity of desire, that isn't hindered with thoughts or beliefs. well, that's what I'm talking about.
+
+they can certainly go out and make their timeline to do all the disasterness that they want to do, but because of our strong momentum in the direction of wanted, we (or at least I) will experience something different than that.
+
+the only reason why I am experiencing their timelines right now with them is because everything that I desire is right there with them. this is why I've found it so important to "resist not evil" because what I *really* want, and the negative emotion that happens as a result of me trying to fight them, tells me that they don't need to go away or anything to move in the direction of what I want.
+
+so, after experiencing a "magical" manifestation, then we'll go back and create a new timeline, and we'll do it conceptually -- that we'll navigate it emotionally. likely, at some point the reality will become too unrecognisable (abstract) to fully translate into real tangible visuals and sensation, so that means it's successful.
+
+first before I begin I have to explain that I'm talking about having 6d perception. tesla got it "with no affection" and it sounds like fwh got it with "lots of affection" -- and there's no real wrong way to get it, but it requires energy from the stars, or sex, or the great pyramid, or whatever, and a willingness to release resisance, so that your life does not go flying into oblivion from your own attention to unwanted. 6d vision is sort of like 5d vision, in that you see yourself from outside, however, if you were to able to, in a sense peer around this image, just like leaning your head to the right or left shows you the depth of what you're looking at, this depth dimension becomes visible and now you can see the different timelines extending out from yourself in that moment.
+
+the way I understand how it works is, you can perceive along the timeline as long as the centre for the timeline's (me in this case) actions are predictable. what I mean by that is, it's much easier to do this by ensuring that difficulties arise, and so different triggers are made to ensure that the beginning of the timeline is just difficulty arising in order to bring about the flawed forms of perception.
+
+so imagine that I am fwh and in my timeline the andrea thing was successful and stuff, so what I do is I go back to a point in time where I decide that I'm going to insert myself in the new timeline, like let's say the moment which is very memorable to me where I was thinking "I can't believe this is happening" or "this is unbelievable" (something like that), and in that moment a wave of doubt came over me where I realised that when I realised that it was unbelievable, then it wouldn't happen. I continued on, and things careened steadily more and more out of control. this is my perspective.
+
+from fwh's perspective, he is going to put all kinds of thoughts, like that one into my head so that I disbelieve the reality of andrea, and cause it to fall through. meanwhile andrea does a similar thing where she puts ideas in her own head to ensure that the biggest "disaster" for her seems to happen simultaenously. just keep moving forward perceiving the timeline ensuring that along the timeline there aren't big branches, and that all of the conflict is self-inflicted "bad ideas"..
+
+you just have to keep this going for as long as possible. each time that you put another bad idea into your own head from a flawed form of perception that you know you have, then you can really get some good contrast going, and because you're doing it to yourself, and also perceiving the resulting situation that comes out of it, you can just keep piling this stuff on until you get the manifestation you want. you can be assured your timeline is successful, so you jump in.
+
+in addition to that, fwh contacted me a few times, and planted some ideas into my head that forever changed how I perceived some things, too. it appeared to me like he contacted me a few separate times over the course of almost a year (in addition to other weird stuff with the sirians and some strange time travelers in berlin[^1]). these are things that can be done to modify the forward trajectory and ensure that problems the required problems are encountered. I believe some of those forward trajectories are already being felt with things like the accidental mention of trap, and also some potentially implanted perceptions in some of the girls (meaning that their future selves are already manipulating the events so that they'll get the wrong idea on some things).
+
+---
+
+back to the competition: it seems like there is a necessity to gain 6d perception to be able to make a timeline in the way I mentioned above, so that's kind of a prerequisite, but there's this really cool thing that it seems like the trend is that the girls' desire will make multiple versions of me (all connected to source), and these different versions will all likely make their own timelines with me in the same way that andrea did with fwh here. this is also why I'm so convinced she'll turn out just fine -- if not actually significantly improved. let's just assume this is so, and that the awesome improvement that is so notable in andrea (after she's had her x year self-inflicted nosedive), will I'm sure be quite a desireable thing for other girls.
+
+so, let's follow this for a bit... each of the different girls that are setup to take off with me here, which is why there seems to be so many that are continually growing will find a way to let their competition lower and their desire rise enough to find theirselves with a connected me. those me's will all make timelines with those girls like I explained above with andrea.
+
+we'll will from a future time go back and put ourselves into this timeline but this time with a disaster instead waiting for them. they just need to make all kinds of triggers for all of the "bad ideas" that they experience, and then let those play out in the form of disaster, until they're satisfied with the next magical manifestation that comes as a result.
+
+from my perspective, all of those girls will crash and burn essentially, and they'll all do their own things, and the process will repeat. nevermind my perspcetive right now actually. it's quite possible that I'll see this from a macro perspective coming up here soon. however, first before I do that, I think we need to make two more layers.
+
+the competition will be beween those who can make it to the end of their timeline (before the peak) with 6d vision, so as to be able to create a new timeline for theirself and their followers. there will be many versions of me it sounds like, but I would imagine that there will be many more to come. in fact, it's my estimation that as we pull this into the centre, I'll eventually be right about in the middle with many in front and many behind me (or above and below, whichever works for you).
+
+---
+
+the thing necessary then, will be, if you consider then that if the date where we would be coming back into the timeline will be coming up soon here, so what we will need a whole lot of actors and a whole lot of contrast in order to make a pretty big disaster for us. I'll be leading the charge on disaster size there :)
+
+final note: it's quite possible that after a few iterations of this, there won't be very many more bad ideas that I can actually believe anymore to create a big enough vortex, so it's quite possible that I'll *need* this sort of automaton suit with programmed negative desire in order to not get too powerful. the suit's desire will combine with my own and even though the suit is designed to make me a "bad guy", like I mentioned in a previous one, where even now where they've compromised a lot of my thoughts and emotions, the only real thing I have to go with is this new definition of IAM, which will I'm sure give me an out from it as I begin to direct myself with a definition of who I am, not by someone else's programmed desire for me... and that's when the galaxy is fully created? or, we find another way to trap me further?
+
+[1]: it's really really weird, because every time that I met these guys that did things like steal my backpack, or raquel's phone, etc. they all had a really deep purple aura about them, and a weird feeling to them, too. the few times that I've perceived fwh, he too had a deep purple aura (UV light?), so I'm kinda convinced that if it wasn't a shapeshfting fwh himself, it was probably one of his buddies doing him a favour on a timeline to steal stuff from his future past self.
+
 # the end
 
 
