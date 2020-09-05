@@ -7275,6 +7275,17 @@ we just have to get there :) only ~12000 more years to go :)
 
 [1]: which will become a transition layer as soon as we move to 11 layers restoring source to the centre point again
 
+
+### 2020-09-05 10:30 - yet again more feedback
+
+#### what about the idea that the girls aren't really experiencing me, and are jus having sex with some actors that look like me?
+
+likely. I wouldn't doubt that they'll try it. they're the ones with the time machines, so if it doesn't work, it doesn't work. if it does, it's just more energy. I don't really mind, and as I gain my own 6d perpception, it may be quite considerable that even though they have their own "actors" out there, from a source-like perpcetive, I have that mentally manipulatable landscape of emotion that I'll essentially be directing these automatons with and the actors just give the presence. any other way, the actors would have to actually do their own emotional navigation, and it would be apparent relatively quickly that they are not me :)
+
+if this is what takes place, I find it highly likely that this is the pre-disaster and things will eventually spin out of their control and then resume what I wrote above.. it's quite possible that they'll try to put us now on their hollywood timeline. however, I think we'll come out pretty well ahead from the whole ordeal, so we'll decide to actually go back and make a worse one, cause realise that when I say worse, I mean in physical manifestation, not in perception. our perception (which is largely non-physical) will always improve, meaning that each time, an even better manifestation will be made. after some time (which is why I think that they vastly underestimate the power level), we will be so numerous, and our perception so well optimised that such a "disaster" won't even phase us in the least.
+
+it'll just be like ok, yeah whatever cause this is who I *really am* -- at which time, no matter how hard they try, they'll lose control of their ability to keep us away from perceiving ourselves from the eyes of source, we'll all get connected (6d perception), and go back to have another go at it, this time ensuring that they have additional layers and enough tech to be able to hold us in... from there, I guess we'll spend 2000 years or whatever going in contrived cycles that they put us in, until once again someone (probably me) figures out how to see through their layered illusion and finds a way to get to 6d again... rinse and repeat what I wrote above but for x^2 more physical layers.
+
 # the end
 
 
