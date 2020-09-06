@@ -7286,6 +7286,51 @@ if this is what takes place, I find it highly likely that this is the pre-disast
 
 it'll just be like ok, yeah whatever cause this is who I *really am* -- at which time, no matter how hard they try, they'll lose control of their ability to keep us away from perceiving ourselves from the eyes of source, we'll all get connected (6d perception), and go back to have another go at it, this time ensuring that they have additional layers and enough tech to be able to hold us in... from there, I guess we'll spend 2000 years or whatever going in contrived cycles that they put us in, until once again someone (probably me) figures out how to see through their layered illusion and finds a way to get to 6d again... rinse and repeat what I wrote above but for x^2 more physical layers.
 
+
+### 2020-09-06 08:46 - step 5 and timeline stuff
+
+one of the reactions that I got to a note I put in yesterday's @[abe-now](2020-08-29) where I made this comment:
+
+> I've been throwing out a whole lot of unwanted ideas too by taking their unwanted ideas and taking them up another level. sure, it's unwanted still, but the practice has been a good one, because now, for the first time more than ever, they're trying to figure out what it is that they want, rather than trying to make my manifestation as unwanted (for me) as possible. they are starting to figure out that by tryign to make something unwanted for someone else, they are actually attracting their own unwanted.
+
+the reaction was saying that isn't that focus on unwanted, and yes I would have to agree, but you would have to imagine that source is basically completely blind to almost all of creation. you see, step 5 is looking at contrasting things and, instaed of it making you feel bad, you perceive the wanted part of the whole thing. it's basicallly just step 5.
+
+however, this exercise is becoming more and more common for me to do, because no matter how bad of ideas I throw out there, they don't really make me feel bad anymore because I know that all of them are just more energy into the equation, and if you know (or can see cause you have a broad enough perspective) that things are always working out for you, then it's not a problem.
+
+if you were to imagine that you have a fork in the road and you have to make a decision which way you want to go. one road is fast and easy, and the other is more powerful and more difficult, which one would you take? both take you to your destination, but you get to decide: usually based on how much unwanted you perceive and how long its illusion keeps you from the realisation of what you really know about that.
+
+---
+
+I don't want to toot my own horn here, but I've proven myself so capable of finding wanted in the things that most people would consider unwanted, I really do feel like my perception is arriving very close to source's here soon, and I really don't mind the practice. I am so certain that no matter the unwanted thing, I can find the wanted part of it, even if it's just "more energy" or stronger desire toward what's wanted. after learning this form of perception, there really is no point to trying to go for the ideal manifestation anymore, because the ideal manifestation, is actually kinda the weaker one (the weakest ones are the ones from "split energy"), and it also kind of trains the person to need good conditions or manifestations, in order to feel good.
+
+my technique now has evolved to learn from myself a bit. I just shoot for the worst possible manifestation possible, and then holding out on getting it for as long as possible. this is essentially letting LOA do all of the work, and I just don't need to do anything more than just find a way to feel as good as I can. it's sort of a contradictory or ironic idea, because if I'm truly feeling really good, then the terrible manifestation, simply cannot occur because I'm not a vibrational match to it. that terrible manifestation *must* improve to be more similar to how I feel, or else it simply will not happen.
+
+---
+
+that is largely what has happened throughout most all of this whole experience. in fact, if you take all the timelines out of it and all the other stuff, and just look at it for face value, you can essentially see that somehow I've managed to continually[^1] feel better and better, and basically, I've been sorta really far ahaed of the game.
+
+so, because I'm convinced that I have consistently found ways to feel better and better and release resistance (as evidenced by my vison -- even though I don't get to actually see as good as I see or feel as good as I feel), I have also been putting a lot of emphasis on the worst manifestation possible, while at the same time finding ways to feel better and better, so essentially the (worst) manifestation I've been giving my attention to can essentially never happen (cause it's not a vibrational match to me). lol, gotcha :) without even realising it...
+
+---
+
+anyway, at this point, now that I have this form of perception (even though I can't actually see it), it doesn't matter to me (need not the manifestation), because that form of perception will continue to increase in power even without the mainfestation. as such, at this point, I'm completely dedicated to the disaster, meanwhile continuing to improve my form of perception to become even more and more source-like.
+
+---
+
+one of the things that I liked about the @[abe-now](2020-08-29) broadcast was the part about the student attrition thing, because it was kinda like a big aha! moment for me. I'm really really really glad that so many girls are finding their way toward what they want and embracing the step-5ness of the going back to make another set of failures.
+
+you can't really understand until you begin to see things this way, but perceiving that there are many yous that are doing way better than you, and many yous that are doing way worse too, you can see that you are kinda like the root 3 diagonal going through the centre of the cube, and it's only your thoughts in the now (rather how you feel) that teleports you to a different position than the diagonal, but if you look at it, once again you're in the centre of the cube again on the diagonal, once again on the shortest path. there are always other yous that are more successful, less happy or whatever emotionally qualitative metrics you put to define the other routes, but you are *always* on the shortest path toward what you want.
+
+anyway... with that form of perception, it then becomes no problem to want to go and make a new timeline with a bunch of failures in it, because you know you're always on the right path, (or, things are *always* working out for you), and it's only your thoughts, and then how you feel which is evience of a deviation from this shortest route.
+
+imagine, you could just put yourself into a very long and difficult route, deviating greatly from that shortest path, to gain other things and come into new realisations of new desires that you have which add tremendously to the energy potential. I say potential because it has everything to do with with perception (allowing or not resisting), which the straight line shortest or fastest route no longer the most optimum. if you can use time and your form of perception to your advantage like with knowing your recovery time, then the "longer more difficult route" actually turns out to be the faster one cause of the way energy works -- it's not a travelling salesman problem..
+
+---
+
+I think we're going to keep this up for a while. it makes me feel so good to know that so many girls have found (and are finding) their way to to the manifetation that they want. I'll expand on this more in the future, but I really really am glad cause that frees me up to continually go power-hour on bad ideas (which don't feel bad to me), while I wait for a miserable manifestation to finally catch up to how I feel... :)
+
+[1]: though you could debate the different difficult spots that I encountered, however, I believe that because I've noticed that my vision improves when I feel a lot better or I've released resistance, so that means that I *have* been actually continually feeling better and releasing resistance, even if nosebook won't allow me to feel as good as I feel, my vision improving, to me is concrete evidence that I have been continually feeling better and better.
+
 # the end
 
 
