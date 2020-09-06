@@ -937,7 +937,7 @@ you navigate these "timelines" with your emotion, and if your dreams don't feel 
 
 ### 2020-08-24 16:40 - (2020-08-15)
 
-#### p2. 01:02:40 - departing words
+#### (p2. 01:02:40) - departing words
 
 you are standing in a new segment looking forward to something.
 trust that whatever it is, will come to you in a myiad of delightful ways.
@@ -947,7 +947,7 @@ trust yourself
 
 ### 2020-08-30 17:59 - (2020-08-22)
 
-#### p2. 07:12 - step by step for calibrating
+#### (p2. 07:12) - step by step for calibrating
 
 I call caibrating, changing my perception.
 
@@ -1003,7 +1003,7 @@ I don't really perform this operation very consciously anymore. instead, it's ju
 
 lol, ok, they didn't give a step-by-step answer, lol. it must be that everyone kinda makes their own process. I suppose that one could turn what I just said into a step-by-step though, but it may obfuscate the emotional aspect to it. I'm iteratively using emotion to find a way to change my perception to be the same way as source, so that I can perceive reality like they perceive it. (period. end of story. I showed the path, but you have to find your way there there, if you want to see things like source does, that is)
 
-#### (10:44) - activating an emotion which makes it really exhilerating when that emotion lifts up off.
+#### (p2. 10:44) - activating an emotion which makes it really exhilerating when that emotion lifts up off.
 
 they talk about what are you calibrating to, and that you can tell how you feel by calibrating to your source. then, they suggest that sometimes talk therapy or really discussing an issue with someone can be quite a thing to really «activate an emotion which makes it really exhilerating when that emotion lifts off».
 
@@ -1013,7 +1013,7 @@ I think abraham's teachings are more geared toward peole who like dramatic swing
 
 so for me (and also your benefit), the most important thing to note about what I wrote in the last section, is that when I change my perception, I usually don't really have any "breakthtrough" moments, or anything that makes me suddenly feel much better. usually I'm still kinda pissed at whatever it was or maybe pissed off that I'm no longer able to push against that. instead I just begin to gradually get let it get better with time. making each change to my perception have as little of an impact as possible -- making the process of changing my percepion, eventually lasting and effortless, as if I were simply shifting gears.
 
-#### (11:53) - you're not calibrating to be right; you're calibrating to feel good...
+#### (p2. 11:53) - you're not calibrating to be right; you're calibrating to feel good...
 
 > don't lose the plot; you're wanting to return to your source energy
 
@@ -1035,7 +1035,7 @@ literally, right around where I paused it here, I love that they take a totally 
 
 [7]: this seems logical because esther is much more dramatic than I am. I love dramatic people and tend to enjoy hanging around them because otherwise I would be waaaay too serious (trigger to allow let people react to this, LOA to respond to it, and I can make a followup). it's funny how our different perspecives on calibration are so similar, and yet what intoxicates us thn most is the same: to find out how source perceives the same thing (and to adopt it as our own, or own that perspecive).
 
-### 2020-08-30 23:18
+### 2020-08-30 23:18 - (2020-08-22)
 
 #### (??:??) stage fright
 
