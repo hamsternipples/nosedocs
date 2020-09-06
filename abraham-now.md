@@ -1056,3 +1056,47 @@ the other advantge of not making an image for myself (out of positive reinforcem
 [1]: an example comes to mind when I ask jaron what he thinks about something "random" -- sometimes I don't have any good ideas, or maybe when I want to tell him a dimotivational phrase I thought of.
 
 [2]: there may be something to who seems to be more affected by these mixing of the vibrations. one may say it's the one listening, and not the one talking, but I don't believe it has to be one way or another. I think it's more to do with who's dominant (who's the most stable emotionally) in the situation, regardless of who's receiving the message.
+
+### 2020-09-05 20:33 - (2020-08-29)
+
+#### (p2. 14:15) - what do I do about student attrition?
+
+in this question, I felt like they were answering a bigger question here, regarding the girls. they're basically saying, let them find their own way, and they don't need to be exactly ... here's the quote:
+
+```
+by achnowledging that just because someone or something was a cooperative component to you, doesn't mean that that someone or something will be a constant, continuing cooperative coponent to the changing you that is you
+
+you don't want to attract cooperative components and then just stick to those cooperative components and only to those cooperative components, and not allow them to have other experiences that they choose
+
+at some point, they're all going to be cooperative components to something else and you must let them go. you have to let them go to what feels best to them while you understand that constantly you will always be able to attract what is best for you
+```
+
+in a lot of ways, I think this kind of links up with the idea I was talking about where I was explaining the idea of the different failures, and using andrea to illustrate the thing. I even made a funny comment when I said,
+
+> "from my perspective, all of those girls will crash and burn essentially, and they'll all do their own things, and the process will repeat."
+
+which, of course, I was referring to the idea that if any one of those girls were to find the feeling place of the manifestation that they want, they would experience it. none of us here who are locked into nosebook's version of reality will ever see that, but I assure you that it would exist. then, having had the manifestation that they were looking for, I am certain that they would, having learned the value of contrast, and seeing theirseleves through the eyes of source, find value in modifying this timeline so that they do not get the manifestation. I am certain that this timeline (that I experience because of my entanglement with nosebook), is going to be the one timeline where no manifestation happens.
+
+it'll continue on *appearing* (which is why you have to use your feelings to tune to what you want) like there is no manifestation, and if there is one, it's going to be a very unwanted one. that's the point.
+
+it'll continue to head in this direction for as long as they can hold on to that, because, at the same time that is happening, they are giving a lot of attention to a whole lot of unwanted things, which I've learned from "resist not evil" that unwanted things aren't bad, and like the ingredients in the kitchen that you're not going to use in your food preparation, they don't need to be expelled from the kitchen.
+
+eventually, desire for something wanted will rise to such a high level that nosebook will no longer be able to continue holding on to their ideas of unwanted[^1] and will have to take off in their own direction. now, I don't know if this will happen because I eventually get connected, and they can't stand that so have to go somewhere else, or if they will actively move in the direction of what they want here soon. dunno.
+
+so, eventually the manifestation *will* happen, at which point we will, like I've mentioned numerous times, go back in, make sure they have new tecnology to hold us back energetically for long enough to build up a whole new giant vortex, which we can only access once we've optimised our perception and given up on some inefficient beliefs.
+
+this will probably continue on over and over again, until nosebook eventually gets the point that trying to fight against it only makes it worse, and instead either joins us or tries to capitalise it. finally, I'm sure that we'll all be doing it, where we utilise their energetic restrictions as a kind of pressure building container to kind of let a whole bunch of desire build up before getting the manifestation.
+
+we'll know deep down that no matter the circumstances (no matter how big of a jam these different students decide to get theirselves into), LOA ensures that things *are* always working out for you.
+
+I really wouldn't worry about any thing that anyone else wants to do, especially if it makes you feel bad. if it makes you feel bad, that means that 100% for sure you are looking at the conditions of the moment, and that you don't have a broad enough perspective to see the bigger picture.
+
+I can imagine that once you get the hang of it, it's a whole lot of fun to jump in, stir up a whole bunch of trouble, then find your way back to feeling good, to enjoy a nice manifestation and expansion that comes as a result of the trouble you stirred up. you don't believe me now, and you probably never will, because most people will not practise a good enough feeling to experience what they want. to them, it will appear like a long list of failures happening all around, and it'll just keep getting worse the more you need to see someone else's manifestation to believe it possible for yourself (or something like that).
+
+all I'm saying is, it may look like a whole lot of churn with the girls, but I assure you that is not the full picture. I would make a 99.9% guess that if one of the girls wanted to join, started feeling better and better (or had stronger and stronger desire), but then all of a sudden started to go "downhill" .. I would guess that is pretty much the hallmark of the self-sabotage from a future timeline, so I just wouldn't worry about it, or let it make you feel bad in any way, either.
+
+put yourself in their shoes: if you had that kind of manifestation, you could either chase the dragon, and anyone who's ever done drugs knows that the first time is always the best time, and is impossible to repeat or get a better time without having some difficulty (or sobriety) inbetween. only going for one type of manifestation (the good kind) trains a person to not believe in theirself and to need good conditions. whereas, if you have the bad kind too, and you see yourself continually recovering faster and finding your way quicker, you feel really good about yourself -- much better than with an ideal manifestation.
+
+simply put, the best manifestations are *always* after finding your own way (not someone telling you) toward what you can now really appreciate because you've experienced so much unwanted. why? because you found your way there and *you* learned how to do it with the power of your emotions, and the more impossible the odds of you accomplishing that feeling which brings the manifetation, the better.
+
+[1]: when I say unwanted, I mean unwanted. it doesn't matter who it's for, because the focus is still on unwanted. I've been throwing out a whole lot of unwanted ideas too by taking their unwanted ideas and taking them up another level. sure, it's unwanted still, but the practice has been a good one, because now, for the first time more than ever, they're trying to figure out what it is that they want, rather than trying to make my manifestation as unwanted (for me) as possible. they are starting to figure out that by tryign to make something unwanted for someone else, they are actually attracting their own unwanted.
