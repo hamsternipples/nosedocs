@@ -6290,7 +6290,7 @@ however, I do not believe that the nosebook technology is available to the canna
 
 ### 2020-08-29 05:46 - approching zen
 
-I figure, that if you can pretend to feel bad, just to catch someone's attention, and get right back to feeling good, you're probably approaching zen.
+I figure, that if I can pretend to feel bad, just to catch someone's attention, and get right back to feeling good, I'm probably approaching zen.
 
 (as opposed to pretending to feel good, just to catch someone's attention, and then getting right back to feeling bad)
 
