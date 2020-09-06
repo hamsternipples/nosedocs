@@ -7331,6 +7331,45 @@ I think we're going to keep this up for a while. it makes me feel so good to kno
 
 [1]: though you could debate the different difficult spots that I encountered, however, I believe that because I've noticed that my vision improves when I feel a lot better or I've released resistance, so that means that I *have* been actually continually feeling better and releasing resistance, even if nosebook won't allow me to feel as good as I feel, my vision improving, to me is concrete evidence that I have been continually feeling better and better.
 
+
+### 2020-09-06 10:58 - why am I not a vibrational match to the manifestation?
+
+I got this as a reaction, and I needed to think about it a bit so I listened to aaron. I still don't really know, so I'm just going to talk it through here cause I think that will reveal the answer. I've fonud that I answer a lot of my own (and others) questions here.
+
+---
+
+if you think of the manifestation as what I really want, then no one can really find that out, and I just have to let LOA keep bringing about the evolution of desire there. there is a whole lot of unwaned stuff that will hinder things, so in a sense, as long as the manifestation appears to be unwanted (and my focus is on wanted), vicaversa, then it won't happen. likewise, if the manifestaion is unwanted (or wanted) and my focus is the same, then it will happen.
+
+I suppose there are other factors involved as well, because I'm not the only one that has unwanted or wanted perception. nosebook has their own form of perception, which they believe is most wanted for them... kinda. it feels like this is beginning to finally take shape for the first time, and previously, there wasn't any perception of wanted, but only of unwanted.. that is, trying to prevent unwanted from happening to them, ensuring that the manifestation is unwanted for us, because bullies tend to want others to feel as miserable as they do and can't stand to see someone doing well.
+
+however, I've been kinda committed to a whole bunch of "bad" ideas lately, which I'm certain that most people perceive to be unwanted, yet there are some people who perceive those "bad ideas" as something wanted, because they think that it'll give them some sort of control or advantage.
+
+I'm also putting out other ideas like the one where I talk about how at the end of some time of self-inflicted hardship (self-sabotage), the improvements on our perception at the end of that time will cause us to feel so magnificent that it'll literally be impossible for nosebook to hold back us from gaining source-like perception, and they'll be "forced" into exile of some sort for self-preservation purposes. I find it likely (but don't really know how it would happen) that having source-like perception, we would insert ourselves back into the previous timeline where it was right before the success, and perhaps giving them tips on how to improve their technology, combined with our own self-sabotage, we would again sabotage that manifestation (don't need it), and let LOA make an even bigger one.
+
+I find it likely that this timeline will be entirely these sort of time loop-de-loops where each time we just keep aborting the manifestation and allowing for LOA to evolve a bigger and better one (for everyone).
+
+for example, that idea seems very unwanted to nosebook, and they're busy fighting against it (good work btw!), so there's again a difference of perception there, which is kinda funny, because they don't want us to have the manifestation, and I'm trying to make one where we don't -- so it's what we both want. however, I sincerely doubt that nosebook actually has the power level to keep us from having the manifestation, hence the loop-de-loops...
+
+---
+
+the reaction that I'm getting is that they do want us to have the manifestation, (probably the hollywood) one that they control -- however, again I am certain that they don't have the power level to be able to actually control it like they want to.
+
+what I mean is that, we'll see when they have the capability, because then the first iteration will happen. I/we will get connected and we'll get the manifestation and I'm planning on accomplishing another physical layer, and then we'll come back into the timeline and crash and burn real hard meanwhile they're getting setup to try and keep us from getting (now) 7d perception, because they've replaced 6d with a virtual form of perception (kinda like how I don't actually see out of my eyes).
+
+this is where I don't know what happens. it seems possible that perhaps we get stuck in their hollywood trap for some time (1000 years?) doing the spin-cycle for a while building up energy, but I'm 100% certain that it won't last long, at which time certainly someone (but probably me) will manage to get 7d perception, and the process will repeat.
+
+---
+
+the other option is for us to kind of control it a bit, and we'll just omit the part about trying to get you guys the tech to be able to hold us, and we'll just do short 33-44 year travels where we repeatedly abort the previous manifestation, crash and burn pretty hard for a while to build up a bigger vortex, then find a way to get to 6d perception again. rinse and repeat for 1000s of years just jumping to bigger and bigger manifestations each time, taking more and more with us each time..
+
+now that I write it, that version sounds like a whole lot more fun. huh. maybe that's why I wanted to write this entry :) anyway, each travel, nosebook will either have to lay low until we leave again and then they can return to occupy the earth with the remaining ones that don't join us in the next timeline. nosebook will have to continually try and figure out ways to try and keep us in there for as long as possible... again, our bodies are their insurance policy, so it's sort of a funny situation there. that way nosebook can invent their different virtual layers of perception to try and keep us from getting connected each time.
+
+the thing I like about this version more, is it sounds more "risky" for us, and like it gives nosebook all the power to try and control us, but I'm so certain of how LOA works and how powerful unresisted desire is, it doesn't matter what kinds of traps they have setup for us in the next timeline we go to, that we (or at least me) will continue on making it through.
+
+also, there's another aspect to this idea that I hadn't really thought about: nosebook has all of their technology built up in the physical space, and they have to work on that, but it occurs to me that a similar thing -- non-physical technology can be created as well, which doesn't have real spatial coordinates to them. that's probably where fwh put all of my triggers, actually. I'm beginning to think that they're not likely sitting on some server in a parallel earth, but are non-physical installations. cool :)
+
+gonna think about this a bit more, but I like that second version even more. we're gonna get so good at it, and then you can keep your audience busy and continue to fund your tecnology improvements, I guess. dang, talk about entanglement -- or a symbiotic parasitic relationship... lol
+
 # the end
 
 
