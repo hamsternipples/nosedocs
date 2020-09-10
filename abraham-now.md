@@ -1100,3 +1100,100 @@ put yourself in their shoes: if you had that kind of manifestation, you could ei
 simply put, the best manifestations are *always* after finding your own way (not someone telling you) toward what you can now really appreciate because you've experienced so much unwanted. why? because you found your way there and *you* learned how to do it with the power of your emotions, and the more impossible the odds of you accomplishing that feeling which brings the manifetation, the better.
 
 [1]: when I say unwanted, I mean unwanted. it doesn't matter who it's for, because the focus is still on unwanted. I've been throwing out a whole lot of unwanted ideas too by taking their unwanted ideas and taking them up another level. sure, it's unwanted still, but the practice has been a good one, because now, for the first time more than ever, they're trying to figure out what it is that they want, rather than trying to make my manifestation as unwanted (for me) as possible. they are starting to figure out that by tryign to make something unwanted for someone else, they are actually attracting their own unwanted.
+
+
+### 2020-09-09 17:13 - (2020-09-05 p1)
+
+#### (17:19) - split energy
+
+when they were talking about split energy, they gave the usual example of the "if someone that you don't know tells you they'll never talk to you again, you wouldn't have much split energy -- however, if someone that you care a lot about tells you that they're never going to talk to you again, you would have split energy" (paraphrase cause I can't remember the quote). however, before they gave that example, they started it off with thise quotes:
+
+> you've heard us say that if you really care about something and you're focused in opposition to it, you're going to feel bad.
+
+> if you don't care about it, and you're focused in opposition to it, you're not going to feel so bad.
+
+> so, the degree of split energy and the way it feels to you, has so much to do with how much you desire this, or how invested your inner being is on the subject. inotherwords, how much momentum do you have going on this desire.
+
+so now when they were giving that telephone call example, the words that stuck out to me were the part about the not caring part, cause in a previous one broadcast they said something about how the ideal way to perceive a manifestation is to "not care about it" -- which is an obvious reference to me, where I definitely feel the trend in how people perceive me is that I just don't care.
+
+well, those qualifying statements they made before they gave that example takes it a whole step further here because they're essentially saying that I just don't care, like someone wouldn't care that a stranger never talks to them, or rather that I don't feel bad (why?) because my inner being isn't very invested in the subject.
+
+I don't really know how to parse this one, honestly, which is why I'm writing about it, to try and figure it out. the idea that my inner being doesn't have any momentum on it seems prepostrous to me, so it instead must mean that either my perception is not that it's "they're never going to talk to me again" (shorthand for never getting the manifestation), which is why I didn't feel bad, or I don't really have any split energy about it.
+
+this seems like a funny concept to me because it seems to me like a lot of people probably do think that I have split energy on the subject. in fact, it felt to me like a little earlier when abraham was commenting on the split energy in the audio book esther was listening to, and saying that we often times like to "serve more than one master" -- or try and please what others want for us, over what feels good.
+
+the multiple masters thing is an obvious reference to jesus when he said you cannot serve more than one master, and trying to do so would be to split your energy between those different masters that you're trying to serve.
+
+anyway, so it feels like most people probably think that I'm split on my energy when it comes to this thing because I've said that I'm 100% dedicated to the disaster -- and I am. perhaps it's because I don't care, and perhaps it's because I'm fine serving the masters in my head telling me to keep focusing on the disaster, but the thing is, it doesn't feel bad to me.
+
+it's quite possible that they perhaps have done a pretty good job disrupting my emotional guidance system, but I mean I don't really think so, cause when I go out, I can tell the difference between what feels good and what doesn't.
+
+there was another further kind of reference to the idea when right before the above quotes, they said something like just cause you've released resistance you can still have split energy...
+
+---
+
+so, by all of those references, it seems like they're building up to something here. I wonder where it's going, because I'm fairly sure that I don't really have that much split energy on the subject because if I had split energy, it would *feel bad*. they even said that:
+
+> if you don't care about it, and you're focused in opposition to it, you're not going to feel so bad.
+
+so that means that if I *do* have split energy, then following the quote after that...
+
+> so, the degree of split energy and the way it feels to you, has so much to do with how much you desire this, or how invested your inner being is on the subject. inotherwords, how much momentum do you have going on this desire.
+
+... means I either don't desire it very much, which is kinda true, actually if we're talking about the girls; I've only really cared about wanting to get connected, and the girls, while it sounds pretty fun and stuff is like a super low desire level for me. I really enjoy programming and creating and stuff like that which is how I plan to spend my time here during this disaster.
+
+when it comes to 'how much momentum do I have on the desire,' I would say virtually none. I have enormous momentum when it comes to my star watching and stuff like that -- so much so that it's snowing in september!!, cause they're running out of options of things to do to try and slow me down. I'm completely demolishing the acceleration metrics by a whole lot. my rate of increase is way more than just exponential now, and that's with them cutting out my consciousness and all sorts of other things... I'm doing really really well!
+
+I figure once I get connected, then all of this will become crystal clear (clarity, which is the opposite of split energy) and everything will just sort of move into place. I don't really care about anything more than that. my *only* goal is to keep moving forward on my ablity to find a less and less resistant form of perception. that doesn't sound like split energy to me, and to be completely honest, even with all of their opposition, I'm having a great time out there and I *love* to see the progress I'm making.
+
+that calibration process, like esther says, is completely intoxicating. I really don't know how I could have less split energy on that subject, at all. as jesus says, "seek first the kingdom of heaven (connection with your inner being) and then all things will be added to you"
+
+for the length that they can continue to hold me away from that connection, I'm perfectly fine with the idea that this is presented to the people as a disaster (which is why I'm so committed to it), which is why I'm not fighting against it in any way (resisting evil), or trying to push forward some sort of manifestation of the girls or getting connected (need not the manifestation, and let the manifestation be a feeling not the condition).
+
+in the clearest words I can possibly put it, I see 0 (zero) split energy when it comes to the manifestation of how I feel (which is evidence of my connection), and from my perspective, it doesn't look to me that on that subject, I have a wimpy desire or any contradictory vibration. there is so much eevidence that it's coming and it looks to me so certain that it's coming soon, that they're literally so desparate (desparation, despair is the lowest on the emotional scale which means that they feel powerless) that they're making snow storms in september!!!
+
+I rest my case... :)
+
+### 2020-09-09 19:59 - (2020-09-05 p2)
+
+as a continuation from my last thought, I will admit that there is, when it comes to the subject of the girls, definitely something going on where do perhaps have split energy -- or something.
+
+the thing is, it just doesn't really matter to me whatever happens here because I know that my goal is not to try and manipulate things into place. one of the things that I used to be kinda worked up over is that I wanted it to be a certain way, and back when I had those sorts of ideas I definitely had a lot of split energy because I, for example, wanted to work on some computer programs (cause that's what mattered to me) while at the same time trying to go along with whatever the girls wanted (which almost certainly wasn't going to be a unified idea), so my energy was sorta going in all sorts of different directions.
+
+now however, after having spent so much time away from programming, I guess I realise that I don't really care so much about that, and I'm not really wanting to create anything in particular either. I don't really have anything that I want to really do now.
+
+in fact, and this is going to sound really weird, but I'm so "high" on the feeling of power that I can feel anyway that I want, that I *honestly* want the difficulty to continue on for as long as possible. I don't have my perception right now even close to "perfect" or maybe perceived as "non-resistant", cause it's by no means non-resistant in any way, plus you don't want pure non-resistance either, because you need resistance in order to be able to fly -- it's necessary. what I'm learning is not, non-resistance, but the capacity to put resistance wherever and whenever I want, then just walk away unscathed, because I've become such a master at perceiving things the way that I want.
+
+I *want* things to continue on like they are for as long as I can keep them like this. it's a very difficult things to explain, but the girls seem to me like a thing that will slow me down, or perhaps try and teach me to perceive reality in some sort of believable way, and what I'm doing right now, is essentially learning how to bend the very nature of reality with my mind -- and I've really only begun to start to touch the surface of what's there.
+
+people are frightened by this whole 20-year nosedive concept, but I honestly am exhilarated to keep going on this for as long as I can possibly go. if you can perceive what I have learned about bending the rules of the nature of reality to conform to my perception -- that is, to conform my perception to be most similar to that of my inner beings' where all things are possible and that I only have to desire something -- anything, no matter how impossible it may sound, and just let the universe figure out how to make it become a reality. I have 0 (zero) work to do other than just figure out the step-by-step to feeling like it's right there on the way, coming soon, or even inevitable.
+
+*THAT!!!* -- is faaaarrrrr more intoxicating to me than girls. you cannot imagine how good I feel on the inside, and how well I'm getting at pretending to you guys like I'm just going about in a hohum state. it's hilarious to me to jump on the computer and bounce around between software bugs and other difficulties, let that frustration rise, then just sorta peace out of that state of mind as I go back to the ease of my experience again -- then complain about the weather, while secretly gloating about how desparate they're getting because I'm so successful now. nothing matters to me anymore. I could give it all up, let it all up in flames even, blow through the depression, frustration, and anger, and then get right back to knowing how good I am all of this, and how it won't take too long at all before I'm right back to experiencing undeniable evidence of the inevitablity of my connection to my source.
+
+having that capablity is so awesome...
+
+anyway, the reason why I said all of that is because I really don't mind how much longer it continues on, and it's not at all about the conditions, but the ablity to feel the way I want to feel. they could blow their wind at me in exactly the opposite direction I want to go, but a good sailor knows how to diagonal go in the direction of the wind, or go on switchbacks up a mountain -- whatever.
+
+anyway, it's for that reason that I'm fully committed to the disaster, and there's this other really awsome idea in there too, because I was trying to think about the different girls and stuff, and it's all really awesome that they're all so young and fun and stuff, and... this may sound a bit controversial, but the whole concept (as it's written about) is that young girls like that are supposed to be less resistant and stuff, which a while back was an exhilarating idea for me because there's so much I could learn from them in so many different ways, so you could say that the non-resistant girls *were* the manifestation, but I'm beginning to believe now that I may be a whole lot less resistant than they are now, and sure they're low resistance because they're young, but can they go faster than me?
+
+for this reason I've put out the idea more and more lately of, "catch me if you can" -- because I think it's great that they're non-resistant and stuff, but I want to be like source (in physical form), and they're always like... "no come up to us" -- right?
+
+so think about it this way: I've got a pretty significant head-start on things, so if the girls were able to catch up with me, that means they're going tremendously more rapid than me... that's awesome :) that's really really awesome actually, and I really want them to have the kind of stablity that I'm beginning to exhibit now, for them too.
+
+just think about that!!! I'm contemplating the "impossible" with ease now, and I want them to be even more than capable of that than I am now. I think we're gonna be shooting for the "impossible" here :)
+
+remember, it's not futlie!
+
+ok, onward to the second part now.
+
+#### (08:05) - luke's team getting inspired (instead of motivated) to perform better
+
+it seems like the whole bit on the leadup to this question, they're talking about not looking at or being discouraged by the distance (miles) that needs to be traveled, but to instead be making the manifestation the feeling (along the way).
+
+so now, when they're bringing up tracy's story of luke's team being inspired by thier exposure to a more competitive team, it inspired a change in how they played. they just got better after having been exposed, and I like the word exposed, because it doesn't have anything to do with losing or winning, because we're all on the same team anyway...
+
+so, I hope that my exuberant position on things is inspiring, and I really have to say that from my perspective, it looks to me like it should be quite easy for them to get that kind of perception.
+
+just like the person asking the question for the college soccer team, the goal is to, instaed of motivating them by getting them to want to win, to see their capablity and to emphasise the good-feeling part about it all, cause playing a basketball game when your on top of the world and your confidence in yourself and your capability is so much because you feel so good -- is so much better than playing the game in fear of losing or even playing the game with a determination to win.
+
+when you know how you want to feel, and can find a way to feel how you want, life can throw anything at you now, and a basketball game doesn't even feel like a challenge anymore... it just feels like another crazy awesome experience where the universe will demonstrate to you more evidence of the way you want to feel. it's not about winning anymore, cause even if you lose, it's the most gratifying "loss" ever. that's where I'm approaching now, and there's no "height or depth or principality or power that can separate me from the love of God (that feeling which is harmonious with your source)"
