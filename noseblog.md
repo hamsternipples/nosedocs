@@ -7370,6 +7370,28 @@ also, there's another aspect to this idea that I hadn't really thought about: no
 
 gonna think about this a bit more, but I like that second version even more. we're gonna get so good at it, and then you can keep your audience busy and continue to fund your tecnology improvements, I guess. dang, talk about entanglement -- or a symbiotic parasitic relationship... lol
 
+
+### 2020-09-11 10:26 - abstract dream
+
+I just woke up from this really weird but pretty cool abstract dream. the first part of the dream, they (nosebook) was trying to extinguish my creative capabilities the entire time, and I don't remember it very well, but the whole first they kept trying to ensure that I was not creating things[^1] but all around me this kind of mini-arena kept forming around me, and all of their efforts created this kind of mini-dojo where they were thinking they could trap me in there.
+
+I can't remember the transition, but now that they've got me "trapped" in this mini-dojo (arena), they quickly realised that what was happeing is, because I am this perpetual creator that cannot stop making people's desire come into reality, they quickly because to realise that in this trap, I was essentially turning all of their desires (unspoken) into reality for them.
+
+ok let me go back. the first time that they realised that I was turning their desires into reality was the trap they were trying to make for me. not only did I make the best trap for myself, but I also managed to somehow capture all of the elements they were looking for in that trap, too. this was the first realisation that  was making their desires manifest.
+
+ok, so now that I'm stuck (trapped) in their dojo now, it's this kind of circular thing (rat wheel kind of thing) where I just keep going in circles and (spinning my wheels), but while they can hide the manifestation from me, it is a reflection of their desire and it seems to keep getting better and better. however, they realise that they cannot hold me in it forever, beause the rate at which I gain energy is so rapid.
+
+essentially, they can't really "trap" me any more than they can just repeaatedly utilise me to turn turn their desires into reality. I didn't see any problem with this because it was effortless for me, and from my perspective, it seemed to me like they have another really serious problem coming up, where I'm turning their desire into reality at such a rapid rate, there's simply no way they could possibly experiece it all. they were going to suffer from severe overload, however, they felt like they could just keep me somehow trapped and continually utilise me to keep making their desires become manifest. whatever.
+
+this had something to do with the creation of the galaxy, and it was only a galaxy because they were getting so overloaded by how awesome the desire was becoming manifest for them, that they had to cut me off at some point before it became something so big and so awesome that they couldn't even possibly be able to experience its manifestation...
+
+like, as an example, if you were to want a whole bunch of gold cause you wanted to be rich, and you got a few grams, then a few kilos, then a few thousand kilos, then a few cubic kilometeres, then everything you touched turned to gold, then everything you looked at turned to gold, then your entire reality became gold, making it so impossible for you to even enjoy the feeling of riches that you originally wanted.
+
+so, they had to cut me off, and it was somewhere around galaxy size :)
+
+[1]: it seemed like reality, however no matter how hard they kept trying to block my creativity, it just kept manifesting
+
+
 # the end
 
 
