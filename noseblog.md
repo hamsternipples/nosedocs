@@ -7385,9 +7385,9 @@ essentially, they can't really "trap" me any more than they can just repeaatedly
 
 this had something to do with the creation of the galaxy, and it was only a galaxy because they were getting so overloaded by how awesome the desire was becoming manifest for them, that they had to cut me off at some point before it became something so big and so awesome that they couldn't even possibly be able to experience its manifestation...
 
-like, as an example, if you were to want a whole bunch of gold cause you wanted to be rich, and you got a few grams, then a few kilos, then a few thousand kilos, then a few cubic kilometeres, then everything you touched turned to gold, then everything you looked at turned to gold, then your entire reality became gold, making it so impossible for you to even enjoy the feeling of riches that you originally wanted.
+like, as an example, if you were to want a whole bunch of gold cause you wanted to be rich, and you got a few grams, then a few kilos, then a few thousand kilos, then a few cubic kilometeres, then everything you touched turned to gold, then everything you looked at turned to gold, then your entire reality became gold, making it so impossible for you to even enjoy the feeling of riches that you originally wanted. it's @[youtube](https://www.youtube.com/watch?v=Hkp9f_CjEL4) :)
 
-so, they had to cut me off, and it was somewhere around galaxy size :)
+so, they mere forced to let me go at some point, and it was somewhere around galaxy size...
 
 [1]: it seemed like reality, however no matter how hard they kept trying to block my creativity, it just kept manifesting
 
