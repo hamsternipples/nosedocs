@@ -7391,6 +7391,49 @@ so, they mere forced to let me go at some point, and it was somewhere around gal
 
 [1]: it seemed like reality, however no matter how hard they kept trying to block my creativity, it just kept manifesting
 
+### 2020-09-11 13:56 - what do things mean to me?
+
+some ineresting reactions because I was just outside and I was having a conversation with jaron about these planetary gods (specifically zeus) in human form, and how wtf if would be to actually meet and interact with the planet you were worshipping. also, how these different planetary gods seem to serve as kind of role models or prototypes for people to identify with that role...
+
+anyway, one of the questions that jaron asked was, "why do all of these gods always want virgins and how can you tell if they're virgins or not" (not exact quote), and I responded by saying that you cannot really verify that. anyway, for whatever reason this causes the question as to what all of that means to me.
+
+---
+
+I want to answer this way which is consistent with what I've been saying. first, when someone expresses desire, and I feel it, I respond, and like my abstract dream, it seems I'm almost obligated to make that desire become a reality of sorts. let me tell a quick story first.
+
+in the past, a lot of different girls had displayed interest in me, but I almost never responded to them, because I simply cannot meet the expections they had for me, and I didn't really want to try either. I personally really enjoy creating stuff.
+
+however, that all changed one day when zary and felix decided that they wanted to make a man out of me and we stopped off at a roadside brothel. they insisted that I go in. I didn't want to, so in true zaryn (and felix) form, when they don't get what they want, they add more alcohol into the situation. after a few drinks, I didn't feel so resistant any more to the idea of going in, and it sort of felt like it was inevitable. meaning, that they may have trapped me (cause we were quite a ways from madrid) in this situation, but it certainly wasn't the first time it they had been trying to get me to have sex, and I decided I would just appease them to get them to stop.
+
+it didn't though. they kind of figured out that they could get me drunk and then take me to brothels at will... don't get the wrong idea here, because they weren't going out of their way here. it was more of a convenience for them, because almost every night ended in a brothel, so to have drunk kenny sitting around waiting for them in the waiting room was annoying for them. it's sort of normal, if you have money in spain to conclude a night at the brothel..
+
+anyway, besides those other experiences, I still was tremendously terrified of getting into a relationship with a woman, and to be quite honest, I didn't really find any of the prostitute experiences to be very enjoyable at all. in fact, in every one of the situations, it made me want to have sex less and less, not more and more. I didn't associate any real good feelings with those experiences.
+
+actually, what I really wanted, or perhaps even envied about dod is that mom was always helping him out with his work and making sure he was able to do his work more effectively and efficiently. in contrast, with joax/lorena, pablo and his various girlfriends, or anyone else, is that it seemed like they all hated their girlfriends and they were this huge drag preventing them from doing anything they wanted to do (hera types). I liked alexia a lot and really enjoyed her company. I never felt any physical attraction to her though, but I would often times think, man if I could just find an alexia type that's like really hot and isn't the typical spanish "pesada" type where she's always trying to control stuff. I liked the idea of a helper.
+
+as a result, I didn't really ever want to engage with women at all, cept when I was drunk. drinking in this story is the real villian here. as such, when drinking, my reality creation is almost always tuned in the direction of unwanted. basically, *all* of my major failures with women come with drinking involved. somohow, I kind of knew this on a subconscious level, and there was this huge problem because the normal spanish girls have an unusually long laundry list of diffeerent things that someone has to do (expectations), for them to be able to remove their clothing or to even feel good about you. basically, I hated this because they wanted me to pretend to appease all of their expectations so I can have sex with them, only to find out that I can't possibly meet all of her expectations, so then she has an excuse to move on to the next guy who wants to try and pretend by lying/deceiving her so that she feels like he's, at least trying, to meet her expectations.
+
+forget that; I'm not going to play that game. I decided that I cannot meet girls' impossible expectations, so I quit that idea completely. I just simply don't care about sex to try hard enough to even pretend to want make that sacrifice for a little bit of good feeling.
+
+you see, after raquel, I got ahold of MDMA and mushrooms, and I found out that smoking MDMA I can feel *WAAAAYYY BETTER* than any sex could possibly do, and the mushrooms made me realise I had access to infinite intelligence and could come to find out *anything* that I wanted to know about. therefore, why in the world would I ever go out of my way to try and find sex, when I've got superior technology for feeling good here with mushrooms/MDMA??
+
+well, I ran out of money, so I couldn't get more MDMA, but I had been listeneing to abraham and I found out I can, with the power of my mind, feel just as good as on MDMA, but without the drug. I also figured out I can activate that same feeling of having access to infinite intelligence while smoking weed/hash, which is what lead me to star-watching.
+
+I've gotten quite good at feeling the way I want to at this point and don't need the drugs or sex to feel better...
+
+---
+
+so here's what I'm trying to say: when I used to think about having sex with someone, I can see that their expectations and other resistance would cause (kinda like alcohol) a very messy reality creation, and I could feel that basically, if a girl was a virgin, then she had significantly less resistance, and so therefore the reality that was created would be less of a messy one. it's always a reflection of the way you feel, and if the way you feel isn't so good and let's say the girl has an expectation for a man to treat her some way for her to feel good (because all other men previously have been lying cheats which don't meet that expectation), then her expectation isn't really on me meeting that expectation; instaed, her expectation is for me to be like the 100 previous losers who failed miserably to meet her desire (but met her expectation).
+
+I have quite a lot of energy moving these days, so any interaction has bigger effects as a result. so you can see that in a disconnected state, the way to make less of a mess is to go the virgin route. however, you have also noticed that I have said that if a girl has strong desire, then she can make that reality happen. there isn't a limit to reality, and she can experience a blue car pass while the other sees a red one -- meaning that there is no limit to me, and that you'll know that's possible when I'm in a connected state. the reason for this is because when I have source-like perception, my reality is not really causing me any difficulty, and I'm just gliding through life. *any* woman who wants to have a relationship with me now becomes possible, because the rammifications to that relationship are nil because I have a source-like perspective.
+
+if the relationship with me causes me to, somehow lose my (things are always working out) good feeling, source-like perception, this is essentially the same "fall" that adam and eve experienced.
+
+so once I'm connected, anything is good game. I encourage nosebook to pair me up with some of the most resistant woman and see if they can get me to "fall" down out of that source-like perspcetive. I don't believe that I can now (famous last words, right?) because I know so well now who I am, that even if I were to "fall" down, I could get right back up in record time -- and even then sometimes I think because I'm getting so good at this now, that I would purposefully fall down from time to time just to stir up some trouble and get even better at recovery :)
+
+so, while virgins certainly are the more ideal and good feeling manifestation, they don't make the biggest splash, and if you're planning a hollywood timeline to try and get people to spin their wheels for 2000 years over stupid shit, I'm certain that you may want to optimise for drama.
+
+first, I have to get connected :) then, I can certainly make zeus and hera look like a children's story...
 
 # the end
 
