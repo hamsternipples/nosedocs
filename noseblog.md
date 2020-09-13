@@ -7600,6 +7600,35 @@ I am certain that as we learn more and more the emotional factor (the etheric en
 
 that is the power (and benefit) of contrast.
 
+
+### 2020-09-13 13:52 - rainbow tantra
+
+@[youtube](https://www.youtube.com/watch?v=gY1GBOnQe7o)
+
+I watched this video and what the guy in the info vid was talking about with white/black/grey tantra really felt awful to me. there's no way it's that way I was thinking, because if that were true ... so, for whatever reason nosebook likes to force ejaculate me, and following what that info vid was saying, that means I'm in black or grey area without any option, and so therefore, if that vid is right, then each time they do that I should essentially be dying spritually, however this simply isn't the case. at the beginning, I did notice a decrease in energy and capablity (watching stars, etc.) but not really as much as they made it sound like would be happening to me.
+
+lately however, it seems that their efforts to try and force ejaculate me have either yielded either similar or possibly even more potential than otherwise[^1]. I don't really know, because I don't have a time machine so I can't really look at a parallel timeline and measure my performance, so I don't really know, however, I don't really notice all that much of a detriment, and certainly not a spiritual death, either.
+
+---
+
+so I gave it some thought, and I came to the conclusion that it's not a monochrome subject; it's not black, white, or grey.
+
+I think that when you're looking for sex to give you that enlightenment experience, then probably it is a monochrome subject. however, I am not intending to use sex as the reason for my connection. I intend to find my connection, and then have sex. and then, in that scenario, I have already reached enightenment, meaning that my perception, body, physicality, etc. is a reflection of how I feel. I didn't use a momentary condition of good feeling during sex to reach that enlightenment, so there simply isn't this charging up of the fluid with the vital energy during the good feeling of sex and then losing it when it's expelled, or retaining it to maintain that level of perception achieved from the good feeling of sex.
+
+instead, my good feeling comes from my perception -- the way that I perceive the world, and like when I meditate (or an isolation chamber) and calm down the chatter in my mind, the lack of physical and mental stimulus, I stop tuning myself to things that don't feel good, and so naturally I feel better and better (as if I were in an isolation chamber). however, I am not isolated, and instead what I am experiencing is more and more feelings that are of a higher vibration, which means that even if they expel the fluid, I am not losing anything.
+
+this is about the same subject as the one of the DMT levels in my head. they can remove only so much of it per unit of time, yet my form of preception *automatically* generates much more than they can take away, so while some people have a tank of it that they have to preserve and to proect from bad feeling thoughts, should the bad feeling thoughts, empty the tank, my tank is always empty, so I'm running on the rate at which my body believes it should be filling the tank.
+
+---
+
+mantak chia says that someone can ejaculate a few times when they're young and then less and less as they get older (eg. more resistant), so his suggestion seems to backup my theory that the fluid replenishes more rapidly when you're younger (eg. less resistant). therefore, and we shall soon see, I am fairly certain that my body is considered maybe about the resistance level of a very young person, and I have almost zero recovery time to get back to feeling good, so I estimate that even right now, I could ejaculate at a fairly frequent rate and not have any "death" occurring...
+
+however, once connected, physical reality is automatically of reflection of how I feel, and so I imagine that I could essentially ejaculate as much as I "wanted" to. I say that because I'm fairly certain that the desire to ejaculate will not be nearly as strong in a connected state, because I already feel so good -- meaning, I'd have to get a pretty good session in before that desire would build to be such a signficantly better feeling than how I already feel moment to moment.
+
+it seems that the trigger for ejaculation is the relative difference between how good the charge buildup from stimulation is in comparison to how good you feel normally... interesting :)
+
+[1]: consider that I wrote yesterday's entries just fine after having been force ejaculated.
+
 # the end
 
 
