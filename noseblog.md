@@ -5232,7 +5232,7 @@ interviewer: if [the germans] had technology as advanced as flying disks, why we
 
 vladimir: well, uh, there is...
 uh, very easy...
-I uhh, let me answer your question with a counter question -- I'v heard stories that tesla developed a "death ray", a dematerialisation ray for the US army in the late 30's. you would point it at any object: a stone, a truck, anything -- and the ray would shift the target -- the vibrations of the target off-time, basically and technically putting it in a different time continuum, making it disappear from our continuum. so, anything that you point it from here on to he horizon would disappear -- I mean, whole armies would be annihilated in seconds. why didn't the americans use this thing to demolish the germans much earlier?
+I uhh, let me answer your question with a counter question -- I've heard stories that tesla developed a "death ray", a dematerialisation ray for the US army in the late 30's. you would point it at any object: a stone, a truck, anything -- and the ray would shift the target -- the vibrations of the target off-time, basically and technically putting it in a different time continuum, making it disappear from our continuum. so, anything that you point it from here on to he horizon would disappear -- I mean, whole armies would be annihilated in seconds. why didn't the americans use this thing to demolish the germans much earlier?
 
 I mean, no government uses it's most advanced and secretive technology; they always try to keep it for a more special purpose.
 
@@ -7495,6 +7495,99 @@ mr. meeseeks is proof that too much of a good thing can have the opposite effect
 [2]: another quick addition to the story recounted: one of the things that helped me to realise what I wanted had a lot to do with tormeta. I really liked her, and I could feel attraction back from her, but I was going on old concepts where I had people telling me these different things that I needed to do to get her attention and stuff, and I tried hard. I was determined to "get" her. now, knowing what I know, I can see that this trying was mutual, and wasn't what I really wanted. I didn't want to be out there trying to manipulate girls into bed with me like felix or pablo or something. I didn't want to try to appeal to their expctations again and when the tormeta thing finally fell through, I realised that I didn't want to "try" like that to get someone that I was incapable of fulfilling her expectations. the desire craeted from that took almost no time to manifest because very shortly thereafter, raquel messaged me! I was so happy because I didn't need to try. I just said yes, got on the airplane and then just did nothing to try and impress her. I was just myself, and it was a total success. from then on, I knew that I never wanted to be out there trying to select which ones or anything like that, and to just let LOA do all of the work.
 
 [3]: as I was thinking about how to make a quick derail possible, I didn't really know how, but the idea that came to me was the difference between tormenta and sirena[^2]. I realised that right now, what's happening is that I am writing out the different girls that I'm feeling things from. however, this is certain to only be happening because my awareness comes on them, and I tune into them in that moment. so first of all, this could be changed first, so that I move away from the tormenta style of writing here the different girls that I can feel (choosing), and instaed letting LOA do the work to where the girls that want to, can easily "sign up" or request it somehow. this also solves the problem then of perception, because the same way those requests are fulfilled (timelines I suppose), those same timelines can be then, at the end turned into a disaster through amplifying different small thoughts which don't feel good. meaning, it could be essentially automated.
+
+
+### 2020-09-12 21:28 - it's starting to make sense to me
+
+@[youtube](https://www.youtube.com/watch?v=IRhNuhkcOdQ)
+
+I am just now putting a lot of different things together. I didn't really understand until after watching these videos:
+
+@[youtube](https://www.youtube.com/watch?v=4U49nYnd4Xc)
+@[youtube](https://www.youtube.com/watch?v=xrJZprO26RE)
+@[youtube](https://www.youtube.com/watch?v=4ZV71K5QJKk)
+
+I am certain that to most people it probably sounds like crazy talk for me to take such an strong stance that velikovki is right about the influence of venus on the exodus, combined with the totally bizarre theory that the planet mercury proceeds the planet venus and was created from the interactions with thoth's great pyramid and the sun. it is a bit weird, I know...
+
+anyway, it seems that there is this weird set of symbols that I have not fully assembled in full, but there seems to be a whole lot of merit to the connection between jupiter and the year of the ox (bull), which was proceeded by a golden age with saturn -- perhaps in the previous 3 eras... I don't know yet, but it would follow the idea that uranus and gaia (earth) gave birth to saturn first, then jupiter afterward. velikovski also proposes the idea that the deluge came about from an explosion on saturn which is what gave saturn its rings (they're made of ice with a similar duterium isotope composition as the water here on earth).
+
+so, if I were to guess, I would have to say that in the time before the ox, it would seem that time, the earth was much warmer, and likely this is why things grew to be so large (dinosaurs, megafauna, etc.), because the planet was considerably warmer (eg. the air was more conductive). this corresponds to what I think was the real cause to the 1900-1940 warming that occured[^1] which I do not think had anything to do with CO2, but was actually the result of tesla "bathing the world in electricity" during that time, in effort to activate the beneficial effects of a more energetic environment.
+
+well, the real effect of a more energetic environment I have stated numerous times is that LOA has a much stronger effect and seems to take action much more quickly. I think this was the condition that the earth was in much more prehistoric times, and I believe it also has a symbiotic realitionship with consciousness capablity. it's just a theory but I think that this effect is produced by the abundance of that vril/orgone/chi energy, and perhaps could be why recently denver saw both record highs and record lows when the snow came to cool everything down. hold on to that thought.
+
+so, in just the same way, I think that the earth used to be previously a much warmer and more energetic place which would be leo/cancer/gemini eras, then I am postulating here that jupiter came into effect around the time of the taurus which was also the time of the garden of eden (atlantis?) and the hight of the minoan civilisation which worshiped the bull. matt also gives quite a good argument that the pyramids of egypt and the bull worship found in egypt @[youtube](https://www.youtube.com/watch?v=OE9y_-q5jT8), combined with the electrical influence that bull meat could be placed in those stone boxes which produce high pressures and electrify the air @[youtube](https://www.youtube.com/watch?v=piUt5Ln9Hes) would make it the perfect thing to understand the bull worship found in egypt and minoan civilsations.
+
+however, the santorini volcano put an abrupt halt to the minoan civilsation, and is likely (in my opinion), caused by venus' close approch to earth, allowing for the exodus to happen. at this time moses, ushering in the new age, after coming down from the mountain, found the isrealites worshipping the bull, so he punished them for it (slayed the bull) (@[youtube](https://www.youtube.com/watch?v=xrJZprO26RE)). this makes the figure of YHVH the one of venus (ishtar, or the black cube, lucifer, etc.) @[youtube](https://www.youtube.com/watch?v=6acOTnRaC_4), which lead them out of egypt.
+
+---
+
+so it seems that the pattern here is that each time we reach one of the 4 cardinal points in the procession of the equinox (eagle, man, lion, and bull), it seems like some sort of thing happens where a new planet is made... the exception of course is venus, which was captured.
+
+venus is an interesting thing because during the era of the ox, (time of the sumerians), there was tremendous ishtar/inana (venus) worship in the zigarats @[youtube](https://www.youtube.com/watch?v=4ZV71K5QJKk). it's also interesting the similarity of the character of moses and the sargon of akkad... it's difficult to tell how this all fits in, but I'll leave it at that. these are the sorts of questions that I wish I could sit down and pick robert (sepher)'s brain on, because there seems to be connecting line... anyway...
+
+looking at it on a bigger scale now, it seems like there were these crazy power structures that were built in the times of mesopotamia, which was around the time of the arrival of "man" (adam). the power structure seems to have come out of atlantis, which according to plato was the power structure at the time (which was the ox), which following the deluge (outcry or sorrow) of saturn, the age or aries (ram begins) and the aryan population was now forced to relocate out.
+
+then, according to the penatuc, which was written by moses, the isrealite people, lead by moses seem to have found an escape from these aryan power structures in egypt (see robert's work on the indo-european dynasty in egypt's pharoahs), through the exodus. these are the stories that are written, however, what really happened is most likely a secret.
+
+ok, so there's this strage jewish/zionist force that seems to be present here, (see: @[youtube](https://www.youtube.com/watch?v=4U49nYnd4Xc) and @[youtube](https://www.youtube.com/watch?v=nU9f9beo-_A)), where this jewish messiah zevi begins this new cult of redemption through sin, upon which the illuminati is formed.
+
+fast forward to 1900 when tesla is "bathing the world in electricity" in colorado springs, and further with the wardenclyfe tower too. I think this heighening of the conductivity in the air is essentially what lead to the two world wars, which, looks to me like again another attempt from the aryans to begin to construct another power structure. however, again we see this similar semetic uprising where they seem to instinctually (or maybe they have more knowledge of things than they tell us about) where the jewish bankers intervene, and say that in exchange for palestine territory (what we now know as isreal), the americans can be convinced to enter the war and crush the germans/aryans. they do and the germans are routed.
+
+there are again some sequence of events which are likely a secret which transpire to where again germany wants to do another power grab. it's possible that this was actually funded by the rothschilds and other higher ups there to essentially keep the world distrsacted by a war while some new high technology can be tested. the reason why I say this is because between these wars, tesla invents a "death ray" to try and "prevent wars", which is essentially a time machine, as described by vlad:
+
+```
+I uhh, let me answer your question with a counter question -- I've heard stories that tesla developed a "death ray", a dematerialisation ray for the US army in the late 30's. you would point it at any object: a stone, a truck, anything -- and the ray would shift the target -- the vibrations of the target off-time, basically and technically putting it in a different time continuum, making it disappear from our continuum. so, anything that you point it from here on to he horizon would disappear -- I mean, whole armies would be annihilated in seconds.
+```
+
+we don't really know what happens here, but if time travel is now possible between the wars, you could imagine that the ones in charge (big bankers: rothschilds, rockafellers) may want to ... you have to see this as a power structure, so when you're above it all, you can create and finance both sides of a war in order to keep something else a secret. it seems to me quite likely that some form of time travel was used in conjuction with the war to essentially setup a new sytem.
+
+remember that all of this is steered by the redemption through sin thing (illuminati) which is consructing the new world order through media control, creating controlled conflict and controlled resolution of that conflict.
+
+a part of that conflict seems to be the constant placement of two similar sides in conflict with one another. on one side, you have the (germanic) aryans doing a territorial and physical power grab, and then, to counter it the semetic aryans are also doing a power grab in the media and economic fronts. yet, it seems to me that there is a power above all of these different factions which seems interested in keeping therselves entirely hidden, and people distracted with stuff so as to make sure that they don't know about it, to prevent revolt from their power structure (no one likes to feel like someone else has power over them).
+
+---
+
+in one of robert's videos he seems to make the connection between venus and the roman godess libertas. I don't have the reference, but it certainly sounds a whole lot like the american lady liberty (statue of liberty). it's funny that the turn of events has the roman catholic church put the jews (conversos) into exile which essentially fled to the new world and established the 13 colonies which later declared their independence (liberty) from the monarchy and formed what is now the united states. I want to find out more information on this connection, but it seems to fit here a bit.
+
+there is this constant need to find liberty (freedom) from some oppressing power structure, and nevermind that the USA appears now to be the oppressing power structure (it's really the "unseen hand" above the US govt), but there is this seeming connection to the zionists and the symbol of liberty.
+
+---
+
+I have often referred to myself as a "symbol of freedom" -- and I don't mean in a physical way. I mean emotionally. there are a lot of oppressive power structures that have unbelievable technology that far surpasses any of our capablity. in fact, the concept of an uprising is now a completely obsolete one. they have the ability to see through the eyes of anyone on the planet, kill them instantly with their electricity, knwo their thoughts, etc. so the idea of fighting against them isn't even one that is possible anymore. furthermore, if there were to be an uprising or revolt in some way, they'll just use their time machines to go back and control the media in such a way as to create a controlled conflict which can keep people busy on that, thereby avoiding the revolt completely. what do you think the brexit is for the irish and scots -- and why do you suppose that efforts to have independence for the basque and catalans are completely stagnated?
+
+my point is they have everything completely on physical lockdown. it's no wonder then that abraham is constantly telling people, and I am a supreme example of how well it works, that you simply cannot control the conditions in order to feel good. there are seemingly infinite levels of power above any person on a physical level.
+
+the only true freedom anyone has is to feel the way they want to feel.
+
+I stand by that so strongly, because I know it works. any normal person that would have made the connections that I wrote about above, would feel complete powerlessness.
+
+they may have all sorts of physical conditions to try and manipulate and control, but they cannot control how you feel. that is your choice, and is a function of how you perceive the world. for this reason, I find it ABSOLUTELY ESSENTIAL for someone to know and to understand that you have a non-physical and eternal part of you, and the way that you feel (which no one can control) is how close you are to that...
+
+that is the god force the vril, the creative/sexual energy -- the tree of life or fountain of youth that everyone is looking for. so when that energy is heighened, reality becomes manifest more rapidly. what is this manifest reality? why it's a reflection of your emotions, which is an indicator of how close you are to that non-physical eternal version of yourself.
+
+you can amplify this vril energy with drugs or sex or various electronic instruments which can heighen the reception of this life-giving energy, but in the end, it is *you* and your resistance which allows this unlimited resource to flow in and through you (or not), and NO ONE can take that away from you... for reals. I'm living proof.
+
+---
+
+so, then knowing this imagine how much of a surprise it's coming to me as I watch roberts videos, only to realise that all of the stuff that he's talking about, I came to these conclusions without all of this "occult" knowledge... no one taught me it. this "gnosis" that robert talks about is real. however, I must say that doing stuff like sacrificing little girls and drinking their blood or any of these other bizarre rituals are so devoid of power, that dispite their horrific and grizzly descriptions, it's comical to me how unbelievably powerless they are.
+
+if I told someone to put mud in their eyes, and then they would see perfectly, most people would laugh at me, but if you really believed it, it would be so. however, doing such a "silly" thing immediately gives someone the idea that it's joke or gimmick. however, if I told you that if you sacrificed 30 girls one on each night of the month, and then drank their blood in reverse order on the following moon cycle, you may be more inclined to believe me, because this idea seems to "cost" so much more, and so therefore, just like economic gimics (like fashion), you believe that the higher cost one, is more effective/better/valuable/etc. it's just a mind game these guys are playing on theirselves to try and find a way to believe. they have so much physical wealth, their faith is almost non-existant -- so, in jesus' famous words, it's more difficult for a rich man to enter the kingdom of heaven (that is, this gnosis/serpent state reached by alignment with your source) than for a camel to go through a needle (or whatever physically impossible metaphor you wish to use here).
+
+I am certain that the only reason why I'm in the place that I'm in now is because all of this crazy talk may sound like that to some people, but I'm coming to realise that to the secret elite "unseen hand", the stuff I'm saying makes perfect sense to them, and the weird thing is that the symbols that I'm talking about and using seem to be fitting right in.
+
+so while I keep using words like "disaster" and stuff like that, there really isn't a disaster. I assure you.
+
+however, for the ones with eyes to see, I do want to mention that this era is now (or soon to be) the aquarian era, the era of the humun -- that of freedom or liberty (because your reality is a reflection of the way you feel, and you can feel the way you want to feel).
+
+the one following this one is the one of pan: the goat, baphomet -- the one that displays both masculine and feminine qulalities in the same persona. it'll likely be the cause the "hermaphrodite invasion" (interpret that any way that you want to ... hehe)
+
+in a future entry, I want to talk about these different eras, their relation to the 12 (3*4) sections of the sine wave, and how they seem to have these different figures that show up in them (because you, the humun is the figure of the coming era).
+
+I'm kinda convinced that the majority of the humans alive right now (especially the young ones) will become essentially a planetary deity (figura) like zeus or venus or mercury and while you may not believe me, tesla seems to think so, and I would argue that is exactly what he means by everyone becoming like buddha, zoroaster, etc. on his quest to turn this planet into a second sun and give it a comparable light density to the other one he found within this galaxy.
+
+the two languages that I know (english and spanish) and their corresponding cultures seem especially optimised to convey abstract concepts (english), and archtypical figures (spanish). I can't really comment on others, however, it seems that these are kind of like two sides to the same indo-european language coin, and they seem to be the direction that we're headed: starting first with the conceptual/emotional and then expanding into a more visual symbolical/archetypical (or maybe both.. these correspond to the 3rd and 5th layers).
+
+[1]: ref: https://www.newscientist.com/article/dn11639-climate-myths-the-cooling-after-1940-shows-co2-does-not-cause-warming/
 
 # the end
 
