@@ -7589,6 +7589,17 @@ the two languages that I know (english and spanish) and their corresponding cult
 
 [1]: ref: https://www.newscientist.com/article/dn11639-climate-myths-the-cooling-after-1940-shows-co2-does-not-cause-warming/
 
+
+### 2020-09-13 00:23 - the coming "golden age"
+
+as a followup to the previous entry where I talked about how I used the word "disaster" but do not believe there is one...
+
+if you follow the progression through the different ages idea, it seems like on the four cardinal points (eagle, human, lion, and bull), these are the times when there is a "golden age" -- so, while I do use the word, "disaster" you must know that it's only a way or referring to the "unwanted" part of the same wave (or signal). when you know what you don't want, you know better what you do want, and that's all part of it.
+
+I am certain that as we learn more and more the emotional factor (the etheric energy) and its reflection on the nature of reality, it will actually produce a golden age, and it's kind of cool because from my perspective this is all really fun, and I would have never have guessed that I could be the centre point to all of it, even though I did desire it as a child, it's really cool to see how it's all coming together. I've planned none of this, and have only been following my emotional guidance (instinct) in all of this. it's just so cool to me that I was in, a few years ago, what appeared to be a completely hopeless situation, and then through the process of learning to follow my emotion and define who IAM is, that hopeless situation has completely turned around from what made me feel completely powerless and felt terrible (a total disaster), to something that now makes me feel like I'm completely in control of my reality.
+
+that is the power (and benefit) of contrast.
+
 # the end
 
 
