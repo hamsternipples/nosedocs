@@ -7501,13 +7501,7 @@ mr. meeseeks is proof that too much of a good thing can have the opposite effect
 
 @[youtube](https://www.youtube.com/watch?v=IRhNuhkcOdQ)
 
-I am just now putting a lot of different things together. I didn't really understand until after watching these videos:
-
-@[youtube](https://www.youtube.com/watch?v=4U49nYnd4Xc)
-@[youtube](https://www.youtube.com/watch?v=xrJZprO26RE)
-@[youtube](https://www.youtube.com/watch?v=4ZV71K5QJKk)
-
-I am certain that to most people it probably sounds like crazy talk for me to take such an strong stance that velikovki is right about the influence of venus on the exodus, combined with the totally bizarre theory that the planet mercury proceeds the planet venus and was created from the interactions with thoth's great pyramid and the sun. it is a bit weird, I know...
+I am just now putting a lot of different things together. I am certain that to most people it probably sounds like crazy talk for me to take such an strong stance that velikovki is right about the influence of venus on the exodus, combined with the totally bizarre theory that the planet mercury proceeds the planet venus and was created from the interactions with thoth's great pyramid and the sun. it is a bit weird, I know...
 
 anyway, it seems that there is this weird set of symbols that I have not fully assembled in full, but there seems to be a whole lot of merit to the connection between jupiter and the year of the ox (bull), which was proceeded by a golden age with saturn -- perhaps in the previous 3 eras... I don't know yet, but it would follow the idea that uranus and gaia (earth) gave birth to saturn first, then jupiter afterward. velikovski also proposes the idea that the deluge came about from an explosion on saturn which is what gave saturn its rings (they're made of ice with a similar duterium isotope composition as the water here on earth).
 
