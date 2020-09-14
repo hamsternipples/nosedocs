@@ -7623,6 +7623,72 @@ it seems that the trigger for ejaculation is the relative difference between how
 
 [1]: consider that I wrote yesterday's entries just fine after having been force ejaculated.
 
+
+### 2020-09-13 20:43 - progression of manifestatoins
+
+#### small disclaimer
+
+these sorts of things where I try to take a pattern and try to extrapolate out on it, is never a good idea, because this, along with all of the things I've written previously is *already* outdated. people's perception of what I wrote[^1] and emotional reaction to what I've written *automatically* evolves the desire (and therefore its manifestation) into something more wanted for everyone perceiving it.
+
+so, with that disclaimer out of the way I'll go ahead and make some speculation on the patterns, not in the interest of predicting the future (because remember, I have given up on the need to be right), instead I'm doing it so that the desire becomes something more wanted for everyone. that's the *only* reason why I'm giving so much of my attention to "unwanted" right now -- to allow the manifestation to be evolved into something better (eg. need not the manifestation (to be what you think it will be)).
+
+
+#### speculation on the next series of manifestations
+
+I am not certain if these manifestations are going to be in this era, in the same way that I mentioned in @[noseblog](2020-09-11 15:33) how in one way what I think is a good idea to maybe do is to have a manifestation, then go back and self-sabotage the manifestation so that it grows to be something more wanted (using LOA to our advantage, allowing it to be evolved), and also giving more different variety of girls a chance to have a go at it. clearly, the most successful ones will be obvious, as their magnitudes will grow tremndously. it also allows for a few different permutations as well.
+
+I wrote the rainbow tantra post because it's a prerequisitie to understanding these ideas. while that video (the adam and eve one) paints a really grim picture in my opinion, and I perceive that looking at it from reverse (getting connected, and then) is a good way to avoid that "gnosis death" from ejaculaion -- however, I do believe there is also some merit to the video's ideas as well.
+
+---
+
+it appears that this manifestation is shaping up to be something of the following (or at least it's the sense that I've been getting when waking up, so likely manipulated, but I'm gonna just throw it out there for some evolution -- see disclaimer):
+
+I think there's a reason why the philadelphia experiment was conducted on a boat -- and there's an interesting sort of harmony to the symbols of having things happening on a boat. think of:
+- the fish man that came out of the water, taught the sumerians(?) about agriculture and astrology, and then never came back.
+- the aquarian age being born on water
+- the difference between (or combination of) sirena and tormenta
+- maybe more.. I'll perhaps add them as I think of them
+
+the philadelphia experiment thing is important to understand because this was a large scale time travel experiment being carried out, and likely it's a whole lot easier to kinda move things around when they're all contained on a boat -- meaning that there are likely going to be a whole lot of parallel timelines going on, even though to any person on the boat, it'll all appear contiguous. there will likely be more than just a couple versions of me as well, and that's probably the "easiest" way for them to try and control it all.
+
+on the boat(s?), the impression that I had is that there will be a lot of crewmen in their usually normal flamboyant arrangement, and it seemed like the impression that I had was there was, in addition to the girls, some of that YMCA setup going on, and it seemed like a lot of those same women were additionally interested in me, as a kind of natural jump from where I talked about how virgins are only a good idea to not cause a whole lot of difficulty if I'm in a disconnected state. however, if I'm connected, it doesn't really matter to me much if they've had past men or or presently with another man (or if he is one of the boys at the YMCA either).
+
+like I mentioned in other various entries, from a conncected (6d perspective) none of this makes any difference to me. there are infinite versions of me, and even more possibilities than what is being experienced on the boat is possible.
+
+speaking of which, this morning (and last night), I began to have a sense that some of the women were taking me seriously when I said that from a connected state, *any* woman can find their desire manifest with me.
+
+then, I had the "random" conversation with mom this morning about luke and maria, and how I was sort of like the glue that held their relationship together because I could hang out with either of them so easily, allowing the them to have some time off, then when they had time off from each other, they actually wanted to be around each other more, it seemed (which then gave me time to be by myself which I quite like). that conversation had the interesting effect that I felt made a lot of sense to a lot of women in the sense that I'm great and stuff, but for a lot of women, and this is easy for me to see with luke and maria especially (and perhaps rianne and robert, though I've never met robert), that luke is super good for maria and there's a whole lot that luke is, which I'm not, in fact these things that luke is, which I am not, are precisely what is what I like about him. I tend to assimilate the people I'm around, taking their attributes, trying some of them out, modifying them for my own purposes, and improving upon my own personality program.
+
+additionally, I enjoyed a lot "processing" things with luke too. he's very smart and analyical, so me being a sort of chameleon type where I pick up on and can use the capabilities of those around me as if they were my own, I enjoy being around different other people, mainly just to hear myself talk in that different setting, because I I get to experience and listen to myself from a differnt (whomever I'm hanging around) sort of mentality. you can see this most notably when I hang around zaryn, noah, chris, and many others in my childhood.
+
+after reflecting on the conversation that I had with mom, I immediately thought about the sirian concept of "triads" where an arrangement of two men and one women[^2] where one represents the base, and then the other is the social one. specifically in our arrangement, luke was maria's base, giving her stability, and I was always free-floating in the direction that intersted me.
+
+I'll be honest, because when I read that for the first time, I did't understand how that could be possible because historically women have by far out populated men, so there simply aren't enough men to have a 33-66 women to men ratio, so I thought it was a silly idea from a statistical perspective, but I thought it was always an interesting idea because I have often been paired with another couple (tomasz & karin, daniel & meri, and others..). some men might think that would bother me that I would be in competition or something or trying to get with their gf/wife etc, but I never really had a problem with this and was so content just doing my own thing that I never wanted to disrupt things, so I was very careful not to engage in any sexual activity -- because afterall, I was actually friends with the guy before I met her, and I wasn't going to jeapordise that relationship -- or be some sort of douchebag or something.
+
+this always had an interesting effect because I'm kind of a loner and I just enjoy being around me so much that it never bothered me to be around another couple. usually the woman thought I was supposed to have my own girlfriend, but I never wanted one, especially when I was in these sorts of "triads" because I value my own time to do my own things so much, that I really like doing that, then taking a break from that and hanging out with one or both of them, was a nice change of pace.
+
+---
+
+so that sort of thing covers the women who are currently in a relationship and find their partner to be their "base" or a sort of grounding for her, or maybe just someone that she really likes, I guess (I have to try and think about things from a ordered perspective to make sense of the different permutations on the idea). obviously there are other arrangements, and like I suggested in that same entry, it may be quite a bit of a better way if these were requested of me in some way. I don't know how they could possibly control it all, but I think the same rules apply, where from a connected 6d perspecive, none of this makes any difference to me. I experience the majority of it from a simultaneous perspective just like I experience (many) reactions at the same time presently, however, I'm certain that sense will he heightened and I'll gain more and more precision and clarity to that sense. I doubt these will be happening on a boat.
+
+it's kind of a weird thing for me to think about, and to try and speculate on right now, because I don't really understand it all, however, I know that I don't need to understand it. it's essentially like as I become nearer and nearer to 100% instinctual, you can think of me more like an animal or a pet. it'll be very rare that I need to actually focus into one of the bodies and actually do some heavy thinking or processing, and because my assimilation of other people's techniques, skills and personality is all based on capturing the way that feels and then conjuring that feeling at will to practise it, that whole mechaninism is already emotionally controlled. I'm becoming less and less thoughtful all the time. it's only really here while writing this that I actually "think" really heavily about what I'm thinking or writing, and nearly all of the "thinking" I do now, is actually feeling (in relation to other things). as this approches 100%, I will have completed needing to be present in 5d experience (which is blocked from my perception by nosebook) and I'll move up to 6d perception, which I'm fairly sure they won't be able to block because I'll no longer primarily experience life with my physical senses. I'll likely have the entire experience in the same way which I can tell of things which are not visible or audible to me.
+
+some of the reactions right now are wondering why I would want to experience life in that sort of way. you don't really understand: like a child, emotions are more real to me now than the physical reality to me, and I'll have a form of percepion that feels so good, I assure you I won't be that interested in going back. I certainly will be able to, but the majority of my experience will be spent in an entirely new reality which will begin to take form. I'll continue to improve on it and how one interacts with it. I'm pretty certain that nosebook will be very interested in this reality, so they'll likely follow me into it, and it'll become the new 6d and it'll be *much* much more magnificent than physicality, I assure you -- and a very desirable place to experience yourself interacting with others and even with yourself too in many *similar/different* forms[^4].
+
+just like the imagination is an extension of the physical plane where time and space are mentally manipulatable, this new space will be like an extension of the emotional reality, with both "time and space"[^3] mentally manipulatable. I don't know when that will happen, but somewhere along the way, I'm pretty sure. it may even happen more than once :)
+
+---
+
+gonna take a break... good enough for now.
+
+[1]: which appears to be at times, purposefully (from a bigger picture perspective) made to be incorrect. again, my interest is not in trying to be right, but to allow the evolution of the desire by *purposfully* giving my attention to unwanted (and I'm realising, probably incorrect too). you can just consider this to be same sort of technique that the illuminati does, offering deliberately incorrect or awful sounding ideas, so that one has an easier time to accept the "chosen" resolution -- cept I have no choice. I just let LOA do all the work, and be receptive to the next iteration :) I have no problem being wrong about stuff...
+
+[2]: very much similar to water, where the oxygen is kinda like symbolic of the larger feminine egg, and then the two hydrogens which are symbolic of two much smaller masculine sperms -- again another aquatic metaphor
+
+[3]: they're not exactly time and space, because that's physical. they're more qualitative expressions of emotions. emotions are timeless, notice how anger today feels the same as it did some other time -- you're just more "used" to it, and so there's less difference between how you now feel and how that feeling feels -- sorta like how a song kinda wears out after you over listen to it, but it still sounds exactly the same. that's the temporal asuect. I don't know of a good way to describe the spatial one very well yet.
+
+[4]: this reminds me of the one facebook picture I saw, "God when he decided to sacrifice Himself to Himself to save humankind/Himself from Himself" -- a very YHVH concept :) lol, it's all coming together...
+
 # the end
 
 
