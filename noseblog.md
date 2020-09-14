@@ -7736,12 +7736,48 @@ also, potential optimsations for the girls in the different iterations may be to
 
 ---
 
-as we go through these different iterations, each of the participants will get more and more "magnitude" to them, and this is why I believe that at the "end" of this iterative process, we're all going to be celestial planet gods like zeus, thoth, venus, vulcan or mars. that may not happen until the next era though, because what I forsee as the "hermaphrodite invasion" will just be the first stage...
+as we go through these different iterations, each of the participants (I mean, everyone on the plant, because it's a compounding of experience, which means more giving birth to desire, which means more energy) will get more and more "magnitude" to them, and this is why I believe that at the "end" of this iterative process, we're all going to be celestial planet gods like zeus, thoth, venus, vulcan or mars. that may not happen until the next era though, because what I forsee as the "hermaphrodite invasion" will just be the first stage...
 
 it's quite possible that a bunch of us, having this story-like form of perception, could each, having our own planets, incarnate onto eachother's planets (which could also be populated with indigenous peoples[^1]) and carry out interesting things. there really is a whole lot of fun things that can be setup here. these are just some ideas.
 
 
 [1]: I say indigenous, because imagine a tribe in africa (either from this time, or a few hundred years ago, like example the american indians before the colonists arrived or the mayas, aztecs, etc.) they only know their surroundings and have no concept of the planet as a whole, so if you used tesla's death ray technology, you could "move" that indian tribe's environment off of earth and place them into one of our planets in a similar environment. they wouldn't know there was anything that changed, and we could try out different versions of planetary evolution on a (soon to be) "galactic" scale, each with different planets and suns collaborating with each other and incarnating into each other's environments.
+
+### 2020-09-14 09:29 - some feedback
+
+starting off, when I said all the particpants will gain more magnitude, I meant literally everyone on the plant, because it's a compounding of experience, which means more giving birth to desire, which means more energy -- that's all. it happens whether you want it to or not as you live life -- you become more, and even though to some people it looks like things die, that's only because they're not fully up to speed with the more, but from a non-physical perspective, the eternal part of you is more.
+
+---
+
+I also had some reactions as to why I framed it in a genetic experimentation frame... well, do you have a better idea? how should I have framed it instead? in my opinion, the worst thing you can possibly do is to deceive yourself and try and make your present reality something different than it is, by lying to yourself or to others about your present situation. maybe you don't like where you are, and don't want to give that your attention, which I think is good advice, however, instead of lying to yourself or to others you have to focus on the progress in the direction of wanted -- the improvement. you have to accurately be able to know where you are if you want to have any sense of direction of where you want to go.
+
+secondly, I don't really see it as a problem. so they're trying to manipulate conditions in effort to try and feel better, whoopdie doo. they may be trying all of that, but in the end it's all more energy for us, and while they may be getting their hands on (in my opinion) outdated DNA (because the latest manifestation is *always* outdated), from a non-physical standpoint we are all so much more. they benefit sure, but in my opinion we benefit much much more than they do.
+
+---
+
+there was also some depression regarding the whole thing. I'm pretty sure that they're going to try and manipulate this whole thing into happening without me getting connected. sure, that's fine, they can do that, but I'm not going along with it. I've got my eyes firmly set on "getting into alignment, and then". they can do whatever they want to do.
+
+the thing is, from my perspective, the important thing is the concept of "need not the manifestation" and it's corresponding idea: "let the manifestation be a feeling (rather than a physical condition)" -- because look at it from my perspective. as I go up toward getting this story form of perception (the new 6d), I'll experience the whole thing from an emotional perspective, and I'll be able try out a whole bunch of different stories (manifestations) and see how they feel to the different ones... it gives me quite a bit of freedom to create the most "wanted" (attractive) manifestation that I can by learning from these stories -- that is, letting the feeling be the manifestation. then, when I've got it all setup I can easily jump into physical form of the story that I want to live out and then "fall" into physicality in the story I really want to experience (and no nazi proctologists or whatever can take that away, because the story is already "written" and so from the feeling perspective, you already know the ending[^1] and are just jumping in to experience the physical reality of it).
+
+obviously, the story you write for yourself should be a good one, and you're going to want to have the "exit" where at the end of the story you get connected and write another story, which you then set up to be something desirable, "fall" into it, and then find your connection again. you are eternal, so enjoy it and write the things you want to experience. you could, if you wanted to, write a story where everything falls apart and you die at the end, but you're still eternal and your desire is to find a way back to getting connected again and writing your next story, so you may find yourself in a timeline like this one, where the conclusion is exctly that.
+
+when you look at things from a feeling point of view and write your story from that perspective, you gain a whole lot more control over what comes out, because you have a much "broader" (source-like) perspective, and so then it's easier to see what you want to give your attention to.
+
+personally, I believe this is the most ideal way to look at and experince things. sure, it may not be for everyone, I get that, but let the guys who want to focus their effort into things which they *believe* will make them feel good or more powerful. you are eternal; just use their energy to your advantage and don't try to fight against it. they will manifest in accordance to what they feel, and so will you (and me... everyone, really), so let's start getting some more control over it.
+
+when you get this form of perception, I am certain that "bad" is no longer "bad" (in the way previously thought). for example, "killing" a GI Joe isn't "bad", and it only adds more to the story. you don't need to experience every bit of contrast in graphic detail. they can just be background (or something propelling the story forwawrd) to what's really happening in the main story arc for the protagonist, and if you like any part of the story, you can choose to experience it.
+
+oh, I just realised I only briefly mentioned the idea of emotions being timeless, and so a perception that is like this actually "removes" you from the shackles of time, as the time componenet doesn't need to be a linear progression (just like source perceives things). they may have time machines, but it doesn't compare to being an eternal "god" who chooses their story to play out. you don't even need to experience the story from the perspective of a single protatonist either. it could be a super long and drawn out story where you "sacrifice yourself to yourself to save yourself from yourself" sort of thing :)
+
+so, I wouldn't really feel depression around anything. no matter what happens, the goal is to learn to feel the way you want to feel, and I have "no choice" but to continue on for as long as it needs to take to get that form of perception. their efforts to try and prevent me from getting 6d perception is exactly what is creating this form of perception. it will be the same for 7d as well. they'll need to fight against it (someone's got to do it), and their fighting against it, is going to be the mechanism which creates it. you have to know how to use LOA to your advantage in your stories :)
+
+I'm fairly certain that this story we're all experiencing right now was written by me so I'm certain that the storyline we're in right now (they can try to manipulate the physical timelines), but the storyline plays out the same way, meaning it arrives to the *feeling* which I wrote about and predetermined at the end of the story. that feeling is likely the creation of two (or more) new layers of expression whereby this story form of source perception becomes available to anyone who wants it.
+
+meaning, it's likely that in a previous timeline (fwh probably) I achieved such a massive jump in perception capability, that I constructed this story like format as a simile to explain what source-like perception is like to people, then to prove that it works, wrote a story to use LOA judo techniques to get it available to everyone :)
+
+something like that... it's gonna be fun :)
+
+[1]: this is also a very "biblical" concept, spanning both old and new testaments,
 
 # the end
 
