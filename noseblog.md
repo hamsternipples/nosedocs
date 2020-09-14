@@ -7777,7 +7777,46 @@ meaning, it's likely that in a previous timeline (fwh probably) I achieved such 
 
 something like that... it's gonna be fun :)
 
-[1]: this is also a very "biblical" concept, spanning both old and new testaments,
+[1]: this is also a very "biblical" concept, spanning both old and new testaments
+
+
+### 2020-09-14 11:27 - predestined storylines
+
+I want to mention that although I write about these stories from the first person perspective, it'a quite clear to me that it's a collaborative effort, each character with their own emotional trajectory in the story. we likely all wrote ourselves different trajecories that we knew we could "handle" -- or that seemed like a sequence of next logical steps (or next emotional states) to tell the story.
+
+sol when I talk about the story being, in a sense, predestined, what I am referring to is an emotional trajectory, so even if you had someone in the story that had a "time machine" -- rather, some way to swap phyiscal components in and out in the physical manifestation of the story, the emotional trajectory is what is recorded. you can think of this like terence's time wave, where it's a fractal wave function which kind of governs -- well he called it "novelty", but I would like to simply it to be a function of feeling better or feeling worse.
+
+imagine you're drafting out a story for a book, and in the book, you have a charactor eat an apple and then describe how nice it is to bite into the crunchy apply on a warm summer day. your story has that detail there, but you didn't specify the colour of the apple, so different people reading it will imagine different colours of apple there, depending on what they saw or ate recently. that detail is inconsequential. what is consequential is the way that apple made you feel on a warm summer day. the emotional trajectory of the story remains unchanged whether the reader imagines a big green or small red apple.
+
+now imagine that you jump into the timeline to experience it, and for whatever reason, you find yourself in a scenario with people with time travel capability, and they not only put you in a situation without any apples, but they make sure it's also wintertime, as well. who knows what LOA will produce there. maybe you eat a warm cake or have a nice beverage, but the effect is the same: it causes you to appreciate the contrast between the food item and your environment. again, there's no change in the emotional trajectory of the story.
+
+now imagine that the time machine owners decide to really do a number on the trajectory of things, saying uhoh, they're heading directly toward what they want, and we don't want them to have that -- so they try to make it as difficult as possible to accomplish the perceived goal -- first of all, from their perspective, they're looking at physical conditions, so they believe that the perceived goal is a condition, and I'll be honest, I keep keep giving them the illusion of that accommplishment of a condition, but the goal is not a condition, but a feeling. they can attempt all they want to try and manipulate conditions, but because the goal is the feeling, any attempts they try and redirect me/us away from the goal is, because this is AC electricity, having an equal amount of the opposite of their own goal in their own action -- meaning, that electricity flows in both directions (though it doesn't have to be an equal amount).
+
+so, what I mean by that is with alternating current, in one time unit there is always some amount that must return back to (its) source, and so let's assume that their efforts are to make the majority (95%) of the wavform going in the direction of unwanted, there still is 5% going in the direction of wanted. you select between which part of the wave you perceive (maybe a little unwanted, a lot unwanted, or a little wanted) with the way you perceive what is transpiring in the reality of your story.
+
+the different forms of perception that you acquire along the path of the story eventually result in the emotion at the "end" of the story. the "end" is either a transition back into non-physical, or you returning yourself, in physical format "back to source" and writing your next story.
+
+so, let's say that your trajectory as originally desired was to accomplish some sort of feelings along the way, before getting to the "end" of the story. you can imagine that let's say some sort of thing in your physical environment causes you to "miss the boat" on one of those concepts. don't worry LOA has it all figured out, to where you're going to go through a series of events which will modify your perception to allow you to accomplish those conceptual goals. meaning, that the accomplishement of that goal is *guaranteed*, and it's only you that can choose otherwise. no one can cause you to miss these boats other than yourself. even if someone with a time machine were to completely swap out your reality with something so impossible, then LOA will likewise do the "impossible" to get you to your conceptual desination, as long as your form of perception allows it.
+
+for example, imagine the end of your story, you're in some distant land -- some place very far from where you're at presently. previously in your story you envisioned a steady journey (like pilgrims progress of something) with occasional foes to defeat as you went along your way toward your destination... real boring stuff.
+
+however, instead of finding yourself on this boring journey of steady progress, you instead encounter yourself in some sort of jail or something which makes it physically impossible for you to get to your conceptual/feeling destination. however, you have faith instead of doubt that things are working out for you, and there's really no problem, and although you continue to exist inside of the jail, you can feel your destination more and more each day, and at the "end" of your storyline, you are clearly wanting so much to be at the place and you can feel it so strongly that you have a sudden realisation that *all* things are possible and upon realising this you realise a second thing that your desire has carried you to where you desired to be, and that indeed *all* things are possible, because the impossible happened.
+
+so, in that story, were you really there to fight the steady stream of boring foes, slowly building your confidence so that you finally believe you can defeat any foes you set your mind to, or to gain the real-life experience that *all* things are possible? in that sense, both of these results are "predestined" -- and only you decide if you want to stick yourself into a jail, risk not getting to your destination, but because you "know yourself" pretty well, you're willing to risk it and have the bigger "quantum leap" thing... or, assuming you didn't attract any of these evil jailors, you'll still be assured to have the steady progress story. both are boring, because one you're literally bored out of your mind in jail, and the other you're figting boring foes. know what I mean?
+
+---
+
+I really struggled to try and explain that all of this has to do with LOA and understanding how you navigate by how you feel, and all of other good stuff gets completely taken care of for you, and there are more than one series of perceptions (infinite) which can get you to realising your ending concept/feeling.
+
+I suppose that the majority of the people out there will experiment with things before becoming as much of a hotshot as I am about these sorts of "risky" situations. people who do not yet know theirselves well enough to have a strong identity (or will to attract the realisation of this identity along the way), will probably going for the safer stories where things are more steady and secure progress.
+
+in the end, if you know that LOA will ALWAYS provide a way for you to get to the desired emotional/conceptual destination you have "preordained" for yourself, you can throw yourself into some pretty crazy stuff and just let it all work out.
+
+---
+
+as I was writing this, I was thinking about it, because if the condition isn't the manifestation anymore, but the feeling, if I were wanting to make really ridiculous conditions which bring about never before experienced states of consciousness, I can't really encode that into a feeling because it's not really been experienced, so I can't really feel it, instead I would have to encode new forms of identity that I can come up with realising about myself in extreme circumstances, and then that could allow for crazy manifestations. I can't wait to try out this form of perception. I'm pretty certain that these IAM (archetypical) definitions I think will create the new realm of consciousness above the one I'm describing now.
+
+I really am starting to see it :) nice! I enjoyed writing this one
 
 # the end
 
