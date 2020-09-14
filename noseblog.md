@@ -7689,6 +7689,60 @@ gonna take a break... good enough for now.
 
 [4]: this reminds me of the one facebook picture I saw, "God when he decided to sacrifice Himself to Himself to save humankind/Himself from Himself" -- a very YHVH concept :) lol, it's all coming together...
 
+
+### 2020-09-13 23:59 - still more
+
+there is still quite some chaos around the whole idea that I won't experience the manifestation physically, which doesn't really make much sense to me.
+
+for example, if you think about a child playing with GI Joe or dolls, they don't seem to have any problem that they do not experience the situation physically, as if the doll were in a real physical situation. try to think back to how that was if you can, but if you can you may remember that the reason why it's actually fun to play with dolls or whatever is because it *is* real to you as a child. you simply do not make the distinction between it and "reality" -- as reality is something that you get pounded into your head by well-meaning adults who want to make sure you become responsible and have a miserable time in phyiscality like they do.
+
+sure physical is a whole lot more pleasurable, but what I'm talking about is so much more fun. in physicality you cannot just change scenes or situations as rapidly to what you want them to be as you can when you're experiencing the thing emotionally.
+
+I don't mind that most of my readers cannot comprehend what I'm talking about here, because I know what I'm talking about. it's just different, but it feels sooo good and so much fun. as an adult, I really enjoy playing real-time strategy games. I find it very enjoyable commanding units around to do different things. if I were to jump into one of the tanks and spend my time shooting the gun at the enemy, I lose almost all of the fun of being the commander of the trajectory of the battlefield or the mission or whatever. in fact, getting into one of the units and having to do all of the micro involved in some thing is only fun when it's a special sort of operation like maybe infiltrating or something. what I mean is, there are few occasions where getting into first-person perspective is more fun than commanding the whole army.
+
+the idea of having many versions of myself (as many as women/girls desire there to be), sounds to me very intoxicating. no longer am I worried about all of the day-to-day stuff like cleaning, showering, dressing, etc. and I can begin to worry about the bigger picture story.
+
+actually, a story is the best way to perceive this mode of perception. when reading a book, imagine even that it's a filthy romance novel or something... you don't have the physical experience of the different interactions, yet the book is, the more you get into it, intoxicating as the different characters have these interactions with each other -- which are in some way quite pleasureable to experience in your imagination, and as compelling as they are, they're not in any way physical.
+
+however, it's not in the same way like a story, because words are slow. words are extremely slow and you need a lot of them to describe what is happening, however, with this form of perception these different story elements are happening at an extremely rapid rate, and it would be as if you could read (and comprehend) at thousands or even millions of words per minute these different stories at a time, switching between different elements of things all the time to paint a bigger picture as simultaneous elements come to a crechendo -- just like a book does.
+
+---
+
+ok with that out of the way now (things feel a bit calmer now after that explanation) back to the possible permutations of the manifestation... I'm going to present it in a mechanical way the way I understood it when I woke up, so just bear with me cause I'm not presenting it as something that is desirable, but to simply get it out there so that the evolution on the desire takes place (see disclaimer).
+
+I'm going to call it an iteration, and I say iteration because I don't know if I'm talking about an iteration in the form of a loop-de-loop or if I'm talking about it in the bigger scheme of an era.
+
+first concept: recall if you will the concept of DNA being an emotional state machine, and different parts of the DNA is optimised for moving through the states.
+
+second concept: when I talk about my form of perception which yields "rainbow tantra", I am not isolating myself from physical stimulus to continue to feel better and better, however, my form of perception both understands (christ consciousness) and is not coming to bad feeling conclusions about what I'm observing or thinking about. essentially I can be around or think about nearly anything, as if I were the director of a movie or a story, and less and less of that causes a negative (debilitating, powerless, or I'm moving away from wanted) emotional reaction inside of me, meaning that these are just elments in a story or parts of reality which exist and are all part of how LOA works, and so therefore are not needed to be coersed into something else -- they just "are" (elements of the scene).
+
+third concept: the people running the show do not have that form of perception in the second concept, and they like to focus a lot of their attention on unwanted and worry about undesirable things happening to take away their control. as a result, they are looking for less DNA which resonates with those bad feeling thoughts, so they can maintain a healthy physical body while at the same time worrying about all the stuff they want to worry about (someonee's got to do it, right?) they also desire DNA which is naturally apt at recovering from bad feeling (unhealthy) emotional states and getting back to better feeling (healthy) emotional states. these are what we're optimising for.
+
+the first iteration (any many subsequent ones) will contain a lot of boys from various diffrent women, and some will be more resistant than others, and will yield different results. some of these are the going to be good DNA which is optimised for recovery. I trust they will continue on figuring out what is best. this will be mostly all "black" or "grey" tantra.
+
+however, some of the different girls will have started out with me at a pretty young age, and so if we're playing around and having a good time and stuff, and she keeps feeling good, her DNA will have used very little of the lower emotional states, and so therefore if we continue on for quite a while until she's older and able to have children, when we make a child, because she hasn't used a lot of those resistant states, a lot of that DNA will no longer be needed and so either "turned off" or deleted alltogether. this is optimisation to delete unnecessary resistant states.
+
+there may be other optimisations as well, such as contrived "story" elements which can kind of "tune" the DNA to optimally respond to different situations... however, in any case, I am fairly certain that given certain factors were the girl starts out young and goes for a long time with me giving little attention to unwanted, then she will produce very "high frequency" children -- very highly performant DNA. this is a good result.
+
+after a few iterations, it'll be clear which ones are producing good DNA and other ones not as much. now, we jump back (I'm going to assume that an iteration here is a loop) into the main timeline and self-sabotage the timeline, and this time LOA produces a different set of girls (maybe some repeats even because they're getting good at recovery time), and so the process is repeated again optimising for those factors and perhaps some more as we come to realise them.
+
+I am going to assume that the most valuable specimens will be the ones that exhibit a balance of male and female qualities, and are both physically and emotionally adept (hence the story type perception where they're given different situations to kind of experience). I also am going to assume that various women (in the triads and otherwise) will be paired with other men (perhaps both gay and straight; doesn't matter), and these men will acquire a similar story-like perception that I am going to be getting. I imagine (and I'm going to generalise here) that an macro-scale-emotional perception may be more enticing to a gay man than your regular old hotshot type -- but I dunno (reaction says, maybe not). we'll see. anyway, these guys will also play different characters in the different stories, too.
+
+rinse and repeat creating stories and the different characters interacting with each other and stuff until they've got the DNA that they're looking for.
+
+eventually, all of humankind will be getting pretty good at all of this emotional stuff by the time we've done a few of these iterations.
+
+also, potential optimsations for the girls in the different iterations may be to try an iteration with "white" tantra and see if that produces a better result, then finally work our way up to "immaculate conception" giving birth to very ideal sons and daughters.
+
+---
+
+as we go through these different iterations, each of the participants will get more and more "magnitude" to them, and this is why I believe that at the "end" of this iterative process, we're all going to be celestial planet gods like zeus, thoth, venus, vulcan or mars. that may not happen until the next era though, because what I forsee as the "hermaphrodite invasion" will just be the first stage...
+
+it's quite possible that a bunch of us, having this story-like form of perception, could each, having our own planets, incarnate onto eachother's planets (which could also be populated with indigenous peoples[^1]) and carry out interesting things. there really is a whole lot of fun things that can be setup here. these are just some ideas.
+
+
+[1]: I say indigenous, because imagine a tribe in africa (either from this time, or a few hundred years ago, like example the american indians before the colonists arrived or the mayas, aztecs, etc.) they only know their surroundings and have no concept of the planet as a whole, so if you used tesla's death ray technology, you could "move" that indian tribe's environment off of earth and place them into one of our planets in a similar environment. they wouldn't know there was anything that changed, and we could try out different versions of planetary evolution on a (soon to be) "galactic" scale, each with different planets and suns collaborating with each other and incarnating into each other's environments.
+
 # the end
 
 
